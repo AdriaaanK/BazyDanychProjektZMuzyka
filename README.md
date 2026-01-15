@@ -1921,3 +1921,8541 @@ Kto z najpiêkniejszym rydzem do sto³u przybêdzie,
 Ten obok najpiêkniejszej panienki usiêdzie;
 Sam j¹ sobie wybierze. Jeœli znajdzie dama,
 Najpiêkniejszego ch³opca weŸmie sobie sama”.
+KSIÊGA TRZECIA
+UMIZGI
+Treœæ:
+Wyprawa Hrabi na sad - Tajemnicza nimfa gêsi pasie - Podobieñstwo
+grzybobrania do przechadzki cieniów elizejskich - Gatunki grzybów -
+Telimena w Œwi¹tyni dumania - Narady tycz¹ce siê postanowienia
+Tadeusza - Hrabia pejza¿ysta - Tadeusza uwagi malarskie nad drzewami i
+ob³okami - Hrabiego myœli o sztuce - Dzwon - Bilecik - NiedŸwiedŸ,
+Mospanie!
+75
+Hrabia wraca³ do siebie, lecz konia wstrzymywa³,
+G³ow¹ coraz w ty³ krêci³, w ogród siê wpatrywa³;
+I raz mu siê zdawa³o, ¿e znowu z okienka
+B³ysnê³a tajemnicza bieluchna sukienka
+I coœ lekkiego znowu upad³o z wysoka,
+I przeleciawszy ca³y ogród w mgnieniu oka,
+Pomiêdzy zielonymi œwieci³o ogórki:
+Jako promieñ s³oneczny, wykrad³szy siê z chmurki,
+Kiedy œród roli padnie na krzemienia skibê
+Lub œród zielonej ³¹ki w drobn¹ wody szybê.
+Hrabia zsiad³ z konia, s³ugi odprawi³ do domu,
+A sam ku ogrodowi ruszy³ po kryjomu;
+Dobieg³ wkrótce parkanu, znalaz³ w nim otwory
+I wcisn¹³ siê po cichu jak wilk do obory;
+Nieszczêœciem, tr¹ci³ krzaki suchego agrestu.
+Ogrodniczka, jak gdyby zlêk³a siê szelestu,
+Ogl¹da³a siê wko³o, lecz nic nie spostrzeg³a;
+Przecie¿ ku drugiej stronie ogrodu pobieg³a.
+A Hrabia bokiem, miêdzy wielkie koñskie szczawie,
+Miêdzy liœcie ³opuchu, na rêkach, po trawie,
+Skacz¹c jak ¿aba, cicho, przyczo³ga³ siê blisko,
+Wytkn¹³ g³owê - i ujrza³ cudne widowisko.
+W tej czêœci sadu ros³y tu i ówdzie wiœnie,
+Œród nich zbo¿e, w gatunkach zmieszanych umyœlnie:
+Pszenica, kukuruza, bob, jêczmieñ w¹saty,
+Proso, groszek, a nawet krzewiny i kwiaty.
+Domowemu to ptastwu taki ochmistrzyni
+76
+Wymyœli³a ogródek: s³awna gospodyni.
+Zwa³a siê Kokosznicka, z domu Jendykowiczówna; jej wynalazek epokê stanowi
+W domowym gospodarstwie; dziœ powszechnie znany,
+Lecz w owych czasach jeszcze za nowoœæ podany,
+Przyjêty pod sekretem od niewielu osób,
+Nim go wyda³ kalendarz, pod tytu³em: Sposób
+Na jastrzêbie i kanie, albo nowy œrodek
+Wychowywania drobiu - by³ to ów ogrodek.
+Jako¿ zaledwie kogut, co odprawia warty,
+Stanie i nieruchomie dzier¿¹c dziob zadarty,
+I g³owê grzebieniast¹ pochyliwszy bokiem,
+Aby tym ³acniej w niebo móg³ celowaæ okiem,
+Dostrze¿e wisz¹cego jastrzêbia œród chmury,
+Krzyknie - zaraz w ten ogród chowaj¹ siê kury,
+Nawet gêsi i pawie, i w nag³ym przestrachu
+Go³êbie, gdy nie mog¹ schroniæ siê na dachu.
+Teraz w niebie ¿adnego nie widziano wroga,
+Tylko skwarzy³a s³oñca letniego po¿oga,
+Od niej ptaki w zbo¿owym ukry³y siê lasku;
+Tamte le¿¹ w murawie, te k¹pi¹ siê w piasku.
+Œród ptaszych g³ów stercza³y g³ówki ludzkie ma³e,
+Odkryte; w³osy na nich krótkie, jak len bia³e;
+Szyje nagie do ramion; a pomiêdzy niemi
+Dziewczyna g³ow¹ wy¿sza, z w³osami d³u¿szemi;
+Tu¿ za dzieæmi paw siedzia³ i piór swych obrêcze
+77
+Szeroko rozprzestrzeni³ w ró¿nofarbn¹ têczê,
+Na której g³ówki bia³e, jak na tle obrazku,
+Rzucone w ciemny b³êkit, nabiera³y blasku,
+Obrysowane wko³o krêgiem pawich oczu
+Jak wiankiem gwiazd, œwieci³y w zbo¿u jak w przezroczu,
+Pomiêdzy kukuruzy z³ocistymi laski
+I angielsk¹ trawic¹ posrebrzan¹ w paski,
+I szczyrem koralowym, i zielonym œlazem,
+Których kszta³ty i barwy miesza³y siê razem
+Niby krata ze srebra i z³ota pleciona,
+A powiewna od wiatru jak lekka zas³ona.
+Nad gêstw¹ ró¿nofarbnych k³osów i badylów
+Wisia³a jak baldakim jasna mg³a motylów
+Zwanych babkami, których poczwórne skrzyde³ka,
+Lekkie jak pajêczyna, przejrzyste jak szkie³ka,
+Gdy w powietrzu zawisn¹, zaledwo widome,
+I chocia¿ brzêcz¹, myœlisz, ¿e s¹ nieruchome.
+Dziewczyna powiewa³a podniesion¹ w rêku
+Szar¹ kitk¹, podobn¹ do piór strusich pêku;
+Ni¹ zda³a siê oganiaæ g³ówki niemowlêce
+Od z³otego motylów deszczu. W drugiej rêce
+Coœ u niej rogatego, z³ocistego œwieci,
+Zdaje siê, ¿e naczynie do karmienia dzieci,
+Bo je zbli¿a³a dzieciom do ust po kolei,
+Mia³o zaœ kszta³t z³otego rogu Amaltei.
+78
+Tak zatrudniona, przecie¿ obraca³a g³owê
+Na pamiêtne szelestem krzaki agrestowe,
+Nie wiedz¹c, ¿e napastnik ju¿ z przeciwnej strony
+Zbli¿y³ siê, czo³gaj¹c siê jak w¹¿ przez zagony;
+A¿ wyskoczy³ z ³opucha. Spójrza³a - sta³ blisko,
+O cztery grzêdy od niej, i k³ania³ siê nisko.
+Ju¿ g³owê odwróci³a i wznios³a ramiona,
+I zrywa³a siê lecieæ jak kraska sp³oszona,
+I ju¿ lekkie jej stopy wionê³y nad liœciem,
+Kiedy dzieci, przelêk³e podró¿nego wniœciem
+I ucieczk¹ dziewczyny, wrzasnê³y okropnie;
+Pos³ysza³a, uczu³a, ¿e jest nieroztropnie
+Dziatwê ma³¹, przelêk³¹ i sam¹ porzuciæ:
+Wraca³a wstrzymuj¹c siê, lecz musia³a wróciæ,
+Jak niechêtny duch, wró¿ka przyzwany zaklêciem;
+Przybieg³a z najkrzykliwszym bawiæ siê dzieciêciem,
+Siad³a przy niem na ziemi, wziê³a je na ³ono,
+Drugie g³aska³a rêk¹ i mow¹ pieszczon¹;
+A¿ siê uspokoi³y, obj¹wszy w r¹czêta
+Jej kolana i tul¹c g³ówki jak pisklêta
+Pod skrzyd³o matki. Ona rzek³a: „Czy to piêknie
+Tak krzyczeæ? czy to grzecznie? Ten pan was siê zlêknie.
+Ten pan nie przyszed³ straszyæ; to nie dziad szkaradny.
+To goœæ, dobry pan, patrzcie tylko, jaki ³adny”.
+Sama spójrza³a: Hrabia uœmiechn¹³ siê mile
+I widocznie by³ wdziêczen jej za pochwa³ tyle;
+Postrzeg³a siê, umilk³a, oczy opuœci³a
+I jako ró¿y p¹czek ca³a siê sp³oni³a.
+79
+W istocie by³ to piêkny pan: s³usznej urody,
+Twarz mia³ poci¹g³¹, blade, lecz œwie¿e jagody,
+Oczy modre, ³agodne, w³os d³ugi, bia³awy;
+Na w³osach listki ziela i kosmyki trawy,
+Które Hrabia oberwa³ pe³zn¹c przez zagony,
+Zieleni³y siê jako wieniec rozpleciony.
+„O ty! - rzek³ - jakimkolwiek uczczê ciê imieniem,
+Bóstwem jesteœ czy nimf¹, duchem czy widzeniem!
+Mów! w³asna-li ciê wola na ziemiê sprowadza,
+Obca-li wiêzi ciebie na padole w³adza?
+Ach, domyœlam siê - pewnie wzgardzony mi³oœnik,
+Jaki pan mo¿ny albo opiekun zazdroœnik
+W tym ciê parku zamkowym jak zaklêt¹ strze¿e!
+Godna, by o ciê broni¹ walczyli rycerze,
+Byœ zosta³a romansów heroin¹ smutnych!
+Odkryj mi, Piêkna, tajnie twych losów okrutnych!
+Znajdziesz wybawiciela - odt¹d twem skinieniem,
+Jak rz¹dzisz sercem mojem, tak rz¹dŸ mym ramieniem”.
+Wyci¹gn¹³ ramiê.
+Ona z rumieñcem dziewiczym,
+Ale z rozweselonym s³ucha³a obliczem.
+Jak dzieciê lubi widzieæ obrazki jaskrawe
+I w liczmanach b³yszcz¹cych znajduje zabawê,
+Nim rozezna ich wartoœæ, tak siê s³uch jej pieœci
+Z dŸwiêcznemi s³owy, których nie pojê³a treœci.
+Na koniec zapyta³a: „Sk¹d tu Pan przychodzi?
+I czego tu po grzêdach szuka Pan Dobrodziéj?”
+80
+Hrabia oczy roztworzy³, zmieszany, zdziwiony,
+Milcza³, wreszcie, zni¿aj¹c swej rozmowy tony:
+„Przepraszam - rzek³ - Panienko! Widzê, ¿em pomiesza³
+Zabawy! Ach, przepraszam, jam w³aœnie poœpiesza³
+Na œniadanie; ju¿ póŸno, chcia³em na czas zd¹¿yæ;
+Panienka wie, ¿e drog¹ trzeba wko³o kr¹¿yæ,
+Przez ogród, zdaje mi siê, jest do dworu proœciéj”.
+Dziewczyna rzek³a: „Têdy droga Jegomoœci;
+Tylko grz¹d psuæ nie trzeba; tam miêdzy muraw¹
+Œcie¿ka”. - „W lewo - zapyta³ Hrabia - czy na prawo?”
+Ogrodniczka, podnios³szy b³êkitne oczêta,
+Zdawa³a siê go badaæ, ciekawoœci¹ zdjêta:
+Bo dom o tysi¹c kroków widny jak na d³oni,
+A Hrabia drogi pyta? Ale Hrabia do niéj
+Chcia³ koniecznie coœ mówiæ i szuka³ powodu
+Rozmowy.
+„Panna mieszka tu? blisko ogrodu?
+Czy na wsi? Jak to by³o, ¿em Panny we dworze
+Nie widzia³? Czy niedawno tu? przyjezdna mo¿e?”
+Dziewczê wstrz¹snê³o g³ow¹. - „Przepraszam, Panienko,
+Czy nie tam pokoj Panny, gdzie owe okienko?”
+Myœli³ zaœ w duchu: Jeœli nie jest heroin¹
+Romansów, jest m³odziuchn¹, przeœliczn¹ dziewczyn¹.
+Zbyt czêsto wielka dusza, myœl wielka ukryta
+W samotnoœci, jak ró¿a œród lasów rozkwita;
+Dosyæ j¹ wynieœæ na œwiat, postawiæ przed s³oñcem,
+Aby widzów zdziwi³a jasnych barw tysi¹cem!
+81
+Ogrodniczka tymczasem powsta³a w milczeniu,
+Podnios³a jedno dzieciê Ÿwis³e na ramieniu,
+Drugie wziê³a za rêkê, a kilkoro przodem
+Zaganiaj¹c jak g¹ski, sz³a dalej ogrodem.
+Odwróciwszy siê rzek³a: „Czy te¿ Pan nie mo¿e
+Rozbieg³e moje ptastwo wpêdziæ nazad w zbo¿e?”
+„Ja ptastwo pêdzaæ?” - krzykn¹³ Hrabia z zadziwieniem.
+Ona tymczasem znik³a, zakryta drzew cieniem.
+Chwilê jeszcze z szpaleru przez majowe zwoje
+Przeœwieca³o coœ na wskróœ, jakby oczu dwoje.
+Samotny Hrabia d³ugo jeszcze sta³ w ogrodzie;
+Dusza jego, jak ziemia po s³oñca zachodzie,
+Ostyga³a powoli, barwy bra³a ciemne;
+Zacz¹³ marzyæ, lecz sny mia³ bardzo nieprzyjemne.
+Zbudzi³ siê, sam nie wiedz¹c, na kogo siê gniewa³;
+Niestety, ma³o znalaz³! nadto siê spodziewa³!
+Bo gdy zagonem pe³zn¹³ ku owej pasterce,
+Pali³o mu siê w g³owie, skaka³o w nim serce;
+Tyle wdziêków w tajemnej nimfie upatrywa³,
+W tyle j¹ cudów ubra³, tyle odgadywa³!
+Wszystko znalaz³ inaczej. Prawda, ¿e twarz ³adn¹,
+Kibiæ mia³a wysmuk³¹, ale jak niesk³adn¹!
+A owa pulchnoœæ liców i rumieñca ¿ywoœæ,
+Maluj¹ca zbyteczn¹, prostack¹ szczêœliwoœæ!
+Znak, ¿e myœl jeszcze drzemie, ¿e serce nieczynne.
+I owe odpowiedzi, tak wiejskie, tak gminne!
+„Po có¿ siê ³udziæ? - krzykn¹³ - zgadujê po czasie!
+Moja nimfa tajemna pono gêsi pasie!”
+82
+Z nimfy zniknieniem ca³e czarowne przezrocze
+Zmieni³o siê: te wstêgi, te kraty urocze,
+Z³ote, srebrne, niestety! wiêc to by³a s³oma?
+Hrabia z za³amanemi pogl¹da³ rêkoma
+Na snopek uwi¹zanej trawami mietlicy,
+Któr¹ bra³ za pêk strusich piór w rêku dziewicy.
+Nie zapomnia³ naczynia: z³ocista konewka,
+Ów ró¿ek Amaltei, by³a to marchewka!
+Widzia³ j¹ w ustach dziecka po¿eran¹ chciwie:
+Wiêc by³o po uroku! po czarach! po dziwie!
+Tak ch³opiec, kiedy ujrzy cykoryi kwiaty,
+Wabi¹ce d³oñ miêkkiemi, lekkiemi b³awaty,
+Chce je pieœciæ, zbli¿a siê, dmuchnie, i z podmuchem
+Ca³y kwiat na powietrzu rozleci siê puchem,
+A w rêku widzi tylko badacz zbyt ciekawy
+Nag¹ ³odygê szarozielonawej trawy.
+Hrabia wcisn¹³ na oczy kapelusz i wraca³
+Tamtêdy, kêdy przyszed³, ale drogê skraca³,
+St¹paj¹c po jarzynach, kwiatach i agreœcie,
+A¿ przeskoczywszy parkan, odetchn¹³ nareœcie!
+Przypomnia³, ¿e dziewczynie mówi³ o œniadaniu;
+Mo¿e ju¿ wszyscy wiedz¹ o jego spotkaniu;
+W ogrodzie, blisko domu? mo¿e szukaæ wyœl¹?
+Postrzegli, ¿e ucieka³? Kto wie, co pomyœl¹?
+Wiêc wypada³o wróciæ.
+Chyl¹c siê u p³otów,
+83
+Oko³o miedz i zielska, po tysi¹cach zwrotów
+Rad by³ przecie¿, ¿e wyszed³ w koñcu na goœciniec,
+Który prosto prowadzi³ na dworski dziedziniec.
+Szed³ przy p³ocie, a g³owê odwraca³ od sadu,
+Jak z³odziej od œpichlerza, aby nie daæ œladu,
+¯e go myœli nawiedziæ albo ju¿ nawiedzi³.
+Tak Hrabia by³ ostró¿ny, choæ go nikt nie œledzi³;
+Patrzy³ w stronê przeciwn¹ ogrodu, na prawo.
+By³ gaj z rzadka zaros³y, wys³any muraw¹;
+Po jej kobiercach, na wskroœ bia³ych pniów brzozowych,
+Pod namiotem obwis³ych ga³êzi majowych,
+Snu³o siê mnóstwo kszta³tów, których dziwne ruchy,
+Niby tañce, i dziwny ubior: istne duchy
+B³¹dz¹ce po ksiê¿ycu. Tamci w czarnych, ciasnych,
+Ci w d³ugich, rozpuszczonych szatach, jak œnieg jasnych;
+Tamten pod kapeluszem jak obrêcz szerokim,
+Ten z go³¹ g³ow¹; inni, jak gdyby ob³okiem
+Obwiani, id¹c, na wiatr puszczaj¹ zas³ony,
+Ci¹gn¹ce siê za g³ow¹ jak komet ogony.
+Ka¿dy w innej postawie: ten przyrós³ do ziemi,
+Tylko oczyma krêci na dó³ spuszczonemi;
+Ów patrz¹c wprost przed siebie, niby senny kroczy
+Jak po linie, ni w prawo, ni w lewo nie zboczy;
+Wszyscy zaœ ci¹gle w ró¿ne schylaj¹ siê strony
+A¿ do ziemi, jak gdyby wybijaæ pok³ony.
+Je¿eli siê przybli¿¹ albo siê spotkaj¹,
+Ani mówi¹ do siebie, ani siê witaj¹,
+G³êboko zadumani, w sobie pogr¹¿eni.
+84
+Hrabia widzia³ w nich obraz elizejskich cieni,
+Które chocia¿ boleœciom, troskom niedostêpne,
+B³¹kaj¹ siê spokojne, ciche, lecz posêpne.
+Któ¿ by zgadn¹³, ¿e owi, tak ma³o ruchomi,
+Owi milcz¹cy ludzie - s¹ nasi znajomi?
+Sêdziowscy towarzysze! z hucznego œniadania
+Wyszli na uroczysty obrzêd grzybobrania.
+Jako ludzie rozs¹dni, umiej¹ miarkowaæ
+Mowy i ruchy swoje, aby je stosowaæ
+W ka¿dej okolicznoœci do miejsca i czasu.
+Dlatego, nim ruszyli za Sêdzi¹ do lasu,
+Wziêli postawy tudzie¿ ubiory odmienne:
+S³u¿¹ce do przechadzki opoñcze p³ócienne,
+Którymi os³aniaj¹ po wierzchu kontusze,
+A na g³owy s³omiane wdziali kapelusze,
+St¹d biali wygl¹daj¹ jak czyscowe dusze.
+M³odzie¿ tak¿e przebrana, oprocz Telimeny
+I kilku po francusku chodz¹cych.
+Tej sceny
+Hrabia nie poj¹³, nie zna³ wiejskiego zwyczaju,
+Wiêc zdziwiony nieŸmiernie bieg³ pêdem do gaju.
+Grzybów by³o w bród: ch³opcy bior¹ krasnolice,
+Tyle w pieœniach litewskich s³awione l i s i c e,
+Co s¹ god³em panieñstwa, bo czerw ich nie zjada,
+I dziwna; ¿aden owad na nich nie usiada.
+Panienki za wysmuk³ym goni¹ b o r o w i k i e m,
+85
+Którego pieœñ nazywa grzybów pó³kownikiem.
+Wszyscy dybi¹ na r y d z a; ten wzrostem skromniejszy
+I mniej s³awny w piosenkach, za to najsmaczniejszy,
+Czy œwie¿y, czy solony, czy jesiennej pory,
+Czy zim¹. Ale Wojski zbiera³ m u c h o m o r y.
+Inne pospólstwo grzybów pogardzone w braku
+Dla szkodliwoœci albo niedobrego smaku,
+Lecz nie s¹ bez u¿ytku: one zwierza pas¹
+I gniazdem s¹ owadów, i gajów okras¹.
+Na zielonym obrusie ³¹k jako szeregi
+Naczyñ sto³owych stercz¹: tu z kr¹g³ymi brzegi
+S u r o j a d k i srebrzyste, ¿ó³te i czerwone,
+Niby czareczki ro¿nem winem nape³nione;
+K o Ÿ l a k, jak przewrocone kubka dno wypuk³e,
+L e j k i, jako szampañskie kieliszki wysmuk³e,
+B i e 1 a k i kr¹g³e, bia³e, szerokie i p³askie,
+Jakby mlekiem nalane fili¿anki saskie,
+I kulista, czarniawym py³kiem nape³niona
+P u r c h a w k a, jak pieprzniczka - zaœ innych imiona
+Znane tylko w zajêczym lub wilczym jêzyku,
+Od ludzi nie ochrzczone; a jest ich bez liku.
+Ni wilczych, ni zajêczych nikt dotkn¹æ nie raczy,
+A kto schyla siê ku nim, gdy b³¹d swój obaczy,
+Zagniewany, grzyb z³amie albo nog¹ kopnie;
+Tak szpec¹c trawê, czyni bardzo nieroztropnie.
+Telimena ni wilczych, ni ludzkich nie zbiera.
+Roztargniona, znudzona, doko³a spoziera
+86
+Z g³ow¹ w górê zadart¹. Wiêc pan Rejent w gniewie
+Mówi³ o niej, ¿e grzybów szuka³a na drzewie;
+Asesor j¹ z³oœliwiej równa³ do samicy,
+Która miejsca na gniazdo szuka w okolicy.
+Jako¿ zda³a siê szukaæ samotnoœci, ciszy,
+Oddala³a siê z wolna od swych towarzyszy
+I sz³a lasem na wzgórek pochy³o wynios³y,
+Ocieniony, bo drzewa gêœciej na nim ros³y.
+W œrodku szarza³ siê kamieñ; strumieñ spod kamienia
+Szumia³, tryska³ i zaraz, jakby szuka³ cienia,
+Chowa³ siê miêdzy gêste i wysokie zio³a,
+Które wod¹ pojone buja³y doko³a;
+Tam ów bystry swawolnik, spowijany w trawy
+I liœciem podes³any, bez ruchu, bez wrzawy,
+Niewidzialny i ledwie dos³yszany szepce,
+Jako dzieciê krzykliwe z³o¿one w kolebce,
+Gdy matka nad nim zwi¹¿e firanki majowe
+I liœcia makowego nasypie pod g³owê.
+Miejsce piêkne i ciche; tu siê czêsto schrania
+Telimena, zowi¹c je Œ w i ¹ t y n i ¹ d u m a n i a.
+Stan¹wszy nad strumieniem, rzuci³a na trawnik
+Z ramion swój szal powiewny, czerwony jak krwawnik,
+I podobna p³ywaczce, która do k¹pieli
+Zimnej schyla siê, nim siê zanurzyæ oœmieli,
+Klêknê³a i powoli chyli³a siê bokiem;
+Wreszcie, jakby porwana koralu potokiem,
+Upad³a nañ i ca³a wzd³u¿ siê rozpostar³a,
+87
+£okcie na trawie, skronie na d³oniach opar³a,
+Z g³ow¹ w dó³ sk³onion¹; na dole, u g³owy,
+B³ysn¹³ francuskiej ksi¹¿ki papier welinowy;
+Nad alabastrowymi stronicami ksiêgi
+Wi³y siê czarne pukle i ró¿owe wstêgi.
+W szmaragdzie bujnych traw, na krwawnikowym szalu,
+W sukni d³ugiej, jak gdyby w pow³oce koralu,
+Od której odbija³ siê w³os z jednego koñca,
+Z drugiego czarny trzewik, po bokach b³yszcz¹ca
+Œnie¿n¹ poñczoszk¹, chustk¹, bia³oœci¹ r¹k, lica,
+Wydawa³a siê z dala jak pstra g¹sienica,
+Gdy wpe³Ÿnie na zielony liœæ klonu.
+Niestety!
+Wszystkie tego obrazu wdziêki i zalety
+Darmo czeka³y znawców; nikt nie zwa¿a³ na nie,
+Tak mocno zajmowa³o wszystkich grzybobranie.
+Tadeusz przecie¿ zwa¿a³ i w bok strzela³ okiem,
+I nie œmiej¹c iœæ prosto, przysuwa³ siê bokiem.
+Jak strzelec, gdy w ruchomej ga³êzistej szopie
+Usiad³szy na dwóch ko³ach podje¿d¿a na dropie,
+Albo na siewki id¹c, przy koniu siê kryje,
+Strzelbê z³o¿y na siodle lub pod koñsk¹ szyjê,
+Niby to bronê w³óczy, niby jedzie miedz¹,
+A coraz siê przybli¿a, kêdy ptaki siedz¹:
+Tak skrada³ siê Tadeusz.
+Sêdzia czaty zmiesza³
+I przeci¹wszy mu drogê, do Ÿród³a poœpiesza³.
+88
+Z wiatrem igra³y bia³e po³y szarafana
+I wielka chustka w pasie koñcem uwi¹zana;
+S³omiany, podwi¹zany kapelusz od ruchu
+Nag³ego chwia³ siê z wiatrem jako liœæ ³opuchu,
+Spadaj¹c to na barki, to znowu na oczy;
+W rêku ogromna laska: tak pan Sêdzia kroczy.
+Schyliwszy siê i rêce obmywszy w strumieniu,
+Usiad³ przed Telimen¹ na wielkim kamieniu
+I wspar³szy siê obur¹cz na ga³kê s³oniow¹
+Trzciny ogromnej, z tak¹ ozwa³ siê przemow¹:
+„Widzi Aœæka, od czasu jak tu u nas goœci
+Tadeuszek, niema³o mam niespokojnoœci;
+Jestem bezdzietny, stary; ten dobry ch³opczyna
+Wszak to moja na œwiecie pociecha jedyna,
+Przysz³y dziedzic fortunki mojej. Z ³aski nieba
+Zostawiê mu kês niez³y szlacheckiego chleba;
+Ju¿ mu te¿ czas obmyœleæ los, postanowienie;
+Ale zwa¿aj no Aœæka moje utrapienie!
+Wiesz, ¿e pan Jacek, brat mój, Tadeusza ociec,
+Dziwny cz³owiek, zamiarów jego trudno dociec:
+Nie chce wracaæ do kraju, Bóg wie gdzie siê kryje,
+Nawet nie chce synowi oznajmiæ, ¿e ¿yje,
+A ci¹gle nim zarz¹dza. Naprzód w legijony
+Chcia³ go posy³aæ; by³em okropnie zmartwiony.
+Potem zgodzi³ siê przecie, by w domu pozosta³
+I ¿eby siê o¿eni³. Ju¿byæ ¿ony dosta³;
+Partyjê upatrzy³em; nikt z obywateli
+Nie wyrówna z imienia ani z parenteli
+89
+Podkomorzemu; jego starsza córka Anna
+Jest na wydaniu, piêkna i posa¿na panna.
+Chcia³em zagaiæ”.
+Na to Telimena zblad³a,
+Z³o¿y³a ksi¹¿kê, wsta³a nieco i usiad³a.
+„Jak mamê kocham - rzek³a - czy to, Panie Bracie,
+Jest w tym sens jaki? Czy wy Boga w sercu macie?
+To myœlisz Tadeusza zostaæ dobrodziejem,
+Jeœli m³odego ch³opca zrobisz grykosiejem!
+Œwiat mu zawi¹¿esz! Wierz mi, kl¹æ was kiedyœ bêdzie!
+Zakopaæ taki talent w lasach i na grzêdzie!
+Wierz mi, ile pozna³am, pojêtne to dzieciê,
+Warto, ¿eby na wielkim przetar³o siê œwiecie;
+Dobrze Brat zrobi, gdy go do stolicy wyœle;
+Na przyk³ad do Warszawy? lub wie Brat, co myœlê,
+¯eby do Peterburka? Ja pewnie tej zimy
+Pojadê tam dla sprawy; razem u³o¿ymy,
+Co zrobiæ z Tadeuszem; znam tam wiele osób,
+Mam wp³ywy: to najlepszy kreacyi sposób.
+Za m¹ pomoc¹ znajdzie wstêp w najpierwsze domy,
+A kiedy bêdzie wa¿nym osobom znajomy,
+Dostanie urz¹d, order; wtenczas niech porzuci
+S³u¿bê, je¿eli zechce, niech do domu wróci,
+Maj¹c ju¿ i znaczenie, i znajomoœæ œwiata.
+I có¿ Brat myœli o tem?”
+„Ju¿ci, w m³ode lata -
+Rzek³ Sêdzia - nieŸle ch³opcu trochê siê przewietrzyæ,
+Obejrzeæ siê na œwiecie, miêdzy ludŸmi przetrzeæ.
+90
+Ja za m³odu niema³o œwiata objecha³em:
+By³em w Piotrkowie, w Dubnie, to za trybuna³em
+Jad¹c jako palestrant, to w³asne swe sprawy
+Forytuj¹c, jeŸdzi³em nawet do Warszawy.
+Cz³ek niema³o skorzysta³! Chcia³bym i synowca
+Wys³aæ pomiêdzy ludzie, prosto jak wêdrowca,
+Jak czeladnika, który terminuje lata,
+A¿eby naby³ trochê znajomoœci œwiata.
+Nie dla rang ni orderów! Proszê uni¿enie,
+Ranga moskiewska, order, có¿ to za znaczenie?
+Który¿ to z dawnych panów, ba, nawet dzisiejszych,
+Miêdzy szlacht¹ w powiecie nieco zamo¿niejszych,
+Dba o podobne fraszki? Przecie¿ s¹ w estymie
+U ludzi, bo szanujem w nich ród, dobre imiê
+Albo urz¹d, lecz ziemski, przyznany wyborem
+Obywatelskim, nie zaœ czyimœ tam faworem”.
+Telimena przerwa³a: „Jeœli Brat tak myœli,
+Tem lepiej, wiêc go jako woja¿era wyœlij”.
+„Widzi Siostra - rzek³ Sêdzia, skrobi¹c smutnie g³owê -
+Chcia³bym bardzo, có¿, kiedy mam trudnoœci nowe!
+Pan Jacek nie wypuszcza z opieki swej syna
+I przys³a³ mi tu w³aœnie na kark bernardyna
+Robaka, który przyby³ z tamtej strony Wis³y;
+Przyjaciel brata, wszystkie wie jego zamys³y;
+A wiêc o Tadeusza ju¿ wyrzekli losie
+I chc¹, by siê o¿eni³, aby poj¹³ Zosiê,
+Wychowankê Waæ Pani; oboje dostan¹,
+Oprocz fortunki mojej, z ³aski Jacka wiano
+91
+W kapita³ach; wiesz Aœæka, ¿e ma kapita³y,
+I z ³aski jego mam te¿ fundusz prawie ca³y,
+Ma wiêc prawo rozrz¹dzaæ. - Aœæka pomyœl o tem,
+¯eby siê to zrobi³o z najmniejszym k³opotem.
+Trzeba ich z sob¹ poznaæ. Prawda, bardzo m³odzi,
+Szczególnie Zosia ma³a, lecz to nic nie szkodzi;
+Czas by ju¿ Zoœkê wreszcie wydobyæ z zamkniêcia,
+Bo wszakci to ju¿ pono wyrasta z dzieciêcia”.
+Telimena, zdziwiona i prawie wylêk³a,
+Podnosi³a siê coraz, na szalu uklêk³a;
+Zrazu s³ucha³a pilnie, potem d³oni ruchem
+Przeczy³a, rêk¹ ¿wawo wstrz¹saj¹c nad uchem,
+Odpêdzaj¹c jak owad nieprzyjemne s³owa
+Na powrót w usta mówcy.
+„A! a! to rzecz nowa!
+Czy to Tadeuszowi szkodzi, czy nie szkodzi -
+Rzek³a z gniewem - s¹dŸ o tem sam Waæ Pan Dobrodziéj!
+Mnie nic do Tadeusza; sami o nim radŸcie,
+Zróbcie go ekonomem lub w karczmie posadŸcie,
+Niech szynkuje lub z lasu niech Ÿwierzynê znosi;
+Z nim sobie, co zechcecie, zróbcie; lecz do Zosi?
+Co Waæ Pañstwu do Zosi? Ja jej rêk¹ rz¹dzê,
+Ja sama! ¯e pan Jacek dawa³ by³ pieni¹dze
+Na wychowanie Zosi i ¿e jej wyznaczy³
+Ma³¹ pensyjkê roczn¹, wiêcej przyrzec raczy³,
+Toæ jej jeszcze nie kupi³. Zreszt¹ Pañstwo wiecie,
+I dot¹d jeszcze o tem wiadomo na œwiecie,
+¯e hojnoœæ Pañstwa dla nas nie jest bez powodu...
+Winni coœ Soplicowie dla Horeszków rodu”.
+92
+(Tej czêœci mowy Sêdzia s³ucha³ z niepojêtem
+Pomieszaniem, ¿a³oœci¹ i widocznym wstrêtem;
+Jakby lêka³ siê reszty mowy, g³owê sk³oni³
+I rêk¹ potakuj¹c, mocno siê zap³oni³).
+Telimena koñczy³a: „By³am jej piastunk¹,
+Jestem krewn¹, jedyn¹ Zosi opiekunk¹.
+Nikt oprócz mnie nie bêdzie myœli³ o jej szczêœciu”.
+„A jeœli ona szczêœcie znajdzie w tym zamêœciu? -
+Rzek³ Sêdzia wzrok podnosz¹c. - Jeœli Tadeuszka
+Podoba?” - „Czy podoba? To na wierzbie gruszka;
+Podoba, nie podoba, a to mi rzecz wa¿na!
+Zosia nie bêdzie, prawda, partyja posa¿na;
+Ale te¿ nie jest z lada wsi, lada szlachcianka,
+Idzie z Jaœnie Wielmo¿nych, jest Wojewodzianka,
+Rodzi siê z Horeszkówny; ma³¿onka dostanie!
+Staraliœmy siê tyle o jej wychowanie!
+Chybaby tu zdzicza³a”.
+Sêdzia pilnie s³ucha³,
+Patrz¹c w oczy; zda³o siê, ¿e siê udobrucha³,
+Bo rzek³ dosyæ weso³o: „No, to i có¿ robiæ!
+Bóg widzi, szczerze chcia³em interesu dobiæ;
+Tylko bez gniewu; jeœli Aœæka siê nie zgodzi,
+Aœæka ma prawo; smutno - gniewaæ siê nie godzi;
+Radzi³em, bo brat kaza³; nikt tu nie przymusza;
+Gdy Aœæka rekuzuje pana Tadeusza,
+Odpisujê Jackowi, ¿e nie z mojej winy
+Nie dojd¹ Tadeusza z Zosi¹ zarêczyny.
+Teraz sam bêdê radziæ; pono z Podkomorzym
+Zagaimy swatostwo i resztê u³o¿ym”.
+93
+Przez ten czas Telimena ostyg³a z zapa³u:
+„Ja nic nie rekuzujê, Braciszku, poma³u!
+Sam mówi³eœ, ¿e jeszcze za wczeœnie, zbyt m³odziRozpatrzmy siê, czekajmy, nic to nie zaszkodzi,
+Poznajmy z sob¹ pañstwa m³odych; bêdziem zwa¿aæ;
+Nie mo¿na szczêœcia drugich tak na traf nara¿aæ.
+Ostrzegam tylko wczeœnie: niech Brat Tadeusza
+Nie namawia, kochaæ siê w Zosi nie przymusza,
+Bo serce nie jest s³uga, nie zna, co to pany,
+I nie da siê przemoc¹ okuwaæ w kajdany”.
+Zaczem Sêdzia, powstawszy, odszed³ zamyœlony;
+Pan Tadeusz z przeciwnej przybli¿y³ siê strony.
+Udaj¹c, ¿e szukanie grzybów tam go zwabia;
+W tym¿e kierunku z wolna posuwa siê Hrabia.
+Hrabia podczas Sêdziego sporów z Telimen¹
+Sta³ za drzewami, mocno zdziwiony t¹ scen¹;
+Doby³ z kieszeni papier i o³ówek, sprzêty,
+Które zawsze mia³ z sob¹, i na pieñ wygiêty
+Rozpi¹wszy kartkê, widaæ, ¿e obraz malowa³,
+Mówi¹c sam z sob¹: „Jakbyœ umyœlnie grupowa³:
+Ten na g³azie, ta w trawie, grupa malownicza!
+G³owy charakterowe! Z kontrastem oblicza”.
+Podchodzi³, wstrzymywa³ siê, lornetkê przeciera³,
+Oczy chustk¹ obwiewa³ i coraz spoziera³:
+„Mia³o¿by to cudowne, œliczne widowisko
+Zgin¹æ albo zmieniæ siê, gdy podejdê blisko?
+94
+Ten aksamit traw bêdzie¿ to mak i botwinie?
+W nimfie tej czy¿ obaczê jak¹ ochmistrzyniê?”
+Choæ Hrabia Telimenê ju¿ dawniej widywa³
+W domu Sêdziego, w którym dosyæ czêsto bywa³,
+Lecz ma³o j¹ uwa¿a³; zadziwi³ siê zrazu,
+Rozeznaj¹c w niej model swojego obrazu.
+Miejsca piêknoœæ, postawy wdziêk i gust ubrania
+Zmieni³y j¹, zaledwie by³a do poznania.
+W oczach œwieci³y jeszcze niezagas³e gniewy;
+Twarz o¿ywiona wiatru œwie¿emi powiewy,
+Sporem z Sêdzi¹ i nag³ym przybyciem m³odzieñców,
+Nabra³a mocnych, ¿ywszych ni¿ zwykle rumieñców.
+„Pani - rzek³ Hrabia - racz mej œmia³oœci darowaæ,
+Przychodzê i przepraszaæ, i razem dziêkowaæ.
+Przepraszaæ, ¿e jej kroków œledzi³em ukradkiem,
+I dziêkowaæ, ¿e by³em jej dumania œwiadkiem;
+Tyle j¹ obrazi³em! Winienem jej tyle!
+Przerwa³em chwilê dumañ: winienem ci chwile
+Natchnienia! chwile b³ogie! potêpiaj cz³owieka,
+Ale sztukmistrz twojego przebaczenia czeka!
+Na wielem siê odwa¿y³, na wiêcej odwa¿ê!
+S¹dŸ!” - tu ukl¹k³ i poda³ swoje peiza¿e.
+Telimena s¹dzi³a malowania proby
+Tonem grzecznej, lecz sztukê znaj¹cej osoby;
+Sk¹pa w pochwa³y, lecz nie szczêdzi³a zachêtu:
+„Brawo - rzek³a - winszujê, niema³o talentu.
+95
+Tylko Pan nie zaniedbuj; szczególniej potrzeba
+Szukaæ piêknej natury! O, szczêœliwe nieba
+Krajów w³oskich! ró¿owe Cezarów ogrody!
+Wy, klasyczne Tyburu spadaj¹ce wody
+I straszne Pauzylipu skaliste wydro¿e!
+To, Hrabio, kraj malarzów! U nas, ¿al siê Bo¿e!
+Dziecko muz, w Soplicowie oddane na mamki,
+Umrze pewnie. Mój Hrabio, oprawiê to w ramki
+Albo w album umieszczê do rysunków zbiorku,
+Które zewsz¹d skupia³am: mam ich dosyæ w biorku”.
+Zaczêli wiêc rozmowê o niebios b³êkitach,
+Morskich szumach i wiatrach wonnych, i ska³ szczytach,
+Mieszaj¹c tu i ówdzie, podró¿nych zwyczajem,
+Œmiech i ur¹ganie siê nad ojczystym krajem.
+A przecie¿ woko³o nich ci¹gnê³y siê lasy
+Litewskie! tak powa¿ne i tak pe³ne krasy! -
+Czeremchy oplatane dzikich chmielów wieñcem,
+Jarzêbiny ze œwie¿ym pasterskim rumieñcem,
+Leszczyna jak menada z zielonemi ber³y,
+Ubranemi, jak w grona, w orzechowe per³y;
+A ni¿ej dziatwa lesna: g³óg w objêciu kalin,
+O¿yna czarne usta tul¹ca do malin.
+Drzewa i krzewy liœæmi wziê³y siê za rêce
+Jak do tañca staj¹ce panny i m³odzieñce
+Wko³o pary ma³¿onków. Stoi poœród grona
+Para, nad ca³¹ leœn¹ gromad¹ wzniesiona
+Wysmuk³oœci¹ kibici i barwy powabem:
+96
+Brzoza bia³a, kochanka, z ma³¿onkiem swym grabem.
+A dalej, jakby starce na dzieci i wnuki,
+Patrz¹ siedz¹c w milczeniu: tu sêdziwe buki,
+Tam matrony topole i mchami brodaty
+D¹b, w³o¿ywszy piêæ wieków na swój kark garbaty,
+Wspiera siê, jak na grobów po³amanych s³upach,
+Na dêbów, przodków swoich, skamienia³ych trupach.
+Pan Tadeusz krêci³ siê nudz¹c niepoma³u
+D³ug¹ rozmow¹, w której nie móg³ braæ udzia³u;
+A¿ gdy zaczêto s³awiæ cudzoziemskie gaje
+I wyliczaæ z kolei wszystkich drzew rodzaje:
+Pomarañcze, cyprysy, oliwki, migda³y,
+Kaktusy, aloesy, mahonie, sanda³y,
+Cytryny, bluszcz, orzechy w³oskie, nawet figi,
+Wys³awiaj¹c ich kszta³ty, kwiaty i ³odygi -
+Tadeusz nie przestawa³ d¹saæ siê i z¿ymaæ,
+Na koniec nie móg³ d³u¿ej od gniewu wytrzymaæ.
+By³ on prostak, lecz umia³ czuæ wdziêk przyrodzenia
+I patrz¹c w las ojczysty rzek³, pe³en natchnienia:
+„Widzia³em w botanicznym wileñskim ogrodzie
+Owe s³awione drzewa rosn¹ce na wschodzie
+I na po³udniu, w owej piêknej w³oskiej ziemi;
+Które¿ równaæ siê mo¿e z drzewami naszemi?
+Czy aloes z d³ugiemi jak konduktor pa³ki?
+Czy cytryna, karlica z z³ocistemi ga³ki,
+Z liœciem lakierowanym, krótka i pêkata
+Jako kobieta ma³a, brzydka, lecz bogata?
+97
+Czy zachwalony cyprys, d³ugi, cienki, chudy,
+Co zdaje siê byæ drzewem nie smutku, lecz nudy?
+Mówi¹, ¿e bardzo smutnie wygl¹da na grobie:
+Jest to jak lokaj Niemiec we dworskiej ¿a³obie,
+Nie œmiej¹cy r¹k podnieœæ ani g³owy skrzywiæ,
+Aby siê etykiecie niczem nie sprzeciwiæ.
+Czy¿ nie piêkniejsza nasza poczciwa brzezina,
+Która jako wieœniaczka, kiedy p³acze syna,
+Lub wdowa mê¿a, rêce za³amie, roztoczy
+Po ramionach do ziemi strumienie warkoczy!
+Niema z ¿alu, postaw¹ jak wymownie szlocha!
+Czemu¿ Pan Hrabia, jeœli w malarstwie siê kocha,
+Nie maluje drzew naszych, poœród których siedzi?
+Prawdziwie, bêd¹ z Pana ¿artowaæ s¹siedzi,
+¯e mieszkaj¹c na ¿yznej litewskiej równinie,
+Malujesz tylko jakieœ ska³y i pustynie”.
+„Przyjacielu! - rzek³ Hrabia - piêkne przyrodzenie
+Jest form¹, t³em, materi¹, a dusz¹ natchnienie,
+Które na wyobraŸni unosi siê skrzyd³ach,
+Poleruje siê gustem, wspiera na prawid³ach.
+Nie doœæ jest przyrodzenia, nie dosyæ zapa³u,
+Sztukmistrz musi ulecieæ w sfery idea³u!
+Nie wszystko, co jest piêkne, wymalowaæ da siê!
+Dowiesz siê o tem wszystkim z ksi¹¿ek w swoim czasie.
+Co siê tycze malarstwa: do obrazu trzeba
+Punktów widzenia, grupy, ansemblu i nieba,
+Nieba w³oskiego! St¹d te¿ w kunszcie peiza¿ów
+98
+W³ochy by³y, s¹, bêd¹, ojczyzn¹ malarzów.
+St¹d te¿, oprócz Brejgela, lecz nie Van der Helle,
+Ale peiza¿ysty (bo s¹ dwaj Brejgele),
+I oprócz Ruisdala, na ca³ej pó³nocy
+Gdzie¿ by³ peiza¿ysta który pierwszej mocy?
+Niebios, niebios potrzeba!”
+„Nasz malarz Or³owski -
+Przerwa³a Telimena - mia³ gust Soplicowski.
+(Trzeba wiedzieæ, ¿e to jest Sopliców choroba,
+¯e im oprócz Ojczyzny nic siê nie podoba).
+Or³owski, który ¿ycie strawi³ w Peterburku,
+S³awny malarz (mam jego kilka szkiców w biórku),
+Mieszka³ tu¿ przy Cesarzu, na dworze, jak w raju,
+A nie uwierzy Hrabia, jak têskni³ po kraju!
+Lubi³ ci¹gle wspominaæ swej m³odoœci czasy,
+Wys³awia³ wszystko w Polszcze: ziemiê, niebo, lasy...”
+„I mia³ rozum! - zawo³a³ Tadeusz z zapa³em. -
+Te Pañstwa niebo w³oskie, jak o niem s³ysza³em,
+B³êkitne, czyste, wszak to jak zamarz³a woda!
+Czy¿ nie piêkniejsze stokroæ wiatr i niepogoda?
+U nas doœæ g³owê podnieœæ: ile¿ to widoków!
+Ile¿ scen i obrazów z samej gry ob³oków!
+Bo ka¿da chmura inna: na przyk³ad jesienna
+Pe³Ÿnie jak ¿ó³w leniwa, ulew¹ brzemienna
+I z nieba a¿ do ziemi spuszcza d³ugie smugi
+Jak rozwite warkocze, to s¹ deszczu strugi;
+Chmura z gradem jak balon szybko z wiatrem leci,
+Kr¹g³a, ciemnob³êkitna, w œrodku ¿ó³to œwieci,
+99
+Szum wielki s³ychaæ wko³o. Nawet te codzienne,
+Patrzcie Pañstwo, te bia³e chmurki, jak odmienne!
+Zrazu jak stada dzikich gêsi lub ³abêdzi,
+A z ty³u wiatr jak soko³ do kupy je pêdzi;
+Œciskaj¹ siê, grubiej¹, rosn¹, nowe dziwy!
+Dostaj¹ krzywych karków, rozpuszczaj¹ grzywy,
+Wysuwaj¹ nóg rzêdy i po niebios sklepie
+Przelatuj¹ jak tabun rumaków po stepie:
+Wszystkie bia³e jak srebro, zmiesza³y siê - nagle
+Z ich karków rosn¹ maszty, z grzyw szerokie ¿agle,
+Tabun zmienia siê w okrêt i wspaniale p³ynie
+Cicho, z wolna, po niebios b³êkitnej równinie!”
+Hrabia i Telimena pogl¹dali w górê;
+Tadeusz jedn¹ rêk¹ pokaza³ im chmurê,
+A drug¹ œcisn¹³ z lekka r¹czkê Telimeny.
+Kilka ju¿ up³ynê³o minut cichej sceny;
+Hrabia roz³o¿y³ papier na swym kapeluszu
+I wydoby³ o³ówek. Wtem przykry dla uszu
+Odezwa³ siê dzwon dworski i zaraz œród lasu
+Cichego pe³no by³o krzyku i ha³asu.
+Hrabia kiwn¹wszy g³ow¹ rzek³ powa¿nym tonem:
+„Tak to na œwiecie wszystko los zwyk³ koñczyæ dzwonem.
+Rachunki myœli wielkiej, plany wyobraŸni,
+Zabawki niewinnoœci, uciechy przyjaŸni,
+Wylania siê serc czu³ych! - gdy œpi¿ z dala ryknie,
+Wszystko miesza siê, zrywa, m¹ci siê i niknie!”
+Tu obróciwszy czu³y wzrok ku Telimenie:
+100
+„Có¿ zostaje?” - a ona mu rzek³a: „Wspomnienie!”
+I chc¹c Hrabiego nieco u³agodziæ smutek,
+Poda³a mu urwany kwiatek niezabudek.
+Hrabia go uca³owa³ i na pierœ przyœpila³;
+Tadeusz z drugiej strony krzak ziela rozchyla³,
+Widz¹c, ¿e siê ku niemu tem zielem przewija
+Coœ bia³ego: by³a to r¹czka jak lilija;
+Pochwyci³ j¹, ca³owa³ i usty po cichu
+Uton¹³ w niej jak pszczo³a w liliji kielichu;
+Uczu³ na ustach zimno; znalaz³ klucz i bia³y
+Papier w tr¹bkê zwiniony, by³ to listek ma³y;
+Porwa³, schowa³ w kieszenie, nie wie, co klucz znaczy,
+Lecz mu to owa bia³a kartka wyt³umaczy.
+Dzwon wci¹¿ dzwoni³, i echem z g³êbi cichych lasów
+Odezwa³o siê tysi¹c krzyków i ha³asów;
+Odg³os to by³ szukania i nawo³ywania,
+Has³o zakoñczonego na dziœ grzybobrania.
+Odg³os nie smutny wcale ani pogrzebowy,
+Jak siê Hrabiemu zda³o, owszem, obiadowy.
+Dzwon ten, w ka¿de po³udnie krzycz¹cy z poddasza,
+Goœci i czeladŸ domu na obiad zaprasza:
+Tak by³o w dawnych licznych dworach we zwyczaju
+I zosta³o siê w domu Sêdziego.
+Wiêc z gaju
+Wychodzi³a gromada nios¹ca krobeczki,
+Koszyki, uwi¹zane koñcami chusteczki,
+Pe³ne grzybów; a panny w jednym rêku nios³y,
+Jako wachlarz zwiniony, b o r o w i k rozros³y,
+101
+W drugim zwi¹zane razem, jakby polne kwiatki,
+O p i e ñ k i i rozlicznej barwy s u r o j a d k i:
+Wojski mia³ m u c h o m o r a. Z pró¿nemi przychodzi
+Rêkami Telimena, z ni¹ panicze m³odzi.
+Goœcie weszli w porz¹dku i stanêli ko³em.
+Podkomorzy najwy¿sze bra³ miejsce za sto³em;
+Z wieku mu i z urzêdu ten zaszczyt nale¿y.
+Id¹c k³ania³ siê starcom, damom i m³odzie¿y;
+Obok sta³ Kwestarz; Sêdzia tu¿ przy Bernardynie.
+Bernardyn zmówi³ krótki pacierz po ³acinie,
+Podano w kolej wódkê, zaczem wszyscy siedli
+I cho³odziec litewski milczkiem ¿wawo jedli.
+Obiadowano ciszej, ni¿ siê zwykle zdarza;
+Nikt nie gada³ pomimo wezwañ gospodarza.
+Strony bior¹ce udzia³ w wielkiej o psów zwadzie
+Myœli³y o jutrzejszej walce i zak³adzie;
+Myœl wielka zwykle usta do milczenia zmusza.
+Telimena, mówi¹ca wci¹¿ do Tadeusza,
+Musia³a ku Hrabiemu nieraz siê odwróciæ,
+Nawet na Asesora nieraz okiem rzuciæ:
+Tak ptasznik patrzy w sid³o, kêdy szczyg³y zwabia,
+I razem w pastkê wróbla. Tadeusz i Hrabia,
+Obadwa radzi z siebie, obadwa szczêœliwi,
+Oba pe³ni nadziei, wiêc nie gadatliwi.
+Hrabia na kwiatek dumne opuszcza³ wejrzenie,
+A Tadeusz ukradkiem spoziera³ w kieszenie,
+Czy ów kluczyk nie uciek³; rêk¹ nawet chwyta³
+102
+I krêci³ kartkê, której dot¹d nie przeczyta³.
+Sêdzia Podkomorzemu wêgrzyna, szampana
+Dolewa³, s³u¿y³ pilnie, œciska³ za kolana,
+Ale do rozmawiania z nim nie mia³ ochoty
+I widaæ, ¿e czu³ jakieœ tajemne k³opoty.
+Przemija³y w milczeniu talerze i dania;
+Przerwa³ nareszcie nudny tok obiadowania
+Goœæ niespodziany, szybko wpadaj¹c - gajowy;
+Nie zwa¿a³ nawet, ¿e czas w³aœnie obiadowy,
+Podbieg³ do Pana; widaæ z postawy i z miny,
+¯e wa¿nej i niezwyk³ej jest pos³em nowiny.
+Ku niemu oczy ca³e zwróci³o zebranie;
+On, odetchn¹wszy nieco, rzek³: „NiedŸwiedŸ, Mospanie!”
+Resztê wszyscy odgadli: ¿e zwierz z m a t e c z n i k a
+Wyszed³, ¿e w Zaniemeñsk¹ Puszczê siê przemyka,
+¯e go trzeba wnet œcigaæ, wszyscy wraz uznali,
+Choæ ani siê radzili, ani namyœlali.
+Spóln¹ myœl widaæ by³o z uciêtych wyrazów,
+Z gestów ¿ywych, z wydanych rozlicznych rozkazów,
+Które, wychodz¹c t³umnie, razem z ust tak wielu,
+D¹¿y³y przecie¿ wszystkie do jednego celu.
+„Na wieœ! - zawo³a³ Sêdzia - hej! konno, setnika!
+Jutro na brzask ob³awa, lecz na ochotnika;
+Kto wyst¹pi z oszczepem, temu z robocizny
+Wytr¹ciæ dwa szarwarki i piêæ dni pañszczyzny”.
+103
+„W skok - krzykn¹³ Podkomorzy - okulbaczyæ siw¹,
+Dobiec w cwa³ do mojego dworu; wzi¹æ co ¿ywo
+Dwie pjawki, które w ca³ej okolicy s³yn¹:
+Pies zowie siê Sprawnikiem, a suka Strapczyn¹;
+Zakneblowaæ im pyski, zawi¹zaæ je w miechu
+I przystawiæ je tutaj konno dla poœpiechu”.
+„Wañka!” - krzykn¹³ na ch³opca Asesor po rusku -
+„Tasak mój Sanguszowski poci¹gn¹æ na brusku,
+Wiesz, tasak, co od Ksiêcia mia³em w podarunku;
+Pas opatrzyæ, czy kula jest w ka¿dym ³adunku”.
+„Strzelby - krzyknêli wszyscy - mieæ na pogotowiu!”
+Asesor wo³a³ ci¹gle: „O³owiu, o³owiu!
+Formê do kul mam w torbie”. „Do ksiêdza plebana
+Daæ znaæ - doda³ pan Sêdzia - ¿eby jutro z rana
+Mszê mia³ w kaplicy lesnej; króciochna oferta
+Za myœliwych, msza zwyk³a œwiêtego Huberta”.
+Po wydanych rozkazach nasta³o milczenie;
+Ka¿dy duma³ i rzuca³ doko³a wejrzenie,
+Jak gdyby kogoœ szuka³; z wolna wszystkich oczy
+Sêdziwa twarz Wojskiego ci¹gnie i jednoczy:
+Znak to by³, ¿e szukaj¹ na przysz³¹ wyprawê
+Wodza i ¿e Wojskiemu oddaj¹ bu³awê.
+Wojski powsta³, zrozumia³ towarzyszów wolê
+I uderzywszy rêk¹ powa¿nie po stole,
+Poci¹gn¹³ z³ocistego z zanadrza ³añcuszka,
+Na którym wisia³ gruby zegarek jak gruszka:
+„Jutro - rzek³ - pó³ do pi¹tej przy lesnej kaplicy
+Stawi¹ siê bracia strzelcy, wiara ob³awnicy”.
+104
+Rzek³ i ruszy³ od sto³u, za nim szed³ gajowy;
+Oni obmyœliæ maj¹ i urz¹dziæ ³owy.
+Tak wodze gdy na jutro bitwê zapowiedz¹,
+¯o³nierze po obozie broñ czyszcz¹ i jedz¹
+Lub na p³aszczach i siod³ach œpi¹ pró¿ni k³opotu,
+A wodze wœród cichego dumaj¹ namiotu.
+Przerwa³ siê obiad, dzieñ zszed³ na kowaniu koni,
+Karmieniu psów, zbieraniu i czyszczeniu broni;
+U wieczerzy zaledwie kto przysiad³ do sto³a;
+Nawet strona Kusego z partyj¹ Soko³a
+Przesta³a dawnym wielkim zatrudniaæ siê sporem:
+Pobrawszy siê pod rêce Rejent z Asesorem
+Wyszukuj¹ o³owiu. Reszta, spracowana,
+Sz³a spaæ wczeœnie, a¿eby przebudziæ siê z rana.
+105
+KSIÊGA CZWARTA
+DYPLOMATYKA I £OWY
+Treœæ:
+Zjawisko w papilotach budzi Tadeusza - Za póŸne postrze¿enie omy³ki -
+Karczma - Emisariusz - Zrêczne u¿ycie tabakiery zwraca dyskusjê na
+w³aœciw¹ drogê - Matecznik - NiedŸwiedŸ- Niebezpieczeñstwo Tadeusza i
+Hrabiego - Trzy strza³y - Spór Sagalasówki z Sanguszkówk¹,
+rozstrzygniony na stronê jednorurki Horeszkowskiej - Bigos - Wojskiego
+powieœæ o pojedynku Dowejki z Domejk¹, przerwana szczuciem kota -
+Koniec powieœci o Dowejce i Domejce.
+106
+Rówienniki litewskich wielkich kniaziów, drzewa
+Bia³owie¿y, Œwitezi, Ponar, Kuszelewa!
+Których cieñ spada³ niegdyœ na koronne g³owy
+GroŸnego Witenesa, wielkiego Mindowy
+I Giedymina, kiedy na Ponarskiej górze,
+Przy ognisku myœliwskiem, na niedŸwiedziej skórze
+Le¿a³, s³uchaj¹c pieœni m¹drego Lizdejki,
+A Wiliji widokiem i szumem Wilejki
+Uko³ysany, marzy³ o wilku ¿elaznym;
+I zbudzony, za bogów rozkazem wyraŸnym
+Zbudowa³ miasto Wilno, które w lasach siedzi
+Jak wilk poœrodku ¿ubrów, dzików i niedŸwiedzi.
+Z tego to miasta Wilna, jak z rzymskiej wilczycy,
+Wyszed³ Kiejstut i Olgierd, i Olgierdowicy,
+Równie myœliwi wielcy jak s³awni rycerze,
+Czyli wroga œcigali, czyli dzikie Ÿwierze.
+Sen myœliwski nam odkry³ tajnie przysz³ych czasów,
+¯e Litwie trzeba zawsze ¿elaza i lasów.
+Knieje! do was ostatni przyje¿d¿a³ na ³owy,
+Ostatni król, co nosi³ ko³pak Witoldowy,
+Ostatni z Jagiellonów wojownik szczêœliwy
+I ostatni na Litwie monarcha myœliwy.
+Drzewa moje ojczyste! jeœli Niebo zdarzy,
+Bym wróci³ was ogl¹daæ, przyjaciele starzy,
+Czyli was znajdê jeszcze? czy dot¹d ¿yjecie?
+Wy, ko³o których niegdyœ pe³za³em jak dzieciê...
+Czy ¿yje wielki Baublis, w którego ogromie
+Wiekami wydr¹¿onym, jakby w dobrym domie,
+107
+Dwunastu ludzi mog³o wieczerzaæ za sto³em?
+Czy kwitnie gaj Mendoga pod farnym koœcio³em?
+I tam na Ukrainie, czy siê dot¹d wznosi
+Przed Ho³owiñskich domem, nad brzegami Rosi,
+Lipa tak rozroœniona, ¿e pod jej cieniami
+Stu m³odzieñców, sto panien sz³o w taniec parami?
+Pomniki nasze! ile¿ co rok was po¿era
+Kupiecka lub rz¹dowa, moskiewska siekiera!
+Nie zostawia przytu³ku ni leœnym œpiewakom,
+Ni wieszczom, którym cieñ wasz tak mi³y jak ptakom.
+Wszak lipa czarnolaska, na g³os Jana czu³a,
+Tyle rymów natchnê³a! Wszak ów d¹b gadu³a
+Kozackiemu wieszczowi tyle cudów œpiewa!
+Ja ile¿ wam winienem, o domowe drzewa!
+B³ahy strzelec, uchodz¹c szyderstw towarzyszy
+Za chybion¹ Ÿwierzynê, ile¿ w waszej ciszy
+Upolowa³em dumañ, gdy w dzikim ostêpie
+Zapomniawszy o ³owach usiad³em na kêpie,
+A ko³o mnie srebrzy³ siê tu mech siwobrody,
+Zlany granatem czarnej zgniecionej jagody,
+A tam siê czerwieni³y wrzosiste pagórki,
+Strojne w brusznice jakby w koralów paciorki.
+Woko³o by³a ciemnoœæ; ga³êzie u góry
+Wisia³y jak zielone, gêste, niskie chmury;
+Wicher kêdyœ nad sklepem szala³ nieruchomym,
+Jêkiem, szumami, wyciem, ³oskotami, gromem:
+Dziwny, odurzaj¹cy ha³as! Mnie siê zda³o,
+¯e tam nad g³ow¹ morze wisz¹ce szala³o.
+108
+Na dole jak ruiny miast: tu wywrot dêbu
+Wysterka z ziemi na kszta³t ogromnego zrêbu;
+Na nim oparte, jak œcian i kolumn ob³amy:
+Tam ga³êziste k³ody, tu wpó³ zgni³e tramy,
+Ogrodzone parkanem traw. W œrodek tarasu
+Zajrzeæ straszno, tam siedz¹ gospodarze lasu:
+Dziki, niedŸwiedzie, wilki; u wrót le¿¹ koœci
+Na pó³ zgryzione jakichœ nieostro¿nych goœci.
+Czasem wymkn¹ siê w górê przez trawy zielenie,
+Jakby dwa wodotryski, dwa rogi jelenie
+I mignie miêdzy drzewa Ÿwierz ¿ó³tawym pasem,
+Jak promieñ, kiedy wpad³szy gaœnie miêdzy lasem.
+I znowu cichoœæ w dole. Dziêcio³ na jedlinie
+Stuka z lekka i dalej odlatuje, ginie,
+Schowa³ siê, ale dziobem nie przestaje pukaæ,
+Jak dziecko, gdy schowane wo³a, by go szukaæ.
+Bli¿ej siedzi wiewiórka, orzech w ³apkach trzyma,
+Gryzie go; zawiesi³a kitkê nad oczyma,
+Jak pióro nad szyszakiem u kirasyjera;
+Chocia¿ tak os³oniona, doko³a spoziera;
+Dostrzeg³szy goœcia, skacze gajów tanecznica
+Z drzew na drzewa, miga siê jako b³yskawica;
+Na koniec w niewidzialny otwór pnia przepada,
+Jak wracaj¹ca w drzewo rodzime dryjada.
+Znowu cicho.
+Wtem ga³¹Ÿ wstrz¹s³a siê tr¹cona
+I pomiêdzy jarzêbin rozsunione grona
+109
+Kraœniejsze od jarzêbin zajaœnia³y lica:
+To jagód lub orzechów zbieraczka, dziewica;
+W krobeczce z prostej kory podaje zebrane
+Bruœnice œwie¿e jako jej usta rumiane;
+Obok m³odzieniec idzie, leszczynê nagina,
+Chwyta w lot migaj¹ce orzechy dziewczyna.
+Wtem us³yszeli odg³os rogów i psów granie:
+Zgaduj¹, ¿e siê ku nim zbli¿a polowanie,
+I pomiêdzy ga³êzi gêstwê, pe³ni trwogi,
+Zniknêli nagle z oczu jako leœne bogi.
+W Soplicowie ruch wielki; lecz ni psów ha³asy,
+Ani r¿¹ce rumaki, skrzypi¹ce kolasy,
+Ni odg³os tr¹b daj¹cych has³o polowania
+Nie mog³y Tadeusza wyci¹gn¹æ z pos³ania;
+Ubrany pad³szy w ³ó¿ko, spa³ jak bobak w norze.
+Nikt z m³odzie¿y nie myœli³ szukaæ go po dworze;
+Ka¿dy sob¹ zajêty œpieszy³, gdzie kazano;
+O towarzyszu sennym ca³kiem zapomniano.
+On chrapa³. S³oñce w otwór, co œród okienicy
+Wyr¿niêty by³ w kszta³t serca, wpad³o do ciemnicy
+S³upem ognistym, prosto sennemu na czo³o;
+On jeszcze chcia³ zadrzemaæ i krêci³ siê wko³o,
+Chroni¹c siê blasku: nagle us³ysza³ stuknienie,
+Przebudzi³ siê; weso³e by³o przebudzenie.
+Czu³ siê rzeŸwym jak ptaszek, z lekkoœci¹ oddycha³,
+Czu³ siê szczêœliwym, sam siê do siebie uœmiécha³:
+110
+Myœl¹c o wszystkiem, co mu wczora siê zdarzy³o,
+Rumieni³ siê i wzdycha³, i serce mu bi³o.
+Spojrza³ w okno, o dziwy! w promieni przezroczu,
+W owem sercu, b³yszcza³o dwoje jasnych oczu,
+Szeroko otworzonych, jak zwykle wejrzenie,
+Kiedy z jasnoœci dziennej przedziera siê w cienie;
+Ujrza³ i ma³¹ r¹czkê, niby wachlarz z boku
+Nadstawion¹ ku s³oñcu dla ochrony wzroku;
+Palce drobne, zwrócone na œwiat³o ró¿owe,
+Czerwieni³y siê na wskroœ jakby rubinowe;
+Usta widzia³ ciekawe, roztulone nieco,
+I z¹bki, co jak per³y œród koralów œwiec¹,
+I lica, choæ od s³oñca zas³aniane d³oni¹
+Ró¿ow¹, same ca³e jak ró¿e siê p³oni¹.
+Tadeusz spa³ pod oknem; sam ukryty w cieniu,
+Le¿¹c na wznak, cudnemu dziwi³ siê zjawieniu
+I mia³ je tu¿ nad sob¹, ledwie nie na twarzy;
+Nie wiedzia³, czy to jawa, czyli mu siê marzy
+Jedna z tych mi³ych, jasnych twarzyczek dziecinnych,
+Które pomnim widziane we œnie lat niewinnych.
+Twarzyczka schyli³a siê - ujrza³, dr¿¹c z bojaŸni
+I radoœci, niestety! ujrza³ najwyraŸniej,
+Przypomnia³, pozna³ w³os ów krótki, jasnoz³oty,
+W drobne, jako œnieg bia³e, zwity papiloty
+Niby srebrzyste str¹czki, co od s³oñca blasku
+Œwieci³y jak korona na œwiêtych obrazku.
+111
+Zerwa³ siê; i widzenie zaraz ulecia³o
+Przestraszone ³oskotem; czeka³, nie wraca³o!
+Tylko us³ysza³ znowu trzykrotne stukanie
+I s³owa: „Niech Pan wstaje, czas na polowanie,
+Pan zaspa³”. Skoczy³ z ³ó¿ka i obu rêkami
+Pchn¹³ okienicê, ¿e a¿ trzas³a zawiasami
+I rozwar³szy siê w obie uderzy³a œciany;
+Wyskoczy³, patrzy³ wko³o zdumiony, zmieszany,
+Nic nie widzia³, nie dostrzeg³ niczyjego œladu.
+Niedaleko od okna by³ parkan od sadu,
+Na nim chmielowe liœcie i kwieciste wieñce
+Chwia³y siê; czy je lekkie potr¹ci³y rêce?
+Czy wiatr ruszy³? Tadeusz d³ugo patrzy³ na nie,
+Nie œmia³ iœæ w ogród; tylko wspar³ siê na parkanie,
+Oczy podnios³ i z palcem do ust przyciœnionym
+Kaza³ sam sobie milczeæ, by s³owem kwapioném
+Nie rozerwa³ myœlenia; potem w czo³o stuka³,
+Niby do wspomnieñ dawnych, uœpionych w niem, puka³,
+Na koniec, gryz¹c palce, do krwi siê zadrasn¹³
+I na ca³y g³os: „Dobrze, dobrze mi tak!” wrzasn¹³.
+We dworze, gdzie przed chwil¹ tyle by³o krzyku,
+Teraz pusto i g³ucho jak na mogilniku:
+Wszyscy ruszyli w pole; Tadeusz nadstawi³
+Uszu i rêce do nich jak tr¹bki przyprawi³,
+S³ucha³, a¿ mu wiatr przynios³, wiej¹cy od puszczy,
+Odg³osy tr¹b i wrzaski poluj¹cej t³uszczy.
+112
+Koñ Tadeusza w stajni czeka³ osiod³any,
+Wzi¹³ wiêc flintê, skoczy³ nañ i jak opêtany
+Pêdzi³ ku karczmom, które sta³y przy kaplicy,
+Kêdy mieli siê rankiem zebraæ ob³awnicy.
+Dwie chyli³y siê karczmy po dwóch stronach drogi,
+Oknami wzajem sobie gro¿¹c jako wrogi;
+Stara nale¿y z prawa do zamku dziedzica,
+Now¹ na z³oœæ zamkowi postawi³ Soplica.
+W tamtej, jak w swym dziedzictwie, rej wodzi³ Gerwazy,
+W tej najwy¿sze za sto³em bra³ miejsce Protazy.
+Nowa karczma nie by³a ciekawa z pozoru.
+Stara wedle dawnego zbudowana wzoru,
+Który by³ wymyœlony od tyryjskich cieœli,
+A potem go ¯ydowie po œwiecie roznieœli:
+Rodzaj architektury obcym budowniczym
+Wcale nie znany; my go od ¯ydów dziedziczym.
+Karczma z przodu jak korab, z ty³u jak œwi¹tynia:
+Korab, istna Noego czworogranna skrzynia,
+Znany dziœ pod prostackiem nazwiskiem stodo³y;
+Tam ró¿ne s¹ zwierzêta: konie, krowy, wo³y,
+Kozy brodate; w górze zaœ ptastwa gromady
+I p³azów choæ po parze, s¹ te¿ i owady.
+Czêœæ tylnia, na kszta³t dziwnej œwi¹tyni stawiona,
+Przypomina z pozoru ów gmach Salomona,
+Który pierwsi æwiczeni w budowañ rzemieœle
+Hiramscy na Syjonie wystawili cieœle.
+113
+¯ydzi go naœladuj¹ dot¹d we swych szko³ach,
+A szko³ rysunek widny w karczmach i stodo³ach.
+Dach z dranic i ze s³omy, œpiczasty, zadarty,
+Pogiêty jako ko³pak ¿ydowski podarty.
+Ze szczytu wytryskaj¹ kru¿ganku krawêdzie,
+Oparte na drewnianym licznych kolumn rzêdzie;
+Kolumny, co jak wielkie architektów dziwo,
+Trwa³e, chocia¿ wpó³ zgni³e i stawione krzywo
+Jako w wie¿y pizañskiej, nie pod³ug modelów
+Greckich, bo s¹ bez podstaw i bez kapitelów.
+Nad kolumnami bieg¹ wpó³okr¹g³e ³uki,
+Tak¿e z drzewa, gotyckiej naœladowstwo sztuki.
+Z wierzchu ozdoby sztuczne, nie rylcem, nie d³utem,
+Ale zrêcznie ciesielskim wyrzezane sklutem,
+Krzywe jak szabasowych ramiona œwieczników;
+Na koñcu wisz¹ ga³ki, cóœ na kszta³t guzików,
+Które ¯ydzi modl¹c siê na ³bach zawieszaj¹
+I które po swojemu „cyces” nazywaj¹.
+S³owem, z daleka karczma chwiej¹ca siê, krzywa,
+Podobna jest do ¯yda, gdy siê modl¹c kiwa:
+Dach jak czapka, jak broda strzecha roztrzêœniona.
+Œciany dymne i brudne jak czarna opona,
+A z przodu rzeŸba sterczy jak cyces na czole.
+W œrodku karczmy jest podzia³ jak w ¿ydowskiej szkole:
+Jedna czêœæ, pe³na izbic ciasnych i pod³u¿nych,
+S³u¿y dla dam wy³¹cznie i panów podró¿nych;
+W drugiej ogromna sala. Ko³o ka¿dej œciany
+Ci¹gnie siê wielono¿ny stó³, w¹ski, drewniany,
+114
+Przy nim sto³ki, choæ ni¿sze, podobne do sto³a
+Jako dzieci do ojca.
+Na sto³kach doko³a
+Siedzia³y ch³opy, ch³opki, tudzie¿ szlachta drobna,
+Wszyscy rzêdem; ekonom sam siedzia³ z osobna.
+Po rannej mszy z kaplicy, ¿e by³a niedziela,
+Zabawiæ siê i wypiæ przyszli do Jankiela.
+Przy ka¿dym ju¿ szumia³a siw¹ wódk¹ czarka,
+Ponad wszystkimi z butl¹ biega³a szynkarka.
+W œrodku arendarz Jankiel, w d³ugim a¿ do ziemi
+Szarafanie, zapiêtym haftkami srebrnemi,
+Rêkê jedn¹ za czarny pas jedwabny wsadzi³,
+Drug¹ powa¿nie sobie siw¹ brodê g³adzi³;
+Rzucaj¹c wko³o okiem, rozkazy wydawa³,
+Wita³ wchodz¹cych goœci, przy siedz¹cych stawa³
+Zagajaj¹c rozmowê, k³ótliwych zagadza³,
+Lecz nie s³u¿y³ nikomu, tylko siê przechadza³.
+¯yd stary i powszechnie znany z poczciwoœci,
+Od lat wielu dzier¿awi³ karczmê, a nikt z w³oœci,
+Nikt ze szlachty nie zaniós³ nañ skargi do dworu;
+O có¿ skar¿yæ? Mia³ trunki dobre do wyboru,
+Rachowa³ siê ostró¿nie, lecz bez oszukañstwa,
+Ochoty nie zabrania³, nie cierpia³ pijañstwa,
+Zabaw wielki mi³oœnik: u niego wesele
+I chrzciny obchodzono; on w ka¿d¹ niedzielê
+Kaza³ do siebie ze wsi przychodziæ muzyce,
+Przy której i basetla by³a, i kozice.
+115
+Muzykê zna³, sam s³yn¹³ muzycznym talentem;
+Z cymba³ami, narodu swego instrumentem,
+Chadza³ niegdyœ po dworach i graniem zdumiewa³,
+I pieœniami, bo biegle i uczenie œpiewa³.
+Chocia¿ ¯yd, dosyæ czyst¹ mia³ polsk¹ wymowê,
+Szczególniej zaœ polubi³ pieœni narodowe;
+Przywozi³ mnóstwo z ka¿dej za Niemen wyprawy
+Ko³omyjek z Halicza, mazurów z Warszawy;
+Wieœæ, nie wiem czyli pewna, w ca³ej okolicy
+G³osi³a, ¿e on pierwszy przywióz³ z zagranicy
+I upowszechni³ wówczas w tamecznym powiecie
+Ow¹ piosenkê, s³awn¹ dziœ na ca³ym œwiecie,
+A któr¹ po raz pierwszy na ziemi Auzonów
+Wygra³y W³ochom polskie tr¹by legijonów.
+Talent spiewania bardzo na Litwie pop³aca,
+Jedna mi³oœæ u ludzi, ws³awia i wzbogaca:
+Jankiel zrobi³ maj¹tek; syt zysków i chwa³y,
+Zawiesi³ dŸwiêcznostronne na scianie cymba³y;
+Osiad³szy z dzieæmi w karczmie, zatrudnia³ siê szynkiem,
+Przy tem w pobliskiem mieœcie by³ te¿ podrabinkiem,
+A zawsze mi³ym wszêdzie goœciem i domowym
+Doradc¹; zna³ siê dobrze na handlu zbo¿owym,
+Na wicinnym: potrzebna jest znajomoœæ taka
+Na wsi. - Mia³ tak¿e s³awê dobrego Polaka.
+On pierwszy zgodzi³ k³ótnie, czêsto nawet krwawe,
+Miêdzy dwiema karczmami: obie wzi¹³ w dzier¿awê;
+Szanowali go równie i starzy stronnicy
+Horeszkowscy, i s³udzy sêdziego Soplicy.
+116
+On sam powagê umia³ utrzymaæ nad groŸnym
+Klucznikiem horeszkowskim i k³otliwym WoŸnym;
+Przed Jankielem t³umili dawne swe urazy:
+Gerwazy groŸny rêk¹, jêzykiem Protazy.
+Gerwazego nie by³o; ruszy³ na ob³awê,
+Nie chc¹c, aby tak wa¿n¹ i trudn¹ wyprawê
+Odby³ sam Hrabia, m³ody i niedoœwiadczony;
+Poszed³ wiêc z nim dla rady tudzie¿ dla obrony.
+Dziœ miejsce Gerwazego, najdalsze od progu,
+Miêdzy dwiema ³awami, w samym karczmy rogu,
+Zwane p o k u c i e m, kwestarz ksi¹dz Robak zajmowa³;
+Jankiel go tam posadzi³; widaæ, ¿e szanowa³
+Wysoko Bernardyna, bo skoro dostrzega³
+Ubytek w jego szklance, natychmiast podbiega³
+I rozkaza³ dolewaæ lipcowego miodu.
+S³ychaæ, ¿e z Bernardynem znali siê za m³odu
+Kêdyœ tam w cudzych krajach. Robak czêsto chadza³
+Noc¹ do karczmy, tajnie z ¯ydem siê naradza³
+O wa¿nych rzeczach; s³ychaæ by³o, ¿e towary
+Ksi¹dz przemyca³, lecz potwarz ta niegodna wiary.
+Robak wsparty na stole wpó³g³oœno rozprawia³,
+T³um szlachty go otacza³ i uszy nadstawia³,
+I nosy ku ksiêdzowskiej chyli³ tabakierze;
+Brano z niej i kicha³a szlachta jak mo¿dzerze.
+117
+„Reverendissime - rzek³ kichn¹wszy Sko³uba -
+To mi tabaka, co to idzie a¿ do czuba;
+Od czasu jak nos dŸwigam (tu g³asn¹³ nos d³ugi),
+Takiej nie za¿ywa³em (tu kichn¹³ raz drugi);
+Prawdziwa bernardynka, pewnie z Kowna rodem,
+Miasta s³awnego w œwiecie tabak¹ i miodem.
+By³em tam lat ju¿...” Robak przerwa³ mu: „Na zdrowie
+Wszystkim Waszmoœciom, moi Moœciwi Panowie!
+Co siê tabaki tyczy, hem, ona pochodzi
+Z dalszej strony, ni¿ myœli Sko³uba dobrodziéj;
+Pochodzi z Jasnej Góry; ksiê¿a paulinowie
+Tabakê tak¹ robi¹ w mieœcie Czêstochowie,
+Kêdy jest obraz tylu cudami ws³awiony
+Bogarodzicy Panny, Królowej Korony
+Polskiej; zowi¹ j¹ dot¹d i Ksiê¿n¹ Litewsk¹!
+Koronêæ jeszcze dot¹d piastuje królewsk¹,
+Lecz na Litewskiem Ksiêstwie teraz syzma siedzi!”
+„Z Czêstochowy? - rzek³ Wilbik. - By³em tam w spowiedzi,
+Kiedym na odpust chodzi³ lat temu trzydzieœcie;
+Czy to prawda, ¿e Francuz goœci teraz w mieœcie,
+¯e chce koœcio³ rozwalaæ i skarbiec zabierze,
+Bo to wszystko w Litewskim stoi Kuryjerze?”
+„Nieprawda - rzek³ Bernardyn - nie! Pan Najjaœniejszy,
+Napoleon, katolik jest najprzyk³adniejszy;
+Wszak go papie¿ namaœci³, ¿yj¹ z sob¹ w zgodzie
+I nawracaj¹ ludzi w francuskim narodzie,
+Który siê trochê popsu³; prawda, z Czêstochowy
+Oddano wiele srebra na skarb narodowy
+Dla Ojczyzny, dla Polski; sam Pan Bóg tak ka¿e.
+118
+Skarbcem Ojczyzny zawsze s¹ Jego o³tarze;
+Wszak¿e w Warszawskiem Ksiêstwie mamy sto tysiêcy
+Wojska polskiego, mo¿e wkrótce bêdzie wiêcéj,
+A któ¿ wojsko op³aci? Czy nie wy, Litwini?
+Wy tylko grosz dajecie do moskiewskiej skrzyni”.
+„Kat by da³! - krzykn¹³ Wilbik - gwa³tem od nas bior¹”.
+„Oj, Dobrodzieju!” - ch³opek ozwa³ siê z pokor¹,
+Pok³oniwszy siê ksiêdzu i skrobi¹c siê w g³owê -
+Ju¿ to szlachcie, to jeszcze bieda przez po³owê,
+Lecz nas dr¹ jak na ³yka”. - „Cham! - Sko³uba krzykn¹³. -
+G³upi, tobieæ to lepiej, tyœ, ch³opie, przywykn¹³
+Jak wêgórz do odarcia; lecz nam u r o d z o n y m,
+Nam wielmo¿nym, do z³otych swobód wzwyczajonym!
+Ach, bracia! Wszak to dawniej szlachcic na zagrodzie...
+(„Tak, tak! - krzyknêli wszyscy - rowny wojewodzie!”)
+Dziœ nam szlachectwa przecz¹, ka¿¹ nam drabowaæ
+Papiery i szlachectwa papierem probowaæ”.
+„Jeszcze Waszeci mniejsza - zawo³a³ Juraha. -
+Waszeæ z pradziadów ch³opów uszlachcony szlacha;
+Ale ja, z kniaziów! pytaæ u mnie o patenta,
+Kiedym zosta³ szlachcicem? Sam Bóg to pamiêta!
+Niechaj Moskal w las idzie pytaæ siê dêbiny,
+Kto jej da³ patent rosn¹æ nad wszystkie krzewiny”.
+„Kniaziu! - rzek³ ¯agiel - œwieæ Waœæ baki lada komu,
+Tu znajdziesz pono mitry i w niejednym domu”.
+„Waœæ ma krzy¿ w herbie - wo³a³ Podhajski - to skryta
+Aluzyja, ¿e w rodzie bywa³ neofita.
+„Fa³sz! - przerwa³ Birbasz. -
+Przecie¿ ja z tatarskich hrabiów
+119
+Pochodzê, a mam krzy¿e nad herbem Korabiów”.
+„Poraj - krzykn¹³ Mickiewicz - z mitr¹ w polu z³otem,
+Herb ksi¹¿êcy; Stryjkowski gêsto pisze o tem”.
+Zaczem wielkie powsta³y w ca³ej karczmie szmery;
+Ksi¹dz Bernardyn uciek³ siê do swej tabakiery,
+W kolej czêstowa³ mówców; gwar zaraz ucichn¹³,
+Ka¿dy za¿y³ przez grzecznoœæ i kilkakroæ kichn¹³;
+Bernardyn korzystaj¹c z przerwy mówi³ dalej:
+„Oj, wielcy ludzie od tej tabaki kichali!
+Czy uwierzycie Pañstwo, ¿e z tej tabakiery
+Pan jenera³ D¹browski za¿y³ razy cztery?”
+„D¹browski?” - zawo³ali. - „Tak, tak, on jenera³;
+By³em w obozie, gdy on Gdañsk Niemcom odbiera³;
+Mia³ coœ pisaæ; boj¹c siê, a¿eby nie zasn¹³,
+Za¿y³, kichn¹³, dwakroæ miê po ramieniu klasn¹³:
+<<Ksiê¿e Robaku - mówi³ - Ksiê¿e Bernardynie,
+Obaczymy siê w Litwie, mo¿e nim rok minie;
+Powiedz Litwinom, niech mnie czekaj¹ z tabak¹
+Czêstochowsk¹, nie biorê innej, tylko tak¹>>„.
+Mowa ksiêdza wzbudzi³a takie zadziwienie,
+Tak¹ radoœæ, ¿e ca³e huczne zgromadzenie
+Milcza³o chwilê; potem na pó³ ciche s³owa
+Powtarzano: „Tabaka z Polski? Czêstochowa?
+D¹browski? z ziemi w³oskiej?” A¿ na koniec razem,
+Jakby myœl z myœl¹, wyraz sam zbieg³ siê z wyrazem,
+Wszyscy jedynog³oœnie, jak na dane has³o,
+120
+Krzyknêli: „D¹browskiego!” Wszystko razem wrzas³o,
+Wszystko siê uœcisnê³o: ch³op z tatarskim hrabi¹,
+Mitra z Krzy¿em, Poraje z Gryfem i z Korabi¹;
+Zapomnieli wszystkiego, nawet Bernardyna,
+Tylko œpiewali krzycz¹c: „Wódki, miodu, wina!”
+D³ugo siê przys³uchiwa³ ksi¹dz Robak piosence,
+Na koniec chcia³ j¹ przerwaæ; wzi¹³ w obiedwie rêce
+Tabakierkê, kichaniem melodyjê zmiesza³
+I nim siê nastroili, tak mówiæ poœpiesza³:
+„Chwalicie m¹ tabakê, Moœci Dobrodzieje,
+Obaczcie¿, co siê wewn¹trz tabakierki dzieje”.
+Tu, wycieraj¹c chustk¹ zabrudzone denko,
+Pokaza³ malowan¹ armij¹, malenk¹
+Jak rój much; w œrodku jeden cz³owiek na rumaku,
+Wielki jako chrz¹szcz, siedzia³, pewnie wódz orszaku;
+Spina³ konia, jak gdyby chcia³ skakaæ w niebiosa,
+Jednê rêkê na cuglach, drug¹ mia³ u nosa.
+„Przypatrzcie siê - rzek³ Robak - tej groŸnej postawie;
+Zgadnijcie, czyja? - Wszyscy patrzyli ciekawie.-
+Wielki to cz³owiek, cesarz, ale nie Moskali,
+Ich carowie tabaki nigdy nie bierali”.
+„Wielki cz³owiek - zawo³a³ Cydzik - a w kapocie?
+Ja myœli³em, ¿e wielcy ludzie chodz¹ w z³ocie,
+Bo u Moskalów lada jenera³, Mospanie,
+To tak œwieci siê w z³ocie jak szczupak w szafranie”.
+„Ba - przerwa³ Rymsza - przecie¿ widzia³em za m³odu
+Koœciuszkê, Naczelnika naszego narodu:
+Wielki cz³owiek! A chodzi³ w krakowskiej sukmanie,
+121
+To jest czamarce”. - „W jakiej czamarce, Mospanie? -
+Odpar³ Wilbik. - To przecie¿ zwano taratatk¹”.
+„Ale tamta z frêzlami, ta jest ca³kiem g³adk¹” -
+Krzykn¹³ Mickiewicz. Zatem wszczyna³y siê swary
+O ró¿nych taratatki kszta³tach i czamary.
+Przemyœlny Robak, widz¹c, ¿e siê tak rozpryska
+Rozmowa, j¹³ j¹ znowu zbieraæ do ogniska,
+Do swojej tabakiery; czêstowa³, kichali,
+¯yczyli sobie zdrowia, on rzecz ci¹gn¹³ daléj:
+„Gdy cesarz Napoleon w potyczce za¿ywa
+Raz po raz, to znak pewny, ¿e bitwê wygrywa;
+Na przyk³ad pod Austerlic: Francuzi tak stali
+Z armatami, a na nich bieg³a æma Moskali;
+Cesarz patrzy³ i milcza³. Co Francuzi strzel¹,
+To Moskale pó³kami jak trawa siê œciel¹.
+Pó³k za pó³kiem cwa³owa³ i spada³ z kulbaki;
+Co pó³k spadnie, to Cesarz za¿yje tabaki;
+A¿ w koñcu Aleksander, ze swoim braciszkiem
+Konstantym i z niemieckim cesarzem Franciszkiem,
+W nogi z pola; wiêc Cesarz, widz¹c, ¿e po walce,
+Spojrza³ na nich, zaœmia³ siê i otrz¹sn¹³ palce.
+Otó¿, jeœli kto z Panów, coœcie tu przytomni,
+Bêdzie w wojsku Cesarza, niech to sobie wspomni”.
+„Ach! - zawo³a³ Sko³uba. - Mój Ksiê¿e Kwestarzu!
+Kiedy¿ to bêdzie! Wszak to ile w kalendarzu
+Jest œwi¹t, na ka¿de œwiêto Francuzów nam wró¿¹!
+Wygl¹da cz³ek, wygl¹da, a¿ siê oczy mru¿¹,
+122
+A Moskal jak nas trzyma³, tak trzyma za szyjê.
+Pono nim s³oñce wnidzie, rosa oczy wyje”.
+„Mospanie - rzek³ Bernardyn - babska rzecz narzekaæ,
+A ¿ydowska rzecz rêce za³o¿ywszy czekaæ,
+Nim kto w karczmê zajedzie i do drzwi zapuka.
+Z Napoleonem pobiæ Moskalów nie sztuka.
+Ju¿ci on Szwabom skórê trzy razy wym³óci³,
+Brzydkie Prusactwo zdepta³. Anglików wyrzuci³
+Het za morze, Moskalom zapewne wygodzi;
+Ale co st¹d wyniknie, wie Asan Dobrodziéj?
+Oto szlachta litewska wtenczas na koñ wsiêdzie
+I szable weŸmie, kiedy biæ siê z kim nie bêdzie;
+Napoleon, sam wszystkich pobiwszy, nareszcie
+Powie: <<Obejdê siê ja bez was, kto jesteœcie?>>
+Wiêc nie doœæ goœcia czekaæ, nie doœæ i zaprosiæ,
+Trzeba czeladkê zebraæ i sto³y pownosiæ,
+A przed uczt¹ potrzeba dom oczyœciæ z œmieci;
+Oczyœciæ dom, powtarzam, oczyœciæ dom, dzieci!”
+Nast¹pi³o milczenie, potem g³osy w t³umie:
+„Jak¿e to dom oczyœciæ? Jak to Ksi¹dz rozumie?
+Ju¿ci my wszystko zrobim, na wszystko gotowi,
+Tylko niech Ksi¹dz Dobrodziej jaœniej siê wys³owi”.
+Ksi¹dz pogl¹da³ za okno, przerwawszy rozmowê;
+Ujrza³ coœ ciekawego, z okna wytkn¹³ g³owê,
+Po chwili rzek³ powstaj¹c: „Dziœ czasu nie mamy,
+Potem o tem obszerniej z sob¹ pogadamy;
+123
+Jutro bêdê dla sprawy w powiatowem mieœcie
+I do Waszmoœciów z drogi zajadê po kweœcie”.
+„Niech te¿ do Niehrymowa Ksi¹dz na nocleg zd¹¿y -
+Rzek³ Ekonom - rad bêdzie Ksiêdzu pan Chor¹¿y;
+Wszak¿e na Litwie stare powiada przys³owie:
+Szczêœliwy cz³owiek, jako kwestarz w Niehrymowie!”
+„I do nas - rzek³ Zubkowski - wst¹p, je¿eli ³aska;
+Znajdzie siê tam pó³sztuczek p³ótna, mas³a faska,
+Baran lub krówka; wspomnij, Ksiê¿e, na te s³owa:
+Szczêœliwy cz³owiek, trafi³ jak ksi¹dz do Zubkowa”.
+„I do nas” - rzek³ Sko³uba. - „Do nas” - Terajewicz,
+„¯aden bernardyn g³odny nie wyszed³ z Pucewicz”.
+Tak ca³a szlachta proœb¹ i obietnicami
+Przeprowadza³a ksiêdza; on ju¿ by³ za drzwiami.
+On ju¿ pierwej przez okno ujrza³ Tadeusza,
+Który lecia³ goœciñcem w cwa³, bez kapelusza,
+Z g³ow¹ schylon¹, bladem, posêpnem obliczem,
+A konia ustawicznie bod³ i kropi³ biczem.
+Ten widok bardzo ksiêdza Bernardyna zmiesza³,
+Wiêc za m³odzieñcem kroki szybkiemi poœpiesza³
+Do wielkiej puszczy, która, jako oko siêga,
+Czerni³a siê na ca³ym brzegu widnokrêga.
+Któ¿ zbada³ puszcz litewskich przepastne krainy
+A¿ do samego œrodka, do j¹dra gêstwiny?
+Rybak ledwie u brzegów nawiedza dno morza;
+Myœliwiec kr¹¿y ko³o puszcz litewskich ³o¿a,
+124
+Zna je ledwie po wierzchu, ich postaæ, ich lice,
+Lecz obce mu ich wnêtrzne serca tajemnice;
+Wieœæ tylko albo bajka wie, co siê w nich dzieje.
+Bo gdybyœ przeszed³ bory i podszyte knieje,
+Trafisz w g³êbi na wielki wa³ pniów, k³od, korzeni,
+Obronny trzêsawic¹, tysi¹cem strumieni
+I sieci¹ zielsk zaros³ych, i kopcami mrowisk,
+Gniazdami os, szerszeniów, k³êbami wê¿owisk.
+Gdybyœ i te zapory zmóg³ nadludzkiem mêstwem,
+Dalej spotkaæ siê z wiêkszem masz niebezpieczeñstwem:
+Dalej co krok czyhaj¹, niby wilcze do³y,
+Ma³e jeziorka traw¹ zaros³e na po³y,
+Tak g³êbokie, ¿e ludzie dna ich nie doœledz¹
+(Wielkie jest podobieñstwo, ¿e diab³y tam siedz¹).
+Woda tych studni sklni siê, plamista rdz¹ krwaw¹.
+A z wnêtrza ci¹gle dymi, zion¹c woñ plugaw¹,
+Od której drzewa wko³o trac¹ liœæ i korê;
+£yse, skar³owacia³e, robaczliwe, chore,
+Pochyliwszy konary mchem ko³tunowate
+I pnie garbi¹c brzydkiemi grzybami brodate,
+Siedz¹ woko³o wody jak czarownic kupa
+Grzej¹ca siê nad kot³em, w którym warz¹ trupa.
+Za temi jeziorkami ju¿ nie tylko krokiem,
+Ale daremnie nawet zapuszczaæ siê okiem,
+Bo tam ju¿ wszystko mglistym zakryte ob³okiem,
+Co siê wiecznie ze trzêskich oparzelisk wznosi.
+A za t¹ mg³¹ na koniec (jak wieœæ gminna g³osi)
+125
+Ci¹gnie siê bardzo piêkna, ¿yzna okolica:
+G³ówna królestwa zwierz¹t i roœlin stolica.
+W niej s¹ z³o¿one wszystkich drzew i zió³ nasiona,
+Z których siê rozrastaj¹ na œwiat ich plemiona;
+W niej, jak w arce Noego, z wszelkich zwierz¹t rodu
+Jedna przynajmniej para chowa siê dla p³odu.
+W samym œrodku (jak s³ychaæ) maj¹ swoje dwory:
+Dawny Tur, ¯ubr i NiedŸwiedŸ, puszcz imperatory.
+Oko³o nich na drzewach gnieŸdzi siê Ryœ bystry
+I ¿ar³oczny Rosomak, jak czujne ministry;
+Dalej zaœ, jak podw³adni szlachetni wasale,
+Mieszkaj¹ Dziki, Wilki i £osie rogale.
+Nad g³owami Soko³y i Or³owie dzicy,
+¯yj¹cy z pañskich sto³ów dworscy zausznicy.
+Te pary zwierz¹t g³owne i patryjarchalne,
+Ukryte w j¹drze puszczy, œwiatu niewidzialne,
+Dzieci swe œl¹ dla osad za granicê lasu,
+A sami we stolicy u¿ywaj¹ wczasu;
+Nie gin¹ nigdy broni¹ sieczn¹ ani paln¹,
+Lecz starzy umieraj¹ œmierci¹ naturaln¹.
+Maj¹ te¿ i swój smêtarz, kêdy bliscy œmierci,
+Ptaki sk³adaj¹ pióra, czworonogi sierci.
+NiedŸwiedŸ, gdy zjad³szy zêby, strawy nie prze¿uwa,
+Jeleñ zgrzybia³y, gdy ju¿ ledwie nogi suwa,
+Zaj¹c sêdziwy, gdy mu ju¿ krew w ¿y³ach krzepnie,
+Kruk, gdy ju¿ posiwieje, soko³, gdy oœlepnie,
+Orze³, gdy mu dziób stary tak siê w kab³¹k skrzywi,
+¯e zamkniêty na wieki ju¿ gard³a nie ¿ywi,
+Id¹ na smêtarz. Nawet mniejszy zwierz, raniony
+126
+Lub chory, bie¿y umrzeæ w swe ojczyste strony.
+St¹d to w miejscach dostêpnych, kêdy cz³owiek goœci,
+Nie znajduj¹ siê nigdy martwych zwierz¹t koœci.
+S³ychaæ, ¿e tam w stolicy, miêdzy zwierzêtami
+Dobre s¹ obyczaje, bo rz¹dz¹ siê sami;
+Jeszcze cywilizacj¹ ludzk¹ nie popsuci,
+Nie znaj¹ praw w³asnoœci, która œwiat nasz k³óci,
+Nie znaj¹ pojedynków ni wojennej sztuki.
+Jak ojce ¿y³y w raju, tak dziœ ¿yj¹ wnuki,
+Dzikie i swojskie razem, w mi³oœci i zgodzie,
+Nigdy jeden drugiego nie k¹sa ni bodzie.
+Nawet gdyby tam cz³owiek wpad³, chocia¿ niezbrojny,
+Toby œrodkiem bestyi przechodzi³ spokojny;
+One by nañ patrzy³y tym wzrokiem zdziwienia,
+Jakim w owym ostatnim, szóstym dniu stworzenia
+Ojce ich pierwsze, co siê w ogrójcu gnieŸdzi³y,
+Patrzy³y na Adama, nim siê z nim sk³óci³y.
+Szczêœciem, cz³owiek nie zb³¹dzi do tego ostêpu,
+Bo Trud i Trwoga, i Œmieræ broni¹ mu przystêpu.
+Czasem tylko w pogoni zaciek³e ogary,
+Wpad³szy niebacznie miêdzy bagna, mchy i jary,
+Wnêtrznej ich okropnoœci ra¿one widokiem,
+Uciekaj¹ skowycz¹c, z ob³¹kanym wzrokiem;
+I d³ugo potem, rêk¹ pana ju¿ g³askane,
+Dr¿¹ jeszcze u nóg jego, strachem opêtane.
+Te puszcz sto³eczne, ludziom nie znane tajniki
+W jêzyku swoim strzelcy zowi¹: m a t e c z n i k i.
+127
+G³upi niedŸwiedziu! gdybyœ w mateczniku siedzia³,
+Nigdy by siê o tobie Wojski nie dowiedzia³;
+Ale czyli pasieki zwabi³a ciê wonnoœæ,
+Czy uczu³eœ do owsa dojrza³ego sk³onnoœæ,
+Wyszed³eœ na brzeg puszczy, gdzie siê las przerzedzi³,
+I tam zaraz leœniczy bytnoœæ tw¹ wyœledzi³,
+I zaraz obsaczniki, chytre nas³a³ szpiegi,
+By poznaæ, gdzie popasasz i gdzie masz noclegi;
+Teraz Wojski z ob³aw¹, ju¿ od matecznika
+Postawiwszy szeregi, odwrót ci zamyka.
+Tadeusz siê dowiedzia³, ¿e niema³o czasu
+Ju¿ przesz³o, jak ogary wpad³y w otch³añ lasu.
+Cicho - pró¿no myœliwi natê¿aj¹ ucha;
+Pró¿no, jak najciekawszej mowy, ka¿dy s³ucha
+Milczenia, d³ugo w miejscu nieruchomy czeka;
+Tylko muzyka puszczy gra do nich z daleka.
+Psy nurtuj¹ po puszczy jak pod morzem nurki,
+A strzelcy obróciwszy do lasu dwórurki,
+Patrz¹ Wojskiego: ukl¹k³, ziemiê uchem pyta;
+Jako w twarzy lekarza wzrok przyjacio³ czyta
+Wyrok ¿ycia lub zgonu mi³ej im osoby,
+Tak strzelcy, ufni w sztuki Wojskiego sposoby,
+Topili w nim spojrzenia nadziei i trwogi.
+„Jest! jest!” - wyrzek³ pó³g³osem, zerwa³ siê na nogi.
+On s³ysza³! Oni jeszcze s³uchali - nareszcie
+S³ysz¹: jeden pies wrzasn¹³, potem dwa, dwadzieœcie,
+Wszystkie razem ogary rozpierzchnion¹ zgraj¹
+128
+Do³awiaj¹ siê, wrzeszcz¹, wpadli na trop, graj¹,
+Ujadaj¹: ju¿ nie jest to powolne granie
+Psów goni¹cych zaj¹ca, lisa albo ³anie,
+Lecz wci¹¿ wrzask krótki, czêsty, ucinany, zjad³y;
+To nie na œlad daleki ogary napad³y,
+Na oko goni¹ - nagle usta³ krzyk pogoni,
+Doszli zwierza; wrzask znowu, skowyt; zwierz siê broni
+I zapewne kaleczy: œród ogarów grania
+S³ychaæ coraz to czêœciej jêk psiego konania.
+Strzelcy stali i ka¿dy ze strzelb¹ gotow¹
+Wygi¹³ siê jak ³uk naprzód, z wciœnion¹ w las g³ow¹.
+Nie mog¹ d³u¿ej czekaæ! Ju¿ ze stanowiska
+Jeden za drugim zmyka i w puszczê siê wciska;
+Chc¹ pierwsi spotkaæ zwierza; choæ Wojski ostrzega³,
+Choæ Wojski stanowiska na koniu obiega³,
+Krzycz¹c, ¿e czy kto prostym ch³opem, czy paniczem,
+Je¿eli z miejsca zejdzie, dostanie w grzbiet smyczem,
+Nie by³o rady! Wszyscy pomimo zakazu
+W las pobiegli. Trzy strzelby huknê³y od razu;
+Potem wci¹¿ kanonada, a¿ g³oœniej nad strza³y
+Rykn¹³ niedŸwiedŸ i echem nape³ni³ las ca³y.
+Ryk okropny! boleœci, wœciek³oœci, rozpaczy;
+Za nim wrzask psów, krzyk strzelców, tr¹by doje¿d¿aczy
+Grzmia³y ze œrodka puszczy; strzelcy - ci w las œpiesz¹,
+Tamci kurki odwodz¹, a wszyscy siê ciesz¹,
+Jeden Wojski w ¿a³oœci, krzyczy, ¿e chybiono.
+Strzelcy i ob³awnicy poszli jedn¹ stron¹
+Na prze³aj zwierza, miêdzy ostêpem i puszcz¹;
+129
+A niedŸwiedŸ, odstraszony psów i ludzi t³uszcz¹,
+Zwróci³ siê nazad w miejsca mniej pilnie strze¿one
+Ku polom, sk¹d ju¿ zesz³y strzelcy rozstawione,
+Gdzie tylko pozostali z mnogich ³owczych szyków
+Wojski, Tadeusz, Hrabia, z kilk¹ ob³awników.
+Tu las by³ rzadszy; s³ychaæ z g³êbi ryk, trzask ³omu,
+A¿ z gêstwy, jak z chmur, wypad³ niedŸwiedŸ na kszta³t gromu;
+Wko³o psy goni¹, strasz¹, rw¹; on wsta³ na nogi
+Tylne i spojrza³ wko³o, rykiem strasz¹c wrogi,
+I przedniemi ³apami to drzewa korzenie,
+To pniaki osmalone, to wros³e kamienie
+Rwa³, wal¹c w psów i w ludzi; a¿ wy³ama³ drzewo,
+Krêc¹c nim jak maczug¹ na prawo, na lewo,
+Run¹³ wprost na ostatnich stra¿ników ob³awy:
+Hrabiê i Tadeusza.
+Oni bez obawy
+Stoj¹ w kroku, na Ÿwierza wytknêli flint rury
+Jako dwa konduktory w ³ono ciemnej chmury;
+A¿ oba jednym razem poci¹gnêli kurki
+(Niedoœwiadczeni!), razem zagrzmia³y dwórurki;
+Chybili. NiedŸwiedŸ skoczy³, oni tu¿ utkwiony
+Oszczep jeden chwycili czterema ramiony.
+Wydzierali go sobie; spojrz¹, a¿ tu z pyska
+Wielkiego, czerwonego dwa rzêdy k³ów b³yska
+I ³apa z pazurami ju¿ siê na ³by spuszcza;
+Pobledli, w ty³ skoczyli, i gdzie rzadnie puszcza,
+Zmykali; zwierz za nimi wspi¹³ siê, ju¿ pazury
+Zahacza³, chybi³, podbieg³, wspi¹³ siê znów do góry
+130
+I czarn¹ ³ap¹ siêga³ Hrabiego w³os p³owy.
+Zdar³by mu czaszkê z mozgów jak kapelusz z g³owy,
+Gdy Asesor z Rejentem wyskoczyli z boków,
+A Gerwazy bieg³ z przodu o jakie sto kroków,
+Z nim Robak, choæ bez strzelby - i trzej w jednej chwili
+Jak gdyby na komendê razem wystrzelili.
+NiedŸwiedŸ wyskoczy³ w górê jak kot przed chartami
+I g³ow¹ na dó³ run¹³, i czterma ³apami
+Przewróciwszy siê m³yñcem, cielska krwawe brzemiê
+Wal¹c tu¿ pod Hrabiego, zbi³ go z nóg na ziemiê.
+Jeszcze rycza³, chcia³ jeszcze powstaæ, gdy nañ wsiad³y
+Rozjuszona Strapczyna i Sprawnik zajad³y.
+Natenczas Wojski chwyci³ na taœmie przypiêty
+Swój róg bawoli, d³ugi, cêtkowany, krêty
+Jak w¹¿ boa, obur¹cz do ust go przycisn¹³,
+Wzd¹³ policzki jak baniê, w oczach krwi¹ zab³ysn¹³,
+Zasun¹³ wpó³ powieki, wci¹gn¹³ w g³¹b pó³ brzucha
+I do p³uc wys³a³ z niego ca³y zapas ducha.
+I zagra³: róg jak wicher niewstrzymanym dechem
+Niesie w puszczê muzykê i podwaja echem.
+Umilkli strzelce, stali szczwacze zadziwieni
+Moc¹, czystoœci¹, dziwn¹ harmonij¹ pieni.
+Starzec ca³y kunszt, którym niegdyœ w lasach s³yn¹³,
+Jeszcze raz przed uszami myœliwców rozwin¹³;
+Nape³ni³ wnet, o¿ywi³ knieje i d¹browy,
+Jakby psiarniê w nie wpuœci³ i rozpocz¹³ ³owy.
+Bo w graniu by³a ³owów historyja krótka:
+Zrazu odzew dŸwiêcz¹cy, rzeœki - to pobudka;
+131
+Potem jêki po jêkach skoml¹ - to psów granie;
+A gdzieniegdzie ton twardszy jak grzmot - to strzelanie.
+Tu przerwa³, lecz róg trzyma³; wszystkim siê zdawa³o,
+¯e Wojski wci¹¿ gra jeszcze, a to echo gra³o.
+Zad¹³ znowu; myœli³byœ, ¿e róg kszta³ty zmienia³
+I ¿e w ustach Wojskiego to grubia³, to cienia³,
+Udaj¹c g³osy zwierz¹t: to raz w wilcz¹ szyjê
+Przeci¹gaj¹c siê, d³ugo, przeraŸliwie wyje;
+Znowu, jakby w niedŸwiedzie rozwar³szy siê gar³o,
+Rykn¹³; potem beczenie ¿ubra wiatr rozdar³o.
+Tu przerwa³, lecz róg trzyma³; wszystkim siê zdawa³o,
+¯e Wojski wci¹¿ gra jeszcze, a to echo gra³o.
+Wys³uchawszy rogowej arcydzie³o sztuki,
+Powtarza³y je dêby dêbom, bukom buki.
+Dmie znowu: jakby w rogu by³y setne rogi,
+S³ychaæ zmieszane wrzaski szczwania, gniewu, trwogi,
+Strzelców, psiarni i zwierz¹t; a¿ Wojski do góry
+Podniós³ róg, i tryumfu hymn uderzy³ w chmury.
+Tu przerwa³, lecz róg trzyma³; wszystkim siê zdawa³o,
+¯e Wojski wci¹¿ gra jeszcze, a to echo gra³o.
+Ile drzew, tyle rogów znalaz³o siê w boru,
+Jedne drugim pieœñ nios¹ jak z choru do choru.
+I sz³a muzyka coraz szersza, coraz dalsza,
+Coraz cichsza i coraz czystsza, doskonalsza,
+A¿ znik³a gdzieœ daleko, gdzieœ na niebios progu!
+132
+Wojski obiedwie rêce odj¹wszy od rogu
+Rozkrzy¿owa³; róg opad³, na pasie rzemiennym
+Chwia³ siê. Wojski z obliczem nabrzmia³em, promiennem,
+Z oczyma wzniesionemi, sta³ jakby natchniony,
+£owi¹c uchem ostatnie znikaj¹ce tony.
+A tymczasem zagrzmia³o tysi¹ce oklasków,
+Tysi¹ce powinszowañ i wiwatnych wrzasków.
+Uciszono siê z wolna i oczy gawiedzi
+Zwróci³y siê na wielki, œwie¿y trup niedŸwiedzi:
+Le¿a³ krwi¹ opryskany, kulami przeszyty,
+Piersiami w gêszczê trawy wpl¹tany i wbity,
+Rozprzestrzeni³ szeroko przednie krzy¿em ³apy,
+Dysza³ jeszcze, wylewa³ strumieñ krwi przez chrapy,
+Otwiera³ jeszcze oczy, lecz g³owy nie ruszy;
+Pjawki Podkomorzego dzier¿¹ go pod uszy,
+Z lewej strony Strapczyna, a z prawej zawisa³
+Sprawnik i dusz¹c gardziel, krew czarn¹ wysysa³.
+Zaczem Wojski rozkaza³ kij ¿elazny w³o¿yæ
+Psom miêdzy zêby i tak paszczêki roztworzyæ.
+Kolbami przewrócono na wznak zwierza zw³oki
+I znów trzykrotny wiwat uderzy³ w ob³oki.
+„A co? - krzykn¹³ Asesor, krêc¹c strzelby rur¹ -
+A co, fuzyjka moja? Gór¹ nasi, gór¹!
+A co, fuzyjka moja? Niewielka ptaszyna,
+A jak siê popisa³a? To jej nie nowina.
+Nie puœci ona na wiatr ¿adnego ³adunku,
+133
+Od ksi¹¿êcia Sanguszki mam j¹ w podarunku”.
+Tu pokazywa³ strzelbê przedziwnej roboty
+Choæ maleñk¹, i zacz¹³ wyliczaæ jej cnoty.
+„Ja bieg³em - przerwa³ Rejent, otar³szy pot z czo³a -
+Bieg³em tu¿ za niedŸwiedziem; a pan Wojski wo³a:
+<<Stój na miejscu!>> Jak tam staæ? NiedŸwiedŸ w pole wali,
+Rw¹c z kopyta jak zaj¹c, coraz daléj, daléj,
+A¿ mi ducha nie sta³o, dobiec ni nadziei;
+A¿ spojrzê w prawo: sadzi, a tu rzadko w kniei...
+Jak te¿ wzi¹³em na oko; postój¿e, marucha!
+Pomyœli³em, i basta: ot, le¿y bez ducha;
+Têga strzelba, prawdziwa to Sagalasówka,
+Napis: <<Sagalas London á Ba³abanówka>>.
+(S³awny tam mieszka³ œlusarz Polak, który robi³
+Polskie strzelby, ale je po angielsku zdobi³)”.
+„Jak to - parskn¹³ Asesor - do kroæset niedŸwiedzi!
+To to niby Pan zabi³? co te¿ to Pan bredzi?”
+„S³uchaj no - odpar³ Rejent - tu, Panie, nie œledztwo,
+Tu ob³awa; tu wszystkich weŸmiem na œwiadectwo”.
+Wiêc k³ótnia miêdzy zgraj¹ wszczê³a siê zawziêta,
+Ci stronê Asesora, ci brali Rejenta;
+O Gerwazym nie wspomnia³ nikt, bo wszyscy biegli
+Z boków i, co siê z przodu dzia³o, nie postrzegli.
+Wojski g³os zabra³: „Teraz jest przynajmniej za co,
+Bo to, Panowie, nie jest ow szarak ladaco,
+To niedŸwiedŸ, tu ju¿ nie ¿al poszukaæ odwetu,
+134
+Czy szarpentyn¹, czyli nawet z pistoletu;
+Spór wasz trudno pogodziæ, wiêc dawnym zwyczajem
+Na pojedynek nasze pozwolenie dajem.
+Pamiêtam, za mych czasów ¿y³o dwóch s¹siadów,
+Oba ludzie uczciwi, szlachta z prapradziadów,
+Mieszkali po dwóch stronach nad rzek¹ Wilejk¹,
+Jeden zwa³ siê Domejko, a drugi Dowejko,
+Do niedŸwiedzicy oba razem wystrzelili:
+Kto zabi³, trudno dociec; strasznie siê k³ócili
+I przysiêgli strzelaæ siê przez niedŸwiedzi¹ skórê:
+To mi to po szlachecku, prawie rura w rurê.
+Pojedynek ten wiele narobi³ ha³asu;
+Pieœni o nim œpiewano za owego czasu.
+Ja by³em sekundantem; jak siê wszystko dzia³o,
+Opowiem od pocz¹tku historyjê ca³¹”.
+Nim Wojski zacz¹³ mówiæ, Gerwazy spór zgodzi³;
+On niedŸwiedzia z uwag¹ doko³a obchodzi³,
+Nareszcie doby³ tasak, rozci¹³ pysk na dwoje
+I w tylcu g³owy, mózgu rozkroiwszy s³oje,
+Znalaz³ kulê, wydoby³, sukni¹ ochêdo¿y³,
+Przymierzy³ do ³adunku, do flinty przy³o¿y³;
+A potem, d³oñ podnosz¹c i kulê na d³oni:
+„Panowie - rzek³ - ta kula nie jest z waszej broni,
+Ona z tej Horeszkowskiej wysz³a jednorurki
+(Tu podniós³ flintê star¹, obwi¹zan¹ w sznurki),
+Lecz nie ja wystrzeli³em. O, trzeba tam by³o
+Odwagi; straszno wspomnieæ, w oczach mi siê æmi³o!
+135
+Bo prosto biegli ku mnie oba paniczowie,
+A niedŸwiedŸ z ty³u ju¿ - ju¿ na Hrabiego g³owie,
+Ostatniego z Horeszków! chocia¿ po k¹dzieli.
+<<Jezus Maria!>> krzykn¹³em; i Pañscy anieli
+Zes³ali mi na pomoc ksiêdza Bernardyna.
+On nas wszystkich zawstydzi³; oj, dzielny ksiê¿yna!
+Gdym dr¿a³, gdym siê do cyngla dotkn¹æ nie oœmieli³,
+On mi z r¹k flintê wyrwa³, wyceli³, wystrzeli³:
+Miêdzy dwie g³owy strzeliæ! Sto kroków! Nie chybiæ!
+I w sam œrodek paszczêki! Tak mu zêby wybiæ!
+Panowie! D³ugo ¿yjê, jednego widzia³em
+Cz³owieka, co móg³ takim popisaæ siê strza³em.
+Ów g³oœny niegdyœ u nas z tylu pojedynków,
+Ów, co korki kobietom wystrzela³ z patynków,
+Ów ³otr nad ³otry, s³awny w czasy wiekopomne,
+Ów Jacek, vulgo W¹sal; nazwiska nie wspomnê.
+Ale mu nie czas teraz doje¿d¿aæ niedŸwiedzi:
+Pewnie po same w¹sy hultaj w piekle siedzi.
+Chwa³a Ksiêdzu! Dwom ludziom on ¿ycie ocali³,
+Mo¿e i trzem; Gerwazy nie bêdzie siê chwali³,
+Ale gdyby ostatnie z krwi Horeszków dzieciê
+Wpad³o w bestyi paszczê, nie by³bym na œwiecie,
+I moje by tam stare pogryz³ niedŸwiedŸ koœci;
+PójdŸ, Ksiê¿e, wypijemy zdrowie Jegomoœci”.
+Pró¿no szukano Ksiêdza; wiedz¹ tylko tyle,
+¯e po zabiciu Ÿwierza zjawi³ siê na chwilê,
+Podskoczy³ ku Hrabiemu i Tadeuszowi,
+A widz¹c, ¿e obadwa cali s¹ i zdrowi,
+136
+Podniós³ ku niebu oczy, cicho pacierz zmówi³
+I pobieg³ w pole szybko, jakby go kto ³owi³.
+Tymczasem na Wojskiego rozkaz pêki wrzosu,
+Suche chrosty i pniaki rzucono do stosu;
+Bucha ogieñ, wyrasta szara sosna dymu
+I rozszerza siê w górze na kszta³t baldakimu.
+Nad p³omieniem oszczepy z³o¿ono w kozio³ki,
+Na grotach zawieszono brzuchate kocio³ki;
+Z wozów nios¹ jarzyny, m¹ki i pieczyste,
+I chleb.
+Sêdzia otworzy³ puzderko zamczyste,
+W którym rzêdami flaszek bia³e stercz¹ g³owy;
+Wybiera z nich najwiêkszy kufel kryszta³owy
+(Dosta³ go Sêdzia w darze od ksiêdza Robaka):
+Wódka to gdañska, napój mi³y dla Polaka.
+„Niech ¿yje - krzykn¹³ Sêdzia, w górê wznosz¹c flaszê -
+Miasto Gdañsk! niegdyœ nasze, bêdzie znowu nasze!”
+I la³ srebrzysty likwor w kolej, a¿ na koñcu
+Zaczê³o z³oto kapaæ i b³yskaæ na s³oñcu.
+W kocio³kach bigos grzano; w s³owach wydaæ trudno
+Bigosu smak przedziwny, kolor i woñ cudn¹;
+S³ów tylko brzêk us³yszy i rymów porz¹dek,
+Ale treœci ich miejski nie pojmie ¿o³¹dek.
+Aby ceniæ litewskie pieœni i potrawy,
+Trzeba mieæ zdrowie, na wsi ¿yæ, wracaæ z ob³awy.
+137
+Przecie¿ i bez tych przypraw potraw¹ nie lada
+Jest bigos, bo siê z jarzyn dobrych sztucznie sk³ada.
+Bierze siê doñ siekana, kwaszona kapusta,
+Która, wedle przys³owia, sama idzie w usta;
+Zamkniêta w kotle, ³onem wilgotnem okrywa
+Wyszukanego cz¹stki najlepsze miêsiwa;
+I pra¿y siê, a¿ ogieñ wszystkie z niej wyciœnie
+Soki ¿ywne, a¿ z brzegów naczynia war pryœnie
+I powietrze doko³a zionie aromatem.
+Bigos ju¿ gotów. Strzelcy z trzykrotnym wiwatem,
+Zbrojni ³y¿kami, bieg¹ i bod¹ naczynie,
+MiedŸ grzmi, dym bucha, bigos jak kamfora ginie,
+Znikn¹³, ulecia³; tylko w czeluœciach saganów
+Wre para jak w kraterze zagas³ych wulkanów.
+Kiedy siê ju¿ do woli napili, najedli,
+Zwierza na wóz w³o¿yli, sami na koñ siedli,
+Radzi wszyscy, rozmowni, oprócz Asesora
+I Rejenta; ci byli gniewliwsi ni¿ wczora,
+K³óc¹c siê o zalety, ten swej Sanguszkówki,
+A ten - ba³abanowskiej swej Sagalasówki.
+Hrabia te¿ i Tadeusz jad¹ nieweseli,
+Wstydz¹c siê, ¿e chybili i ¿e siê cofnêli:
+Bo na Litwie - kto zwierza wypuœci z ob³awy,
+D³ugo musi pracowaæ, nim poprawi s³awy.
+Hrabia mówi³, ¿e pierwszy do oszczepu godzi³
+I ¿e spotkaniu z zwierzem Tadeusz przeszkodzi³;
+138
+Tadeusz utrzymywa³, ¿e bêd¹c silniejszy
+I do robienia ciê¿kim oszczepem zrêczniejszy,
+Chcia³ wyrêczyæ Hrabiego: tak sobie niekiedy
+Przymawiali œród gwaru i wrzasku czeredy.
+Wojski jecha³ poœrodku; staruszek szanowny
+Weso³y by³ nadzwyczaj i bardzo rozmowny;
+Chc¹c k³ótników zabawiæ i do zgody dowieœæ,
+Koñczy³ im o Dowejce i Domejce powieœæ:
+„Asesorze, je¿eli chcia³em, byœ z Rejentem
+Pojedynkowa³, nie myœl, ¿e jestem zawziêtym
+Na krew ludzk¹; broñ Bo¿e! chcia³em was zabawiæ,
+Chcia³em wam komedyjê niby to wyprawiæ,
+Wznowiæ koncept, który ja lat temu czterdzieœcie
+Wymyœli³em - przedziwny! - Wy m³odzi jesteœcie,
+Nie pamiêtacie o nim, lecz za moich czasów
+G³oœny by³ od tej puszczy do poleskich lasów.
+„Domejki i Dowejki wszystkie sprzeciwieñstwa
+Pochodzi³y, rzecz dziwna, z nazwisk podobieñstwa
+Bardzo niewygodnego. Bo gdy w czas sejmików
+Przyjaciele Dowejki skarbili stronników,
+Szepn¹³ ktoœ do szlachcica: <<Daj kreskê Dowejce!>>,
+A ten nie dos³yszawszy da³ kreskê Domejce.
+Gdy na uczcie wniós³ zdrowie marsza³ek Rupejko:
+<<Wiwat Dowejko!>> - drudzy krzyknêli: <<Domejko!>>
+A kto siedzia³ w poœrodku, nie trafi³ do ³adu,
+Zw³aszcza przy niewyraŸnej mowie w czas obiadu.
+139
+Gorzej by³o; raz w Wilnie jakiœ szlachcic pjany
+Bi³ siê w szable z Domejk¹ i dosta³ dwie rany;
+Potem ów szlachcic, z Wilna wracaj¹c do domu,
+Dziwnym trafem z Dowejk¹ zjecha³ siê u promu;
+Gdy wiêc na jednym promie p³ynêli Wilejk¹,
+Pyta s¹siada: kto on? odpowie: Dowejko;
+Nie czekaj¹c dobywa rapier spod kirejki:
+Czach, czach, i za Domejkê podci¹³ w¹s Dowejki.
+Wreszcie, jak na dobitkê, trzeba jeszcze by³o,
+¯eby na polowaniu tak siê wydarzy³o,
+¯e stali blisko siebie oba imiennicy
+I do jednej strzelili razem niedŸwiedzicy.
+Prawda, ¿e po ich strzale upad³a bez duchu,
+Ale ju¿ pierwej nios³a z dziesi¹tek kul w brzuchu;
+Strzelby z jednym kalibrem mia³o wiele osób.
+Kto zabi³ niedŸwiedzicê? dojdŸ¿e! jaki sposób?
+Tu ju¿ krzyknêli: <<Dosyæ! Trzeba raz rzecz skoñczyæ.
+Bóg nas czy diabe³ z³¹czy³, trzeba siê roz³¹czyæ:
+Dwóch nas, jak dwóch s³oñc, pono zanadto na œwiecie!>>
+A wiêc do szerpentynek i staj¹ na mecie.
+Oba szanowni ludzie; co ich szlachta godz¹,
+To oni na siê jeszcze zapalczywiej godz¹.
+Zmienili broñ; od szabel sz³o na pistolety.
+Staj¹, krzyczym, ¿e nadto przybli¿yli mety;
+Oni na z³oœæ, przysiêgli przez niedŸwiedzi¹ skórê
+Strzelaæ siê, œmieræ niechybna! prawie rura w rurê.
+Oba têgo strzelali. - <<Sekunduj, Hreczecha!>>
+140
+<<Zgoda - rzek³em - niech zaraz dó³ wykopie klecha:
+Bo taki spór nie mo¿e skoñczyæ siê na niczém;
+Lecz bijcie siê szlacheckim trybem, nie rzeŸniczym,
+Dosyæ ju¿ mety zbli¿aæ, widzê, ¿eœcie zuchy;
+Chcecie strzelaæ siê, rury opar³szy na brzuchy?
+Ja nie pozwolê; zgoda, ¿e na pistolety;
+Lecz strzelaæ siê nie z dalszej ani z bli¿szej mety
+Jak przez skórê niedŸwiedzi¹; ja rêkami memi
+Jako sekundant skórê rozci¹gnê na ziemi
+I ja sam was ustawiê. Waœæ po jednej stronie
+Stanie na koñcu pyska, a Waœæ na ogonie>>.
+<<Zgoda!>> - wrzaœli.
+Czas? - jutro, miejsce? - karczma Usza.
+Rozjechali siê. Ja zaœ do Wirgilijusza”.
+Tu Wojskiemu przerwa³ krzyk: „Wyczha!” Tu¿ spod koni
+Smykn¹³ szarak; ju¿ Kusy, ju¿ go Soko³ goni.
+Psy wziêto na ob³awê, wiedz¹c, ¿e z powrotem
+Na polu ³atwo mo¿na napotkaæ siê z kotem;
+Bez smyczy sz³y przy koniach; gdy kota postrzeg³y,
+Wprzód nim strzelcy poszczuli, ju¿ za nim pobieg³y.
+Rejent te¿ i Asesor chcieli koñmi natrzeæ;
+Lecz Wojski wstrzyma³ krzycz¹c: „Wara! staæ i patrzeæ!
+Nikomu krokiem ruszyæ z miejsca nie dozwolê;
+St¹d widzim wszyscy dobrze, zaj¹c idzie w pole”.
+W istocie, kot czu³ z ty³u myœliwych i psiarnie,
+Rwa³ w pole, s³uchy wytkn¹³ jak dwa ró¿ki sarnie,
+Sam szarza³ siê nad rol¹ d³ugi, wyci¹gniêty,
+141
+Skoki pod nim stercza³y jakby cztery prêty,
+Rzek³byœ, ¿e ich nie rusza, tylko ziemiê tr¹ca
+Po wierzchu, jak jaskó³ka wodê ca³uj¹ca.
+Py³ za nim, psy za py³em; z daleka siê zda³o,
+¯e zaj¹c, py³ i charty jedne tworz¹ cia³o:
+Jakby jakaœ przez pole suwa³a siê Ÿmija,
+Kot jak g³owa, py³ z ty³u jakby modra szyja,
+A psami jak podwójnym ogonem wywija.
+Rejent, Asesor patrz¹, otworzyli usta,
+Dech wstrzymali; wtem Rejent pobladn¹³ jak chusta,
+Zblad³ i Asesor, widz¹ - fatalnie siê dzieje,
+Owa Ÿmija im dalej, tym bardziej d³u¿eje,
+Ju¿ rwie siê wpó³, ju¿ znik³a owa szyja py³u,
+G³owa ju¿ blisko lasu, ogony - gdzie z ty³u!
+G³owa niknie, raz jeszcze jakby kto kutasem
+Mign¹³: w las wpad³a; ogon urwa³ siê pod lasem.
+Biedne psy, og³upia³e biega³y pod gajem,
+Zdawa³y siê naradzaæ, oskar¿aæ nawzajem;
+Wreszcie wracaj¹, z wolna skacz¹c przez zagony,
+Spuœci³y uszy, tul¹ do brzucha ogony
+I przybieg³szy, ze wstydu nie œmiej¹ wznieœæ oczu,
+I zamiast iœæ do panów, sta³y na uboczu.
+Rejent spuœci³ ku piersiom zasêpione czo³o,
+Asesor rzuca³ okiem, ale nieweso³o,
+Potem zaczêli oba s³uchaczom wywodziæ:
+Jak ich charty bez smycza nie nawyk³y chodziæ,
+142
+Jak kot znienacka wypad³, jak Ÿle by³ poszczuty
+Na roli, gdzie psom chyba trzeba by wdziaæ buty,
+Tak pe³no wszêdzie g³azów i ostrych kamieni.
+M¹drze rzecz wy³uszczali szczwacze doœwiadczeni;
+Myœliwi z tych mów wiele mogliby korzystaæ,
+Lecz nie s³uchali pilnie; ci zaczêli œwistaæ,
+Ci œmiaæ siê w g³os, ci, maj¹c niedŸwiedzia w pamiêci,
+Gadali o nim, œwie¿¹ ob³aw¹ zajêci.
+Wojski ledwie raz okiem za zaj¹cem rzuci³;
+Widz¹c, ¿e uciek³, g³owê obojêtnie zwróci³
+I koñczy³ rzecz przerwan¹:
+„Na czem wiêc stan¹³em?
+Aha! na tem, ¿e obu za s³owo uj¹³em,
+I¿ bêd¹ strzelali siê przez niedŸwiedzi¹ skórê.
+Szlachta w krzyk: <<To¿ œmieræ pewna! Prawie rura w rurê!>>
+A ja w œmiech, bo mnie uczy³ mój przyjaciel Maro,
+¯e skóra Ÿwierza nie jest lada jak¹ miar¹.
+Wszak wiecie Waæpanowie, jak królowa Dydo
+Przyp³ynê³a do Libów i tam z wielk¹ biéd¹
+Wytargowa³a sobie taki ziemi kawa³,
+Który by siê wo³ow¹ skór¹ nakryæ dawa³;
+Na tym kawa³ku ziemi stanê³a Kartago!
+Wiêc ja to sobie w nocy rozbieram z uwag¹.
+Ledwie dnia³o, ju¿ z jednej strony taradejk¹
+Jedzie Dowejko, z drugiej na koniu Domejko.
+Patrz¹, a¿ tu przez rzekê le¿y most kosmaty,
+143
+Pas ze skóry niedŸwiedziej porzniêtej na szmaty.
+Postawi³em Dowejkê na zwierza ogonie
+Z jednej strony, Domejkê zaœ na drugiej stronie.
+<<Pukajcie teraz - rzek³em - choæ przez ca³e ¿ycie,
+Lecz póty was nie spuszczê, a¿ siê pogodzicie>>.
+Oni w z³oœæ; a tu szlachta k³adnie siê na ziemi
+Od œmiechu, a ja z ksiêdzem s³owy powa¿nemi
+Nu¿ im z Ewanieliji, z statutów dowodziæ;
+Nie ma rady: - œmieli siê i musieli zgodziæ.
+Spor ich potem w dozgonn¹ przyjaŸñ siê zamieni³,
+I Dowejko siê z siostr¹ Domejki o¿eni³,
+Domejko poj¹³ siostrê szwagra, Dowejkównê,
+Podzielili maj¹tek na dwie czêœci równe,
+A w miejscu, gdzie siê zdarzy³ tak dziwny przypadek,
+Pobudowawszy karczmê nazwali N i e d Ÿ w i a d e k”.
+144
+KSIÊGA PI¥TA
+K£ÓTNIA
+Treœæ:
+Plany myœliwskie Telimeny - Ogrodniczka wybiera siê na wielki œwiat i
+s³ucha nauk opiekunki - Strzelcy wracaj¹ - Wielkie zadziwienie Tadeusza -
+Spotkanie siê powtórne w Œwi¹tyni dumania i zgoda, u³atwiona za
+poœrednictwem mrówek - U sto³u wytacza siê rzecz o ³owach - Powieœæ
+Wojskiego o Rejtanie i ksiêciu Denassów, przerwana - Zagajenie uk³adów
+miêdzy stronami, tak¿e przerwane - Zjawisko z kluczem - K³ótnia - Hrabia
+z Gerwazym odbywaj¹ radê wojenn¹.
+145
+Wojski, chlubnie skoñczywszy ³owy, wraca z boru,
+A Telimena w g³êbi samotnego dworu
+Zaczyna polowanie. Wprawdzie nieruchoma
+Siedzi z za³o¿onemi na piersiach rêkoma,
+Lecz myœl¹ goni Ÿwierzów dwóch; szuka sposobu,
+Jak by razem obsaczyæ i u³owiæ obu:
+Hrabiê i Tadeusza. Hrabia, panicz m³ody,
+Wielkiego domu dziedzic, powabnej urody;
+Ju¿ trochê zakochany! Có¿? mo¿e siê zmieniæ!
+Potem, czy szczerze kocha? czy siê zechce ¿eniæ?
+Z kobiet¹ kilku laty starsz¹! niebogat¹!
+Czy mu krewni pozwol¹? co œwiat powie na to?
+Telimena, tak myœl¹c, z sofy siê podnios³a
+I stanê³a na palcach; rzek³byœ, i¿ podros³a;
+Odkry³a nieco piersi, wygiê³a siê bokiem
+I sama siebie pilnym obejrza³a okiem,
+I znowu zapyta³a o radê zwierciad³a;
+Po chwili wzrok spuœci³a, westchnê³a i siad³a.
+Hrabia pan! zmienni w gustach s¹ ludzie majêtni!
+Hrabia blondyn! blondyni nie s¹ zbyt namiêtni!
+A Tadeusz? prostaczek! poczciwy ch³opczyna!
+Prawie dziecko! raz pierwszy kochaæ siê zaczyna!
+Pilnowany, nie³acno zerwie pierwsze zwi¹zki,
+Przy tem dla Telimeny ma ju¿ obowi¹zki,
+Mê¿czyŸni, póki m³odzi, chocia¿ w myœlach zmienni,
+W uczuciach s¹ od dziadów stalsi, bo sumienni.
+D³ugo serce m³odzieñca proste i dziewicze
+146
+Chowa wdziêcznoœæ za pierwsze mi³oœci s³odycze!
+Ono rozkosz i wita, i ¿egna z weselem,
+Jak skromn¹ ucztê, któr¹ dzielim z przyjacielem.
+Tylko stary pjanica, gdy ju¿ spali trzewa,
+Brzydzi siê trunkiem, którym nazbyt siê zalewa.
+Wszystko to Telimena dok³adnie wiedzia³a,
+Bo i rozum, i wielkie doœwiadczenie mia³a.
+Lecz co powiedz¹ ludzie? Mo¿na im zejœæ z oczu,
+W inne strony wyjechaæ, mieszkaæ na uboczu
+Lub, co lepsza, wynieœæ siê ca³kiem z okolicy,
+Na przyk³ad zrobiæ ma³¹ podró¿ do stolicy,
+M³odego ch³opca na œwiat wielki wyprowadziæ,
+Kroki jego kierowaæ, pomagaæ mu, radziæ,
+Serce mu kszta³ciæ, mieæ w nim przyjaciela, brata!
+Nareszcie - u¿yæ œwiata, póki s³u¿¹ lata!
+Tak myœl¹c, po alkowie œmia³o i weso³o
+Przesz³a siê kilka razy - znów spuœci³a czo³o.
+Warto by te¿ pomyœliæ o Hrabiego losie -
+Czyby siê nie uda³o podsun¹æ mu Zosiê?
+Niebogata, lecz za to urodzeniem równa,
+Z domu senatorskiego, jest dygnitarzówna.
+Je¿eliby do skutku przysz³o o¿enienie,
+Telimena w ich domu mia³aby schronienie
+Na przysz³oœæ; krewna Zosi i Hrabiego swatka,
+Dla m³odego ma³¿eñstwa by³aby jak matka.
+147
+Po tej z sob¹ odbytej, stanowczej naradzie
+Wo³a przez okno Zosiê bawi¹c¹ siê w sadzie.
+Zosia w porannym stroju i z g³ow¹ odkryt¹
+Sta³a, trzymaj¹c w rêku podniesione sito;
+Do nóg jej bieg³o ptastwo; st¹d kury szurpate
+Tocz¹ siê k³êbkiem, stamt¹d kogutki czubate,
+Wstrz¹saj¹c koralowe na g³owach szyszaki
+I wios³uj¹c skrzyd³ami przez bruzdy i krzaki,
+Szeroko wyci¹gaj¹ ostro¿aste piêty;
+Za nimi z wolna indyk sunie siê odêty,
+Sarkaj¹c na trzpiotalstwo swej krzykliwej ¿ony;
+Owdzie pawie jak tratwy d³ugimi ogony
+Steruj¹ siê po ³¹ce, a gdzieniegdzie z góry
+Upada jak kiœæ œniegu go³¹b srebrnopióry.
+W poœrodku zielonego okrêgu murawy
+Œciska siê okr¹g ptastwa krzykliwy, ruchawy,
+Opasany go³êbi sznurem na kszta³t wstêgi
+Bia³ej, œrodkiem pstrokaty w gwiazdy, w cêtki, w prêgi
+Tu dzioby bursztynowe, tam czubki z korali
+Wznosz¹ siê z gêstwi pierza jak ryby spod fali.
+Wysuwaj¹ siê szyje i w ruchach ³agodnych
+Chwiej¹ siê ci¹gle na kszta³t tulipanów wodnych;
+Tysi¹ce oczu jak gwiazd b³yskaj¹ ku Zosi.
+Ona w œrodku wysoko nad ptastwem siê wznosi,
+Sama bia³a i w d³ug¹ bieliznê ubrana,
+Krêci siê jak bij¹ca œród kwiatów fontanna;
+Czerpie z sita i sypie na skrzyd³a i g³owy
+148
+Rêk¹ jak per³y bia³¹ gêsty grad per³owy
+Krup jêczmiennych: to ziarno, godne pañskich sto³ów,
+Robi siê dla zaprawy litewskich roso³ów;
+Zosia je wykradaj¹c z szafek ochmistrzyni
+Dla swego drobiu, szkodê w gospodarstwie czyni.
+Us³ysza³a wo³anie: „Zosiu!” To g³os cioci!
+Sypnê³a razem ptastwu ostatek ³akoci,
+A sama, krêc¹c sito jako tanecznica
+Bêbenek i w takt bij¹c, swawolna dziewica
+Jê³a skakaæ przez pawie, go³êbie i kury:
+Zmieszane ptastwo t³umnie furknê³o do góry.
+Zosia, stopami ledwie dotykaj¹c ziemi,
+Zdawa³a siê najwy¿ej bujaæ miêdzy niemi;
+Przodem go³êbie bia³e, które w biegu p³oszy,
+Lecia³y jak przed wozem bogini rozkoszy.
+Zosia przez okno z krzykiem do alkowy wpad³a
+I na kolanach ciotki zadyszana siad³a;
+Telimena, ca³uj¹c i g³aszcz¹c pod brodê,
+Z radoœci¹ zwa¿a dziecka ¿ywoœæ i urodê
+(Bo prawdziwie kocha³a sw¹ wychowanicê).
+Ale znowu powa¿nie nastroi³a lice,
+Wsta³a i przechodz¹c siê wszerz i wzd³u¿ alkowy,
+Dzier¿¹c palec przy ustach, temi rzek³a s³owy:
+„Kochana Zosiu, ju¿ te¿ ca³kiem zapominasz
+I na stan, i na wiek twój; wszak to dziœ zaczynasz
+Rok czternasty, czas rzuciæ indyki i kurki;
+149
+Fi! to godna zabawka dygnitarskiej córki!
+I z umurzan¹ dziatw¹ ch³opsk¹ ju¿ do woli
+Napieœci³aœ siê! Zosiu! patrz¹c, serce boli;
+Opali³aœ okropnie p³eæ, czysta Cyganka,
+A chodzisz i ruszasz siê jak parafijanka.
+Ju¿ ja temu wszystkiemu na przysz³oœæ zaradzê;
+Od dziœ zacznê, dziœ ciebie na œwiat wyprowadzê,
+Do salonu, do goœci - goœci mamy si³a,
+Patrzaj¿e¿, a¿ebyœ mnie wstydu nie zrobi³a”.
+Zosia skoczy³a z miejsca i klasnê³a w d³onie,
+I ciotce zawisn¹wszy obur¹cz na ³onie,
+P³aka³a i œmia³a siê na przemian z radoœci.
+„Ach, Ciociu! ju¿ tak dawno nie widzia³am goœci!
+Od czasu, jak tu ¿yjê z kury i indyki,
+Jeden goœæ, co widzia³am, to by³ go³¹b dziki;
+Ju¿ mi troszeczkê nudno tak siedzieæ w alkowie;
+Pan Sêdzia nawet mówi, ¿e to Ÿle na zdrowie”.
+„Sêdzia - przerwa³a ciotka - ci¹gle mi dokucza³,
+¯eby ciê na œwiat wywieœæ, ci¹gle pod nos mrucza³,
+¯e ju¿ jesteœ doros³¹; sam nie wie, co plecie,
+Dziaduœ, nigdy na wielkim niebywa³y œwiecie.
+Ja wiem lepiej, jak d³ugo trzeba siê sposobiæ
+Panience, by wyszed³szy na œwiat, efekt zrobiæ.
+Wiedz, Zosiu, ¿e kto roœnie na widoku ludzi,
+Choæ piêkny, choæ rozumny, efektów nie wzbudzi,
+Gdy go wszyscy przywykn¹ widzieæ od maleñka.
+Lecz niechaj ukszta³cona, doros³a panienka
+150
+Nagle ni st¹d, ni zow¹d przed œwiatem zab³yœnie,
+Wtenczas ka¿dy siê do niej przez ciekawoœæ ciœnie,
+Wszystkie jej ruchy, rzuty oczu jej uwa¿a,
+S³owa jej pods³uchiwa i drugim powtarza;
+A kiedy wejdzie w modê raz m³oda osoba,
+Ka¿dy j¹ chwaliæ musi, choæ i nie podoba.
+ZnaleŸæ siê, spodziewam siê, ¿e umiesz; w stolicy
+Uros³aœ. Choæ dwa lata mieszkasz w okolicy,
+Nie zapomnia³aœ jeszcze ca³kiem Petersburka.
+No, Zosio, toaletê rób, dostañ tam z biórka,
+Nagotowane znajdziesz wszystko do ubrania.
+Spiesz siê, bo lada chwila wróc¹ z polowania”.
+Wezwano pokojowê i s³u¿¹c¹ dziewkê;
+W naczynie srebrne wody wylano konewkê;
+Zosia, jak wróbel w piasku, trzepioce siê, myje
+Z pomoc¹ s³ugi rêce, oblicze i szyjê.
+Telimena otwiera petersburskie sk³ady,
+Dobywa flaszki perfum, s³oiki pomady,
+Pokrapia Zosiê wko³o wyborn¹ perfum¹
+(Woñ nape³ni³a izbê), w³os namaszcza gum¹.
+Zosia k³adnie poñczoszki bia³e, a¿urowe,
+I trzewiki warszawskie bia³e, at³asowe;
+Tymczasem pokojowa sznurowa³a stanik,
+Potem rzuci³a na gors pannie pudermanik;
+Zaczêto przypieczone zbieraæ papiloty,
+Pukle, ¿e nazbyt krótkie, uwito w dwa sploty,
+Zostawuj¹c na czole i skroniach w³os g³adki;
+Pokojowa zaœ œwie¿o zebrane b³awatki
+151
+Uwi¹zawszy w plecionkê daje Telimenie;
+Ta j¹ do g³owy Zosi przyszpila uczenie,
+Z prawej strony na lewo: kwiat od bladych w³osów
+Odbija³ bardzo piêknie, jak od zbo¿a k³osów!
+Zdjêto puderman, ca³e ubranie gotowe.
+Zosia bia³¹ sukienkê wrzuci³a przez g³owê,
+Chusteczkê batystow¹ bia³¹ w rêku zwija
+I tak ca³a wygl¹da bia³a jak lilija.
+Poprawiwszy raz jeszcze i w³osów, i stroju,
+Kazano jej wzd³u¿ i wszerz przejœæ siê po pokoju;
+Telimena uwa¿a znawczyni oczyma,
+Musztruje siostrzenicê, gniewa siê i z¿yma;
+A¿ na dygnienie Zosi krzyknê³a z rozpaczy:
+„Ja nieszczêœliwa! Zosiu, widzisz, co to znaczy
+¯yæ z gêœmi, z pastuchami! Tak nogi rozszerzasz,
+Jak ch³opiec, okiem w prawo i w lewo uderzasz,
+Czysta rozwódka! - Dygnij, patrz, jaka niezwinna!”
+„Ach, Ciociu! - rzek³a smutnie Zosia - có¿ ja winna?
+Ciotka mnie zamyka³a; nie by³o z kim tañczyæ,
+Lubi³am z nudy ptastwo paœæ i dzieci niañczyæ;
+Ale poczekaj, Ciociu, niech no siê pobawiê
+Trochê z ludŸmi, obaczysz, jak siê ja poprawiê”.
+„Ju¿ - rzek³a ciotka - z dwojga z³ego lepiej z ptastwem
+Ni¿ z tem, co u nas dot¹d goœci³o, plugastwem;
+Przypomnij tylko sobie, kto tu u nas bywa³:
+Pleban, co pacierz mrucza³ lub w warcaby grywa³,
+152
+I palestra z fajkami! To mi kawalery!
+Nabra³abyœ siê od nich piêknej manijery.
+Teraz to pokazaæ siê jest przynajmniej komu,
+Mamy przecie¿ uczciwe towarzystwo w domu.
+Uwa¿aj dobrze, Zosiu, jest tu Hrabia m³ody,
+Pan, dobrze wychowany, krewny Wojewody,
+Pamiêtaj byæ mu grzeczn¹...”
+S³ychaæ r¿enie koni!
+I gwar myœliwców; ju¿ s¹ pod bram¹: to oni!
+Wzi¹wszy Zosiê pod rêkê, pobieg³a do sali.
+Myœliwi na pokoje jeszcze nie wchadzali,
+Musieli po komnatach odmieniaæ sw¹ odzie¿,
+Nie chc¹c wniœæ do dam w kurtkach.
+Pierwsza wpad³a m³odzie¿,
+Pan Tadeusz i Hrabia, co ¿ywo przebrani.
+Telimena sprawuje obowi¹zki pani,
+Wita wchodz¹cych, sadza, rozmow¹ zabawia
+I siostrzenicê wszystkim z kolei przedstawia:
+Naprzód Tadeuszowi, jako krewn¹ blisk¹;
+Zosia grzecznie dygnê³a, on sk³oni³ siê nisko,
+Chcia³ coœ do niej przemówiæ, ju¿ usta otworzy³,
+Ale spójrzawszy w oczy Zosi, tak siê strwo¿y³,
+¯e stoj¹c niemy przed ni¹, to p³on¹³, to bladn¹³;
+Co by³o w jego sercu, on sam nie odgadn¹³.
+Uczu³ siê nieszczêœliwym bardzo - pozna³ Zosiê!
+Po wzroœcie i po w³osach œwiat³ych, i po g³osie;
+Tê kibiæ i tê g³ówkê widzia³ na parkanie,
+Ten wdziêczny g³os zbudzi³ go dziœ na polowanie.
+153
+A¿ Wojski Tadeusza wyrwa³ z zamiêszania;
+Widz¹c, ¿e blednie i ¿e na nogach siê s³ania,
+Radzi³ mu odejœæ do swej izby dla spoczynku;
+Tadeusz stan¹³ w k¹cie, wspar³ siê na kominku,
+Nic nie mówi¹c - szerokie, ob³êdne Ÿrenice
+Obraca³ to na ciotkê, to na siostrzenicê.
+Dostrzeg³a Telimena, i¿ pierwsze spojrzenie
+Zosi tak wielkie na nim zrobi³o wra¿enie;
+Nie odgad³a wszystkiego, przecie¿ pomieszana
+Bawi goœci, a z oczu nie spuszcza m³odziana.
+Wreszcie czas upatrzywszy ku niemu podbiega:
+Czy zdrów? dlaczego smutny? pyta siê, nalega,
+Napomyka o Zosi, zaczyna z nim ¿arty;
+Tadeusz nieruchomy, na ³okciu oparty,
+Nic nie gadaj¹c, marszczy³ brwi i usta krzywi³:
+Tym bardziej Telimenê pomiesza³ i Ÿdziwi³
+Zmieni³a wiêc natychmiast twarz i ton rozmowy,
+Powsta³a zagniewana i ostremi s³owy
+Poczê³a nañ przymówki sypaæ i wyrzuty;
+Porwa³ siê i Tadeusz jak ¿¹d³em uk³uty;
+Spojrza³ krzywo, nie mówi¹c ani s³owa splun¹³,
+Krzes³o nog¹ odepchn¹³ i z pokoju run¹³,
+Trzasn¹wszy drzwi za sob¹.
+Szczêœciem, ¿e tej sceny
+Nikt z goœci nie uwa¿a³ oprócz Telimeny.
+Wyleciawszy przez bramê, bieg³ prosto na pole;
+Jak szczupak, gdy mu oœcieñ skróœ piersi przekole,
+Pluska siê i nurtuje, myœl¹c, ¿e uciecze,
+154
+Ale wszêdzie ¿elazo i sznur z sob¹ wlecze:
+Tak i Tadeusz ci¹gn¹³ za sob¹ zgryzoty,
+Suwaj¹c siê przez rowy i skacz¹c przez p³oty,
+Bez celu i bez drogi; a¿ niema³o czasu
+Nab³¹kawszy siê, w koñcu wszed³ w g³êbinê lasu
+I trafi³, czy umyœlnie, czyli te¿ przypadkiem,
+Na wzgórek, co by³ wczora szczêœcia jego œwiadkiem,
+Gdzie dosta³ ów bilecik, zadatek kochania,
+Miejsce, jak wiemy, zwane Œwi¹tyni¹ dumania.
+Gdy okiem wko³o rzuca, postrzega: to ona!
+Telimena, samotna, w myœlach pogr¹¿ona,
+Od wczorajszej postaci¹ i strojem odmienna,
+W bieliŸnie, na kamieniu, sama jak kamienna;
+Twarz schylon¹ w otwarte utuli³a d³onie,
+Choæ nie s³yszysz szlochania, znaæ, ¿e we ³zach tonie.
+Daremnie broni³o siê serce Tadeusza:
+Ulitowa³ siê, uczu³, ¿e go ¿al porusza,
+D³ugo pogl¹da³ niemy, ukryty za drzewem,
+Na koniec westchn¹³ i rzek³ sam do siebie z gniewem:
+„G³upi! có¿ ona winna, ¿e siê ja pomyli³!”
+Wiêc z wolna g³owê ku niej zza drzewa wychyli³,
+Gdy nagle Telimena zrywa siê z siedzenia,
+Rzuca siê w prawo, w lewo, skacze skróœ strumienia,
+Rozkrzy¿owana, z w³osem rozpuszczonym, blada,
+Pêdzi w las, podskakuje, przyklêka, upada
+I nie mog¹c ju¿ powstaæ, krêci siê po darni.
+Widaæ z jej ruchów, w jakiej strasznej jest mêczarni;
+Chwyta siê za pierœ, szyjê, za stopy, kolana.
+155
+Skoczy³ Tadeusz, myœl¹c, ¿e jest pomieszana
+Lub ma wielk¹ chorobê. Lecz z innej przyczyny
+Pochodzi³y te ruchy.
+U bliskiej brzeziny
+By³o wielkie mrowisko. Owad gospodarny
+Snu³ siê wko³o po trawie, ruchawy i czarny;
+Nie wiedzieæ, czy z potrzeby, czy z upodobania
+Lubi³ szczególnie zwiedzaæ Œwi¹tyniê dumania;
+Od sto³ecznego wzgórka a¿ po Ÿród³a brzegi
+Wydepta³ drogê, któr¹ wiod³ swoje szeregi.
+Nieszczêœciem, Telimena siedzia³a œród dro¿ki;
+Mrówki znêcone blaskiem bieluchnej poñczoszki,
+Wbieg³y, gêsto zaczê³y ³askotaæ i k¹saæ,
+Telimena musia³a uciekaæ, otrz¹saæ,
+Na koniec na murawie si¹œæ i owad ³owiæ.
+Nie móg³ jej swej pomocy Tadeusz odmowiæ;
+Oczyszczaj¹c sukienkê, a¿ do nóg siê zni¿y³,
+Usta trafem ku skroniom Telimeny zbli¿y³ -
+W tak przyjaŸnej postawie, choæ nic nie mówili
+O rannych k³ótniach swoich, przecie¿ siê zgodzili;
+I nie wiedzieæ, jak d³ugo trwa³aby rozmowa,
+Gdyby ich nie przebudzi³ dzwonek z Soplicowa -
+Has³o wieczerzy. Pora powracaæ do domu,
+Zw³aszcza ¿e s³ychaæ by³o opodal trzask ³omu.
+Mo¿e szukaj¹? razem wracaæ nie wypada;
+Wiêc Telimena w prawo pod ogród siê skrada,
+156
+A Tadeusz na lewo bieg³ do wielkiej drogi;
+Oboje w tym odwrocie mieli nieco trwogi:
+Telimenie zda³o siê, ¿e raz spoza krzaka
+B³ys³a zakapturzona, chuda twarz Robaka,
+Tadeusz widzia³ dobrze, jak mu raz i drugi
+Pokaza³ siê na lewo cieñ bia³y i d³ugi.
+Co to by³o, nie wiedzia³, ale mia³ przeczucie,
+¯e to by³ Hrabia w d³ugim, angielskim surducie.
+Wieczerzano w zamczysku. Uparty Protazy,
+Nie dbaj¹c na wyraŸne Sêdziego zakazy,
+W niebytnoœæ pañstwa znowu do zamku szturmowa³
+I kredens doñ (jak mówi) zaintromitowa³.
+Goœcie weszli w porz¹dku i stanêli ko³em;
+Podkomorzy najwy¿sze bra³ miejsce za sto³em;
+Z wieku mu i z urzêdu ten zaszczyt nale¿y.
+Id¹c k³ania³ siê damom, starcom i m³odzie¿y.
+Kwestarz nie by³ u sto³u; miejsce Bernardyna
+Po prawej stronie mê¿a ma Podkomorzyna.
+Sêdzia, kiedy ju¿ goœci jak trzeba ustawi³,
+¯egnaj¹c po ³acinie, stó³ pob³ogos³awi³;
+Mê¿czyznom dano wódkê; za czym wszyscy siedli
+I ch³odnik zabielany milcz¹c ¿wawo jedli.
+Po ch³odniku sz³y raki, kurczêta, szparagi,
+W towarzystwie kielichów wêgrzyna, malagi;
+Jedz¹, pij¹, a milcz¹ wszyscy. Nigdy pono,
+Od czasu jako mury zamku podŸwigniono,
+157
+Który uracza³ hojnie tylu szlachty bratów,
+Tyle weso³ych s³ysza³ i odbi³ wiwatów,
+Nie pamiêtano takiej posêpnej wieczerzy;
+Tylko pukanie korków i brzêki talerzy
+Odbija³a zamkowa sieñ wielka i pusta:
+Rzek³byœ, i¿ z³y duch goœciom zasznurowa³ usta.
+Mnogie by³y powody milczenia: Myœliwi
+Powrócili z ostêpu dosyæ gadatliwi;
+Lecz gdy zapa³ och³on¹³, myœl¹c nad ob³aw¹,
+Postrzegaj¹, ¿e wyszli z niej nie z wielk¹ s³aw¹:
+Trzeba¿ by³o, a¿eby jeden kaptur popi,
+Wyrwawszy siê Bóg wie sk¹d, jak Filip z konopi,
+Przepisa³ wszystkich strzelców powiatu? O wstydzie!
+Có¿ o tem bêd¹ gadaæ w Oszmianie i Lidzie,
+Które od wieków walcz¹ z tutejszym powiatem
+O pierwszeñstwo w strzelectwie; myœlili wiêc nad tem.
+Zaœ Asesor i Rejent, prócz wspólnych niechêci,
+Œwie¿¹ hañbê swych chartów mieli na pamiêci.
+W oczach im stoi niecny kot, skoki wyci¹ga
+I omykiem spod gaju kiwaj¹c, ur¹ga,
+I tym omykiem æwiczy po sercach jak biczem.
+Siedzieli z pochylonem ku misie obliczem.
+Asesor nowe jeszcze mia³ powody ¿alów,
+Patrz¹c na Telimenê i na swych rywalów.
+Do Tadeusza siedzi Telimena bokiem,
+Pomieszana, zaledwie œmie nañ rzuciæ okiem.
+158
+Chcia³a zasêpionego Hrabiego zabawiæ,
+Wyzwaæ w d³u¿sz¹ rozmowê, w lepszy humor wprawiæ,
+Bo Hrabia dziwnie kwaœny powróci³ z przechadzki,
+A raczej, jako myœli³ Tadeusz, z zasadzki;
+S³uchaj¹c Telimeny, czo³o podnios³ hardo,
+Brwi zmarszczy³, spójrza³ na ni¹ ledwie nie z pogard¹;
+Potem przysiad³ siê, jak móg³ najbli¿ej, do Zosi,
+Nalewa jej do szklanki, talerze przynosi,
+Prawi tysi¹c grzecznoœci, k³ania siê, uœmiécha,
+Czasem oczy wywraca i g³êboko wzdycha.
+Widaæ przecie¿, pomimo tak zrêczne ³udzenie,
+¯e umizga³ siê tylko na z³oœæ Telimenie;
+Bo g³owê odwracaj¹c niby nieumyœlnie,
+Coraz ku Telimenie groŸnem okiem b³yœnie.
+Telimena nie mog³a poj¹æ, co to znaczy:
+Ruszywszy ramionami, myœli³a: dziwaczy.
+Wreszcie, nowym zalotom Hrabiego doœæ rada,
+Zwróci³a siê do swego drugiego s¹siada.
+Tadeusz, te¿ posêpny, nic nie jad³, nic nie pi³,
+Zdawa³ siê s³uchaæ rozmów, oczy w talerz wlepi³;
+Telimena mu leje wino, on siê gniewa
+Na natrêtnoœæ; pytany o zdrowie - poziewa.
+Ma za z³e (tak siê zmieni³ jednego wieczora),
+¯e Telimena zbytnie do zalotów skora;
+Gorszy siê, ¿e jej suknia tak wciêta g³êboko,
+Nieskromnie - a dopiero, kiedy podnios³ oko!
+A¿ przel¹k³ siê; bystrzejsze teraz mia³ Ÿrenice:
+159
+Ledwie spójrza³ w rumiane Telimeny lice,
+Odkry³ od razu wielk¹, straszn¹ tajemnicê!
+Przebóg! naró¿owana!
+Czy ró¿ w z³ym gatunku,
+Czy jakoœ na obliczu przetar³ siê z trefunku:
+Gdzieniegdzie zrzednia³, na wskroœ grubsz¹ p³eæ ods³ania.
+Mo¿e to sam Tadeusz, w Œwi¹tyni dumania
+Rozmawiaj¹c za blisko, omuskn¹³ z bielid³a
+Karmin, l¿ejszy od py³ków motylego skrzyd³a.
+Telimena wraca³a nazbyt œpieszno z lasu
+I poprawiæ kolory swe nie mia³a czasu;
+Oko³o ust szczególniej widne by³y piegi.
+Nu¿ oczy Tadeusza, jako chytre szpiegi,
+Odkrywszy jedn¹ zdradê, poczn¹ w kolej zwiedzaæ
+Resztê wdziêków i wszêdzie jakiœ fa³sz wyœledzaæ:
+Dwóch zêbów braknie w ustach; na czole, na skroni
+Zmarszczki; tysi¹ce zmarszczków pod brod¹ siê chroni!
+Niestety! Czu³ Tadeusz, jak jest niepotrzebnie
+Rzecz piêkn¹ nazbyt œciœle zwa¿aæ; jak haniebnie
+Byæ szpiegiem swej kochanki; nawet jak szkaradnie
+Odmieniaæ smak i serce - lecz któ¿ sercem w³adnie?
+Darmo chce brak mi³oœci zast¹piæ sumnieniem,
+Ch³od duszy ogrzaæ znowu jej wzroku promieniem:
+Ju¿ ten wzrok, jako ksiê¿yc œwiat³y, a bez ciep³a,
+B³yska³ po wierzchu duszy, która do dna krzep³a...
+Takie robi¹c sam sobie wyrzuty i skargi,
+Pochyli³ w talerz g³owê, milcza³ i gryz³ wargi.
+160
+Tymczasem z³y duch now¹ pokus¹ go wabi:
+Pods³uchiwaæ, co Zosia mówi³a do Hrabi.
+Dziewczyna, uprzejmoœci¹ Hrabiego ujêta,
+Zrazu rumieni³a siê spuœciwszy oczêta,
+Potem œmiaæ siê zaczêli, w koñcu rozmawiali
+O jakiemœ niespodzianem w ogrodzie spotkaniu,
+O jakiemœ po ³opuchach i grzêdach st¹paniu.
+Tadeusz, wyci¹gn¹wszy co najd³u¿ej uszy,
+Po³yka³ gorzkie s³owa i przetrawia³ w duszy,
+Okropn¹ mia³ biesiadê. Jak w ogrodzie Ÿmija
+Dwoistem ¿¹d³em zio³o zatrute wypija,
+Potem skrêci siê w k³êbek i na drodze legnie,
+Gro¿¹c stopie, co na ni¹ nieostró¿nie biegnie,
+Tak Tadeusz, opi³y trucizn¹ zazdroœci,
+Zdawa³ siê obojêtny, a pêka³ ze z³oœci.
+W najweselszem zebraniu niech siê kilku gniewa,
+Zaraz siê ich ponuroœæ na resztê rozlewa.
+Strzelcy dawniej milczeli, druga sto³u strona
+Umilk³a, Tadeusza ¿ó³ci¹ zara¿ona.
+Nawet pan Podkomorzy, nadzwyczaj ponury,
+Nie mia³ ochoty gadaæ, widz¹c swoje córy,
+Posa¿ne i nadobne panny, w wieku kwiecie,
+Zdaniem wszystkich najpierwsze partyje w powiecie,
+Milcz¹ce, zaniedbane od milcz¹cej m³odzi.
+Goœcinnego Sêdziego równie¿ to obchodzi;
+Wojski zaœ, uwa¿aj¹c, ¿e tak wszyscy milcz¹,
+Nazywa³ tê wieczerzê nie polsk¹, lecz wilcz¹.
+161
+Hreczecha na milczenie mia³ s³uch bardzo czu³y,
+Sam gawêda, i lubi³ niezmiernie gadu³y.
+Nie dziw! ze szlacht¹ strawi³ ¿ycie na biesiadach,
+Na polowaniach, zjazdach, sejmikowych radach;
+Przywyk³, ¿eby mu zawsze coœ bêbni³o w ucho,
+Nawet wtenczas, gdy milcza³ lub z plack¹ za much¹
+Skrada³ siê, lub zamkn¹wszy oczy siada³ marzyæ;
+W dzieñ szuka³ rozmów, w nocy musiano mu gwarzyæ
+Pacierze ró¿añcowe albo gadaæ bajki;
+St¹d te¿ nieprzyjacielem zabitym by³ fajki,
+Wymyœlonej od Niemców, by nas scudzoziemczyæ;
+Mawia³: „Polskê oniemiæ - jest to Polskê zniemczyæ”.
+Starzec, wiek przegwarzywszy, chcia³ spoczywaæ w gwarze;
+Milczenie go budzi³o ze snu: tak m³ynarze,
+Uœpieni kó³ tarkotem, ledwie stan¹ osie,
+Budz¹ siê, krzycz¹c z trwog¹: „A S³owo sta³o siê...”
+Wojski uk³onem dawa³ znak Podkomorzemu,
+A rêk¹ od ust lekko skin¹³ ku Sêdziemu,
+Prosz¹c o g³os; panowie na ten uk³on niemy
+Odk³onili siê oba, co znaczy: „prosiemy”.
+Wojski zagai³:
+„Œmia³bym upraszaæ m³odzie¿y,
+A¿eby po staremu bawiæ u wieczerzy,
+Nie milczeæ i ¿uæ: czy my ojce kapucyni?
+Kto milczy miêdzy szlacht¹, to w³aœnie tak czyni
+Jako myœliwiec, który nabój rdzawi w strzelbie;
+Dlatego ja rozmownoœæ naszych przodków wielbiê.
+162
+Po ³owach szli do sto³u, nie tylko by jadaæ,
+Ale aby nawzajem mogli siê wygadaæ,
+Co ka¿dy mia³ na sercu; nagany, pochwa³y
+Strzelców i ob³awników, ogary, wystrza³y
+Wywo³ywano na plac; powstawa³a wrzawa,
+Mi³a uchu myœliwców jak druga ob³awa.
+Wiem, wiem, o co wam idzie: ta czarnych trosk chmura
+Pono z Robakowego wznios³a siê kaptura!
+Wstydzicie siê swych pude³! Niech was wstyd nie pali,
+Zna³em myœliwych lepszych od was, a chybiali;
+Trafiaæ, chybiaæ, poprawiaæ - to kolej strzelecka.
+Ja sam, chocia¿ ze strzelb¹ w³oczê siê od dziecka,
+Chybia³em; chybia³ s³awny ów strzelec Tu³oszczyk,
+Nawet nie zawsze trafia³ pan Rejtan nieboszczyk.
+O Rejtanie opowiem póŸniej. Co siê tycze
+Wypuszczenia z ob³awy, ¿e oba panicze
+Zwierzowi jak nale¿y kroku nie dostali,
+Choæ mieli oszczep w rêku, tego nikt nie chwali
+Ani gani: bo zmykaæ, maj¹c naboj w rurze
+Znaczy³o po staremu: byæ tchórzem nad tchórze;
+To¿ wystrzeliæ na oœlep (jak to robi wielu),
+Nie przypuœciwszy zwierza, nie wzi¹wszy do celu,
+Jest rzecz haniebna; ale kto dobrze wymierzy,
+Kto przypuœci do siebie zwierza jak nale¿y,
+Jeœli chybi³, cofn¹æ siê mo¿e bez sromoty
+Albo walczyæ oszczepem, lecz z w³asnej ochoty,
+A nie z musu: gdy¿ oszczep strzelcom poruczony
+Nie dla natarcia, ale tylko dla obrony.
+Tak by³o po staremu: a wiêc mnie zawierzcie
+163
+I waszej rejterady do serca nie bierzcie,
+Kochany Tadeuszku i Wielmo¿ny Grafie!
+Ilekroæ zaœ wspomnicie o dzisiejszym trafie,
+Wspomnijcie te¿ starego Wojskiego przestrogê:
+Nigdy jeden drugiemu nie zachodziæ w drogê,
+Nigdy we dwóch nie strzelaæ do jednej Ÿwierzyny”.
+W³aœnie Wojski wymawia³ to s³owo: „Ÿwierzyny”,
+Gdy Asesor pó³gêbkiem podszepn¹³: „dziewczyny”;
+„Brawo!” krzyknê³a m³odzie¿, powsta³ szmer i œmiechy,
+Powtarzano z kolei przestrogê Hreczechy,
+Mianowicie ostatnie s³owo, ci: „Ÿwierzyny”,
+A drudzy, w g³os œmiej¹c siê, krzyczeli: „dziewczyny”;
+Rejent szepn¹³: „kobiety”, Asesor: „kokiety”,
+Utkwiwszy w Telimenie oczy jak sztylety.
+Nie myœli³ wcale Wojski przymawiaæ nikomu
+Ani uwa¿a³, co tam szepc¹ po kryjomu;
+Rad bardzo, ¿e móg³ damy i m³odzie¿ rozœmieszyæ,
+Zwróci³ siê ku myœliwcom, chc¹c i tych pocieszyæ.
+I zacz¹³, nalewaj¹c sobie kielich wina:
+„Nadaremnie oczyma szukam Bernardyna;
+Chcia³bym mu opowiedzieæ wypadek ciekawy,
+Podobny do zdarzenia dzisiejszej ob³awy.
+Klucznik mówi³, ¿e tylko zna³ jednego cz³eka,
+Co tak celnie jak Robak móg³ strzeliæ z daleka;
+Ja zaœ zna³em drugiego; równie trafnym strza³em
+Ocali³ on dwóch panów; sam ja to widzia³em,
+164
+Kiedy do nalibockich zaci¹gnêli lasów
+Tadeusz Rejtan pose³ i ksi¹¿ê Denassow.
+Nie zazdroœcili s³awie szlachcica panowie,
+Owszem u sto³u pierwsi wnieœli jego zdrowie,
+Nadawali mu wielkich prezentów bez liku
+I skórê zabitego dzika; o tym dziku
+I o strzale powiem wam jak naoczny œwiadek,
+Bo to by³ dzisiejszemu podobny przypadek,
+A zdarzy³ siê najwiêkszym strzelcom za mych czasów:
+Pos³owi Rejtanowi i ksiêciu Denassow”.
+A wtem ozwa³ siê Sêdzia nalewaj¹c czaszê:
+„Pijê zdrowie Robaka, Wojski, w rêce wasze!
+Jeœli datkiem nie mo¿em Kwestarza zbogaciæ,
+Postaramy siê przecie¿ za proch mu zap³aciæ;
+Urêczamy, ¿e niedŸwiedŸ zabity dziœ w boru
+Przez dwa lata wystarczy na kuchniê klasztoru.
+Lecz skóry Ksiêdzu nie dam; lub gwa³tem zabiorê,
+Albo j¹ mnich ust¹piæ musi przez pokorê,
+Albo j¹ kupiê choæby dziesi¹tkiem soboli.
+Skór¹ t¹ rozporz¹dzimy wedle naszej woli;
+Pierwszy wieniec i s³awê ju¿ wzi¹³ s³uga bo¿y,
+Skórê Jaœnie Wielmo¿ny Pan nasz Podkomorzy
+Temu da, kto na drug¹ nagrodê zas³u¿y³”.
+Podkomorzy pog³adzi³ czo³o i brwi zmru¿y³;
+Strzelcy zaczêli szemraæ, ka¿dy coœ powiada³,
+Tamten - jak zwierza znalaz³, ten - jak ranê zada³,
+Tamten psiarniê nawo³a³, ów zwierza nawróci³
+165
+Znowu w ostêp. Asesor z Rejentem siê k³óci³,
+Jeden wielbi¹c przymioty swojej Sanguszkówki,
+Drugi ba³abanowskiej swej Sagalasówki.
+„Sêdzio s¹siedzie - wreszcie wyrzek³ Podkomorzy -
+Pierwsz¹ nagrodê s³usznie zyska³ s³uga bo¿y;
+Lecz nie³acno rozs¹dziæ, kto jest po nim drugi,
+Bo wszyscy zdaj¹ mi siê mieæ równe zas³ugi,
+Wszyscy równi zrêcznoœci¹, bieg³oœci¹ i mêstwem.
+Przecie¿ dwóch dziœ odznaczy³ los niebezpieczeñstwem.
+Dwaj byli niedŸwiedziego najbli¿si pazura:
+Tadeusz i pan Hrabia; im nale¿y skóra.
+Pan Tadeusz ust¹pi (jestem tego pewny),
+Jako m³odszy i jako gospodarza krewny;
+Wiêc spolija opima weŸmiesz, Moœci Hrabia.
+Niech ten ³up tw¹ strzeleck¹ komnatê ozdabia,
+Niechaj pami¹tk¹ bêdzie dzisiejszej zabawy,
+God³em szczêœcia ³owczego, bodŸcem przysz³ej s³awy”.
+Umilkn¹³ weso³, myœl¹c, ¿e Hrabiê ucieszy³;
+Nie wiedzia³, jak boleœnie serce jego przeszy³.
+Bo Hrabia na strzeleckiej komnaty wspomnienie
+Mimowolnie wzrok podnios³: a te ³by jelenie,
+Te ga³êziste rogi, jakby las wawrzynów
+Zasiany rêk¹ ojców na wieñce dla synów,
+Te rzêdami portretów zdobione filary,
+Ten w sklepieniu b³yszcz¹cy herb Pó³kozic stary,
+Ozwa³y siê doñ zewsz¹d g³osami przesz³oœci;
+Zbudzi³ siê z marzeñ, wspomnia³, gdzie, u kogo goœci:
+166
+Dziedzic Horeszków goœciem œród swych w³asnych progów,
+Biesiadnikiem Sopliców, swych odwiecznych wrogów!
+A przy tem zawiœæ, któr¹ czu³ do Tadeusza,
+Tym mocniej Hrabiê przeciw Soplicom porusza.
+Rzek³ wiêc z gorzkim uœmiechem: „Mój domek zbyt ma³y
+Nie ma godnego miejsca na dar tak wspania³y;
+Niech lepiej niedŸwiedŸ czeka poœród tych rogaczy,
+A¿ mi go Sêdzia razem z zamkiem oddaæ raczy”.
+Podkomorzy, zgaduj¹c, na co siê zanosi,
+Zadzwoni³ w tabakierê z³ot¹, o g³os prosi.
+„Godzieneœ pochwa³ - rzecze - Hrabio, mój s¹siedzie,
+¯e dbasz o interesa nawet przy obiedzie;
+Nie tak jak modni wieku twojego panicze,
+¯yj¹cy bez rachunku. Ja tuszê i ¿yczê
+Zgod¹ zakoñczyæ moje s¹dy podkomorskie;
+Dot¹d jedyna trudnoœæ jest o fundum dworskie.
+Mam ju¿ projekt zamiany, fundum wynagrodziæ
+Ziemi¹ w sposób nastêpny...” - Tu zacz¹³ wywodziæ
+Porz¹dnie (jak zwyk³ zawsze) plan przysz³ej zamiany:
+Ju¿ by³ w po³owie rzeczy, gdy ruch niespodziany
+Wszcz¹³ siê na koñcu sto³a: jedni coœ postrzegli,
+Wskazuj¹ palcem, drudzy oczyma tam biegli,
+A¿ wreszcie wszystkie g³owy, jak k³osy schylone
+Wstecznym wiatrem, w przeciwn¹ zwróci³y siê stronê,
+W k¹t.
+167
+Z k¹ta, kêdy wisia³ portret nieboszczyka,
+Ostatniego z rodziny Horeszków, Stolnika,
+Z ma³ych drzwiczek, ukrytych pomiêdzy filary
+Wysunê³a siê cicho postaæ na kszta³t mary.
+Gerwazy! Poznano go po wzroœcie, po licach,
+Po srebrzystych na ¿ó³tej kurcie Pó³kozicach.
+St¹pa³ jako s³up prosto, niemy i surowy,
+Nie zdj¹wszy czapki, nawet nie schyliwszy g³owy;
+W rêku trzyma³ b³yszcz¹cy klucz, jakby pugina³,
+Odemkn¹³ szafê i w niej coœ krêciæ zaczyna³.
+Sta³y w dwóch k¹tach sieni, wsparte o filary,
+Dwa kurantowe, w szafach zamkniête zegary;
+Dziwaki stare, dawno ze s³oñcem w niezgodzie,
+Po³udnie wskazywa³y czêsto o zachodzie;
+Gerwazy nie przybra³ siê machinê naprawiæ,
+Ale bez nakrêcenia nie chcia³ jej zostawiæ,
+Drêczy³ kluczem zegary ka¿dego wieczora;
+W³aœnie teraz przypad³a nakrêcania pora.
+Gdy Podkomorzy spraw¹ zajmowa³ uwagê
+Stron interesowanych, on poci¹gn¹³ wagê:
+Zgrzytnê³y wyszczerbionym zêbem ko³a rdzawe;
+Wzdrygn¹³ siê Podkomorzy i przerwa³ rozprawê.
+„Bracie - rzek³ - od³o¿ nieco tw¹ piln¹ robotê!”
+I koñczy³ plan zamiany; lecz Klucznik na psotê
+Jeszcze silniej poci¹gn¹³ drugiego ciê¿aru;
+I wnet gil, który siedzia³ na wierzchu zegaru,
+Trzepioc¹c skrzyd³em, zacz¹³ ci¹æ kurantów nuty.
+Ptak sztucznie wyrobiony, szkoda, ¿e popsuty,
+168
+Zaj¹ka³ siê i piszcza³, im daléj, tem gorzéj.
+Goœcie w œmiech; musia³ przerwaæ znowu Podkomorzy.
+„Moœci Kluczniku - krzykn¹³ - lub raczej puszczyku,
+Jeœli dziob twój szanujesz, doœæ mi tego krzyku!”
+Ale Gerwazy groŸb¹ wcale siê nie strwo¿y³,
+Praw¹ rêkê powa¿nie na zegar po³o¿y³,
+A lew¹ wzi¹³ siê pod bok; tak obur¹cz wsparty,
+„Podkomorzeñku! - krzykn¹³. - Wolne pañskie ¿arty.
+Wróbel mniejszy ni¿ puszczyk, a na swoich wiorach
+Œmielszy jest ani¿eli puszczyk w cudzych dworach:
+Co klucznik, to nie puszczyk; kto w cudze poddasze
+Noc¹ w³azi, ten puszczyk, i ja go wystraszê”.
+„Za drzwi z nim !” - Podkomorzy krzykn¹³. - „Panie Hrabia! -
+Zawo³a³ Klucznik. - Widzisz Pan, co siê wyrabia?
+Czy nie dosyæ siê jeszcze Pañski honor plami,
+¯e Pan jadasz i pijasz z temi Soplicami?
+Trzeba¿ jeszcze, aby mnie, zamku urzêdnika,
+Gerwazego Rêbaj³ê, Horeszków klucznika,
+L¿yæ w domu Panów moich? I Pan¿e to zniesie?”
+Wtem Protazy zawo³a³ trzykroæ: „Uciszcie siê!
+Na ust¹p! Ja, Protazy Baltazar Brzechalski,
+Dwojga imion, jenera³ niegdyœ trybunalski,
+Vulgo woŸny, woŸneñsk¹ obdukcyj¹ robiê
+I wizyj¹ formaln¹, zamawiaj¹c sobie
+Urodzonych tu wszystkich obecnych œwiadectwo
+I pana Asesora wzywaj¹c na œledztwo
+169
+Z powodu Wielmo¿nego Sêdziego Soplicy:
+O inkursyj¹, to jest o najazd granicy,
+Gwa³t zamku, w którym Sêdzia dot¹d prawnie w³ada,
+Czego dowodem jawnym jest, ¿e w zamku jada”.
+„Brzechaczu! - wrzasn¹³ Klucznik. - Ja ciê wnet nauczê!”
+I dobywszy zza pasa swe ¿elazne klucze,
+Okrêci³ wko³o g³owy, puœci³ z ca³ej mocy;
+Pêk ¿elaza wylecia³ jako kamieñ z procy.
+Pewnie ³eb Protazemu rozbi³by na æwierci;
+Szczêœciem, schyli³ siê WoŸny i wydar³ siê œmierci.
+Porwali siê z miejsc wszyscy, chwilê by³a g³ucha
+Cichoœæ, a¿ Sêdzia krzykn¹³: „W dyby tego zucha!
+Hola, ch³opcy!” - i czeladŸ rzuci³a siê ¿wawo
+Ciasnym przejœciem pomiêdzy œcianami i ³aw¹.
+Lecz Hrabia krzes³em w œrodku zagrodzi³ im drogê
+I na tym szañcu s³abym utwierdziwszy nogê:
+„Wara! - zawo³a³. - Sêdzio! nie wolno nikomu
+Krzywdziæ s³ugê mojego w moim w³asnym domu;
+Kto ma na starca skargê, niech j¹ mnie prze³o¿y”.
+Zyzem w oczy Hrabiemu spojrza³ Podkomorzy:
+„Bez waœcinej pomocy ukaraæ potrafiê
+Zuchwa³ego szlachetkê; a Waœæ, Moœci Grafie,
+Przed dekretem ten zamek za wczeœnie przyw³aszczasz;
+Nie Waæ tu jesteœ panem, nie Waæ nas ugaszczasz;
+SiedŸ cicho, jakeœ siedzia³; jeœli siwej g³owy
+Nie czcisz, to szanuj pierwszy urz¹d powiatowy”.
+170
+„Co mi? - odmrukn¹³ Hrabia. - Doœæ ju¿ tej gawêdy!
+NudŸcie drugich waszymi wzglêdy i urzêdy.
+Doœæ ju¿ g³upstwa zrobi³em wdaj¹c siê z Waæpañstwem
+W pijatyki, które siê koñcz¹ grubijañstwem.
+Zdacie mi sprawê z mego honoru obrazy.
+Do widzenia po trzeŸwu - pódŸ za mn¹, Gerwazy!”
+Nigdy siê odpowiedzi takiej nie spodziewa³
+Podkomorzy; w³aœnie swój kieliszek nalewa³,
+Gdy zuchwalstwem Hrabiego ra¿ony jak gromem,
+Opar³szy siê o kielich butlem nieruchomym,
+G³owê wyci¹gn¹³ na bok i ucha przy³o¿y³,
+Oczy rozwar³ szeroko, usta wpó³ otworzy³;
+Milcza³, lecz kielich w rêku tak potê¿nie cisn¹³,
+¯e szk³o dŸwiêkn¹wszy pêk³o, p³yn w oczy mu prysn¹³.
+Rzek³byœ, i¿ z winem ognia w duszê siê nala³o,
+Tak oblicze sp³onê³o, tak oko pa³a³o.
+Zerwa³ siê mówiæ, pierwsze s³owo niewyraŸnie
+Mle³ w ustach, a¿ przez zêby wylecia³o: „B³aŸnie!
+Grafi¹tko! ja ciê... Tomasz, karabelê! Ja tu
+Nauczê ciebie mores, b³aŸnie! Daj go katu!
+Wzglêdy, urzêdy nudz¹, uszko delikatne!
+Ja ciê tu zaraz po tych zauszniczkach p³atnê!
+Fora za drzwi! do korda! Tomasz, karabelê!”
+Wtem do Podkomorzego skocz¹ przyjaciele;
+Sêdzia porwa³ mu rêkê: „Stój Pan, to rzecz nasza,
+Mnie tu naprzód wyzwano; Protazy, pa³asza!
+171
+Puszczê go w taniec jako niedŸwiadka na kiju”.
+Lecz Tadeusz Sêdziego wstrzyma³: „Panie Stryju,
+Wielmo¿ny Podkomorzy, czy¿ siê Pañstwu godzi
+Wdawaæ siê z tym fircykiem, czy tu nie ma m³odzi?
+Na mnie siê zdajcie, ja go nale¿ycie skarcê;
+A Waszeæ, panie œmia³ku, co wyzywasz starce,
+Obaczym, czyli jesteœ tak strasznym rycerzem;
+Rozprawimy siê jutro, plac i broñ wybierzem.
+Dziœ uchodŸ, pókiœ ca³y!”
+Dobra by³a rada;
+Klucznik i Hrabia wpadli w obroty nie lada.
+Przy wy¿szym koñcu sto³a wrza³ tylko krzyk wielki,
+Ale z ostrego koñca lata³y butelki
+Ko³o Hrabiego g³owy. Strwo¿one kobiety
+W proœby, w p³acz; Telimena, krzykn¹wszy: „Niestety!”
+Wznios³a oczy, powsta³a i pad³a zemdlona,
+I przechyliwszy szyjê przez Hrabi ramiona,
+Na pierœ jego z³o¿y³a swe piersi ³abêdzie.
+Hrabia, choæ zagniewany, wstrzyma³ siê w zapêdzie,
+Zacz¹³ cuciæ, ocieraæ.
+Tymczasem Gerwazy,
+Wystawiony na sto³ków i butelek razy,
+Ju¿ zachwia³ siê, ju¿ czeladŸ zakasawszy piêœcie,
+Rzuca³a siê nañ zewsz¹d hurmem, gdy na szczêœcie
+Zosia, widz¹c szturm, skoczy i litoœci¹ zdjêta
+Zas³ania starca, na krzy¿ rozpi¹wszy r¹czêta.-
+Wstrzymali siê;
+172
+Gerwazy z wolna ustêpowa³,
+Znikn¹³ z oczu, szukano, gdzie siê pod stó³ schowa³,
+Gdy nagle z drugiej strony wyszed³ jak spod ziemi,
+Podnios³szy w górê ³awê ramiony silnemi,
+Okrêci³ siê jak wiatrak, oczyœci³ pó³ sieni,
+Wzi¹³ Hrabiê i tak oba ³aw¹ zas³onieni
+Cofali siê ku drzwiczkom; ju¿ dochodz¹ progów,
+Gerwazy stan¹³, jeszcze raz spojrza³ na wrogów,
+Duma³ chwilê, niepewny, czy cofaæ siê zbrojnie,
+Czyli z nowym orê¿em szukaæ szczêœcia w wojnie.
+Obra³ drugie; ju¿ ³awê jak taran murowy
+W ty³ dŸwign¹³ dla zamachu, ju¿ ugi¹wszy g³owy,
+Z wypiêt¹ naprzód piersi¹, z podniesion¹ nog¹
+Mia³ wpaœæ... ujrza³ Wojskiego, uczu³ w sercu trwogê.
+Wojski, cicho siedz¹cy z przymru¿onem okiem,
+Zdawa³ siê pogr¹¿ony w dumaniu g³êbokiem;
+Dopiero gdy siê Hrabia z Podkomorzym sk³óci³
+I Sêdziemu pogrozi³, Wojski g³owê zwróci³,
+Za¿y³ dwakroæ tabaki i przetar³ powieki.
+Chocia¿ Wojski Sêdziemu by³ krewny daleki,
+Ale w goœcinnym jego domu zamieszka³y,
+O zdrowie przyjaciela by³ niezmiernie dba³y.
+Przypatrywa³ siê zatem z ciekawoœci¹ walce,
+Wyci¹gn¹³ z lekka na stó³ rêkê, d³oñ i palce,
+Po³o¿y³ nó¿ na d³oni, trzonkiem do paznokcia
+Indeksu, a ¿elazem zwrócony do ³okcia,
+Potem rêk¹ w ty³ nieco wychylon¹ kiwa³,
+Niby bawi¹c siê, lecz siê w Hrabiego wpatrywa³.
+173
+Sztuka rzucania no¿ów, straszna w rêcznej bitwie,
+Ju¿ by³a zaniechana podówczas na Litwie,
+Znajoma tylko starym; Klucznik jej probowa³
+Nieraz w zwadach karczemnych. Wojski w niej celowa³,
+Widaæ z zamachu rêki, ¿e silnie uderzy,
+A z oczu ³acno zgadn¹æ, ¿e w Hrabiego mierzy
+(Ostatniego z Horeszków, chocia¿ po k¹dzieli).
+Mniej baczni m³odzi ruchów starca nie pojêli;
+Gerwazy zbladn¹³, ³aw¹ Hrabiego zak³ada,
+Cofa siê ku drzwiom.
+„£apaj!” - krzyknê³a gromada.
+Jako wilk obskoczony znienacka przy œcierwie
+Rzuca siê oœlep w zgrajê, co mu ucztê przerwie,
+Ju¿ goni, ma j¹ szarpaæ, wtem œród psiego wrzasku
+Trzas³o ciche pó³korcze... wilk zna je po trzasku,
+Œledzi okiem, postrzega, ¿e z ty³u za charty
+Myœliwiec wpó³ schylony, na kolanie wsparty,
+Rur¹ ku niemu wije i ju¿ cyngla tyka;
+Wilk uszy spuszcza, ogon podtuliwszy zmyka,
+Psiarnia z tryumfuj¹cym rzuca siê ha³asem
+I skubie go po kud³ach, zwierz zwraca siê czasem,
+Spojrzy, klapnie paszczêk¹, i bia³ych k³ów zgrzytem
+Ledwie pogrozi, psiarnia pierzcha ze skowytem:
+Tak i Gerwazy z groŸn¹ cofa³ siê postaw¹,
+Wstrzymuj¹c napastników oczyma i ³aw¹,
+A¿ razem z Hrabi¹ wpadli w g³¹b ciemnej framugi.
+174
+„£apaj!” - krzykniono znowu; tryumf by³ nied³ugi:
+Bo nad g³owami t³umu Klucznik niespodzianie
+Ukaza³ siê na chorze przy starym organie
+I z trzaskiem j¹³ wyrywaæ o³owiane rury.
+Wielk¹ by klêskê zada³, uderzaj¹c z góry.
+Ale ju¿ goœcie t³umnie wychodzili z sieni,
+Nie œmieli kroku dostaæ s³udzy potrwo¿eni
+I chwytaj¹c naczynia w œlad panów uciekli,
+Nawet nakrycia z czêœci¹ sprzêtów siê wyrzekli.
+Któ¿ ostatni, nie dbaj¹c na groŸby i razy,
+Ust¹pi³ z placu bitwy? - Brzechalski Protazy.
+On, za krzes³em Sêdziego stoj¹c niewzruszenie,
+Ci¹gn¹³ woŸnieñskim g³osem swoje oœwiadczenie,
+A¿ skoñczy³ i z pustego zszed³ pobojowiska,
+Kêdy zosta³y trupy, ranni i zwaliska.
+W ludziach straty nie by³o; ale wszystkie ³awy
+Mia³y zwichnione nogi, stó³ tak¿e kulawy,
+Obna¿ony z obrusa, poleg³ na talerzach
+Zlanych winem, jak rycerz na krwawych puklerzach,
+Miêdzy licznemi kurcz¹t i jendyków cia³y,
+W których piersi widelce œwie¿o wbite tkwia³y.
+Po chwili w Horeszkowskim samotnym budynku
+Wszystko do zwyczajnego wraca³o spoczynku.
+Mrok zgêstnia³; reszty pañskiej wspania³ej biesiady
+Le¿¹, podobne uczcie nocnej, gdzie na Dziady
+Zgromadziæ siê zaklête maj¹ nieboszczyki.
+175
+Ju¿ na poddaszu trzykroæ krzyknê³y puszczyki
+Jak guœlarze; zdaj¹ siê witaæ wschód miesi¹ca,
+Którego postaæ oknem spad³a na stó³, dr¿¹ca
+Niby dusza czyscowa; z podziemu, przez dziury
+Wyskakiwa³y na kszta³t potêpieñców szczury...
+Gryz¹, pij¹; czasami w k¹cie zapomniana
+Puknie na toast duchom butelka szampana.
+Ale na drugiem piêtrze, w izbie, któr¹ zwano,
+Choæ by³a bez zwierciade³, izb¹ zwierciadlan¹,
+Sta³ Hrabia na kru¿ganku zwróconym ku bramie;
+Ch³odzi³ siê wiatrem, surdut wdzia³ na jedno ramiê,
+Drugi rêkaw i po³y u szyi sfa³dowa³
+I pierœ surdutem, jakby p³aszczem, udrapowa³.
+Gerwazy chodzi³ kroki wielkiemi po sali;
+Obadwa zamyœleni, do siebie gadali:
+„Pistolety - rzek³ Hrabia - lub gdy chc¹, pa³asze”.
+„Zamek - rzek³ Klucznik - i wieœ, oboje to nasze”.
+„Stryja, synowca - wo³a³ Hrabia - ca³e plemiê
+Wyzywaj!” - „Zamek - wo³a³ Klucznik - wieœ i ziemie
+Zabieraj Pan!” To mówi¹c zwróci³ siê do Hrabi:
+„Jeœli Pan chce mieæ pokój, niech wszystko zagrabi.
+Po co proces, Mopanku! Sprawa jak dzieñ czysta:
+Zamek w rêku Horeszków by³ przez lat czterysta;
+Czêœæ gruntów oderwano w czasie Targowicy
+I, jak Pan wie, oddano w³adaniu Soplicy.
+Nie tylko tê czêœæ, wszystko zabraæ im nale¿y
+Za koszta procesowe, za karê grabie¿y.
+Mówi³em Panu zawsze: procesów zaniechaæ,
+176
+Mówi³em Panu zawsze: najechaæ, zajechaæ!
+Tak by³o po dawnemu: kto raz grunt posi¹dzie,
+Ten dziedzic; wygraj w polu, a wygrasz i w s¹dzie.
+Co siê tycze dawniejszych z Soplicami sprzéczek,
+Jest na to od procesu lepszy Scyzoryczek;
+A jeœli Maciej w pomoc da mi sw¹ Rózeczkê,
+To my we dwóch, Sopliców tych porzniem na sieczkê”.
+„Brawo! - rzek³ Hrabia. - Plan twój gotycko-sarmacki
+Podoba siê mi lepiej ni¿ spór adwokacki.
+Wiesz co? Na ca³ej Litwie narobim ha³asu
+Wypraw¹ nies³ychan¹ od dawnego czasu.
+I sami siê zabawim. Dwa lata tu siedzê,
+Jak¹¿ bitwê widzia³em? z ch³opami o miedzê.
+Nasza wyprawa przecie¿ krwi rozlanie wró¿y;
+Odby³em tak¹ jedn¹ w czasie mych podró¿y.
+Gdym w Sycyliji bawi³ u pewnego ksiêcia,
+Rozbójnicy porwali w górach jego ziêcia
+I okupu od krewnych ¿¹dali zuchwale;
+My, zebrawszy naprêdce s³ugi i wasale,
+Wpadliœmy; ja dwóch zbojców rêk¹ m¹ zabi³em,
+Pierwszy wlecia³em w tabor, wiêŸnia uwolni³em.
+Ach, mój Gerwazy! jaki to by³ tryumfalny,
+Jaki piêkny nasz powrót, rycersko-feudalny!
+Lud z kwiatami spotyka³ nas - córka ksi¹¿êcia,
+Wdziêczna zbawcy, ze ³zami wpad³a w me objêcia.
+Gdym przyby³ do Palermo, wiedziano z gazety,
+Palcami wskazywa³y miê wszystkie kobiety.
+Nawet wydrukowano o ca³em zdarzeniu
+177
+Romans, gdzie wymieniony jestem po imieniu.
+Romans ma tytu³: Hrabia, czyli tajemnice
+Zamku Birbante-rokka.
+Czy s¹ tu ciemnice
+W tym zamku?” -
+„S¹ - rzek³ Klucznik - ogromne piwnice,
+Ale puste! Bo wino wypili Soplice”.
+„D¿okejów - doda³ Hrabia - uzbroiæ we dworze,
+Z w³oœci wezwaæ wasalów!”
+„Lokajów? broñ Bo¿e! -
+Przerwa³ Gerwazy. - Czy to zajazd jest hultajstwem?
+Kto widzia³ zajazd robiæ z ch³opstwem i z lokajstwem?
+Mój Panie, na zajazdach nie znacie siê wcale;
+W¹salów - co innego, zdadz¹ siê w¹sale.
+Nie we w³oœci ich szukaæ, ale po zaœciankach:
+W Dobrzynie, w Rzezikowie, w Ciêtyczach, w R¹bankach;
+Szlachta odwieczna, w której krew rycerska p³ynie;
+Wszyscy przychylni panów Horeszków rodzinie,
+Wszyscy nieprzyjaciele zabici Sopliców!
+Stamt¹d zbiorê ze trzystu w¹satych szlachciców;
+To rzecz moja. Pan niechaj do pa³acu wraca
+I wyœpi siê, bo jutro bêdzie wielka praca;
+Pan spaæ lubi, ju¿ póŸno, drugi kur ju¿ pieje;
+Ja tu bêdê pilnowaæ zamku, a¿ rozdnieje,
+A ze s³oneczkiem stanê w Dobrzyñskim zaœcianku”.
+Na te s³owa pan Hrabia ust¹pi³ z kru¿ganku;
+Ale nim odszed³, spójrza³ przez otwór strzelnicy
+I widz¹c œwiate³ mnóstwo w domostwie Soplicy:
+178
+„Iluminujcie! - krzykn¹³. - Jutro o tej porze
+Bêdzie jasno w tym zamku, ciemno w waszym dworze!”
+Gerwazy siad³ na ziemi, opar³ siê o œcianê
+I pochyli³ ku piersiom czo³o zadumane;
+Œwiat³oœæ miesiêczna pad³a na wierzch g³owy ³ysy,
+Gerwazy po nim kryœli³ palcem ró¿ne rysy;
+Widaæ, ¿e przysz³ych wypraw snu³ plany wojenne.
+Ciê¿¹ mu coraz bardziej powieki brzemienne,
+Bezw³adn¹ kiwn¹³ szyj¹, czu³, ¿e go sen bierze;
+Zacz¹³ wedle zwyczaju wieczorne pacierze.
+Lecz miêdzy Ojczenaszem i Zdrowaœ Maryj¹
+Dziwne stanê³y mary, t³ocz¹ siê i wij¹:
+Klucznik widzi Horeszki, swoje dawne pany,
+Ci nios¹ karabele, drudzy buzdygany,
+Ka¿dy groŸnie spoziera i pokrêca w¹sa,
+Sk³ada siê karabel¹, buzdyganem wstrz¹sa -
+Za nimi jeden cichy, posêpny cieñ mign¹³,
+Z krwaw¹ na piersi plam¹. Gerwazy siê wzdrygn¹³,
+Pozna³ Stolnika; zacz¹³ wko³o siebie ¿egnaæ
+I a¿eby tym pewniej straszne sny rozegnaæ,
+Odmawia³ litanij¹ o czyscowych duszach.
+Znowu wzrok mu sklei³ siê, zadzwoni³o w uszach -
+Widzi t³um szlachty konnej, b³yszcz¹ karabele:
+Zajazd! zajazd Korelicz, i Rymsza na czele!
+I ogl¹da sam siebie, jak na koniu siwym,
+Z podniesionym nad g³owê rapierem straszliwym
+Leci; rozpiêta na wiatr szumi taratatka,
+179
+KSIÊGA SZÓSTA
+ZAŒCIANEK
+Treœæ:
+Pierwsze ruchy wojenne zajazdu - Wyprawa Protazego - Robak z panem
+Sêdzi¹ radz¹ o rzeczy publicznej - Dalszy ci¹g wyprawy Protazego,
+bezskutecznej - Ustêp o konopiach - Zaœcianek szlachecki Dobrzyn -
+Opisanie domostwa i osoby Maæka Dobrzyñskiego.
+181
+Nieznacznie z wilgotnego wykrada³ siê mroku
+Œwit bez rumieñca, wiod¹c dzieñ bez œwiat³a w oku.
+Dawno wszed³ dzieñ, a jeszcze ledwie jest widomy.
+Mg³a wisia³a nad ziemi¹, jak strzecha ze s³omy
+Nad ubog¹ Litwina chatk¹; w stronie wschodu
+Widaæ z bielszego nieco na niebie obwodu,
+¯e s³oñce wsta³o, têdy ma zst¹piæ na ziemiê,
+Lecz idzie nieweso³o i po drodze drzemie.
+Za przyk³adem niebieskim wszystko siê spóŸni³o
+Na ziemi; byd³o poŸno na paszê ruszy³o
+I zdyba³o zaj¹ce przy póŸnem œniadaniu;
+One zwyk³y do gajów wracaæ o œwitaniu,
+Dziœ, okryte tumanem, te mokrzycê chrupi¹,
+Te, jamki w roli kopi¹c, parami siê kupi¹
+I na wolnem powietrzu myœl¹ u¿yæ wczasu;
+Ale przed byd³em musz¹ powracaæ do lasu.
+I w lasach cisza. Ptaszek zbudzony nie œpiewa,
+Otrz¹sn¹³ pierze z rosy, tuli siê do drzewa,
+G³owê wciska w ramiona, oczy znowu mru¿y
+I czeka s³oñca. Kêdyœ u brzegów ka³u¿y
+Klekce bocian; na kopach siedz¹ wrony zmok³e,
+Rozdziawiwszy siê ci¹gn¹ gawêdy rozwlok³e,
+Obrzyd³e gospodarzom jako wró¿by s³oty.
+Gospodarze ju¿ dawno wyszli do roboty.
+Ju¿ zaczê³y ¿niwiarki sw¹ piosnkê zwyczajn¹,
+Jak dzieñ s³otny ponur¹, têskn¹, jednostajn¹,
+182
+Tem smutniejsz¹, ¿e dŸwiêk jej w mg³ê bez echa wsi¹ka;
+Chrz¹snê³y sierpy w zbo¿u, ozwa³a siê ³¹ka,
+Rz¹d kosiarzy otawê siek¹cych wci¹¿ brz¹ka,
+Pogwizduj¹c piosenkê; z koñcem ka¿dej zwrotki
+Staj¹, ostrz¹ ¿elezca i w takt kuj¹ w m³otki.
+Ludzi we mgle nie widaæ, tylko sierpy, kosy
+I pieœni brzmi¹ jak muzyk niewidzialnych g³osy.
+W œrodku na snopie zbo¿a ekonom usiad³szy,
+Nudzi siê, krêci g³ow¹, roboty nie patrzy,
+Pogl¹da na goœciniec, na drogi rozstajne,
+Kêdy dzia³y siê jakieœ rzeczy nadzwyczajne.
+Na goœciñcu i drogach od samego ranka
+Panuje ruch niezwyk³y; st¹d ch³opska furmanka
+Skrzypi, lec¹c jak poczta, st¹d szlachecka bryka
+Czwa³em tarkocze, drug¹ i trzeci¹ spotyka;
+Z lewej drogi pos³aniec jak kuryjer goni,
+Z prawej przebieg³o w zawód kilkanaœcie koni,
+Wszyscy spiesz¹, ku ró¿nym kieruj¹ siê stronom.
+Co to ma znaczyæ? Powsta³ ze snopa ekonom,
+Chcia³ przypatrzyæ siê, spytaæ; d³ugo sta³ nad drog¹,
+Daremnie wo³a³, nie móg³ zatrzymaæ nikogo
+Ni poznaæ we mgle. Jezdni migaj¹ jak duchy,
+Tylko s³ychaæ raz po raz têtent kopyt g³uchy
+I, co dziwniejsza jeszcze, szczêkanie pa³aszy:
+Bardzo to ekonoma i cieszy, i straszy.
+Bo choæ na Litwie by³o naonczas spokojnie,
+Dawno ju¿ wieœci g³uche biega³y o wojnie,
+183
+O Francuzach, D¹browskim, o Napoleonie.
+Mia³y¿by wojnê wró¿yæ ci jezdzcy? te bronie?
+Ekonom pobieg³ wszystko Sêdziemu powiedzieæ,
+Spodziewaj¹c siê i sam czegoœ siê dowiedzieæ.
+W Soplicowie domowi i goœcie, po k³ótni
+Wczorajszej wstali z siebie nieradzi i smutni.
+Pró¿no Wojszczanka damy na kaba³ê sprasza,
+Mê¿czyznom pró¿no karty daj¹ do mariasza:
+Nie chc¹ bawiæ siê ni graæ, siedz¹ cicho w k¹tkach,
+Mê¿czyŸni pal¹ lulki, kobiety przy pr¹tkach;
+Nawet œpi¹ muchy.
+Wojski, rzuciwszy ³opatkê,
+Znudzony cisz¹, idzie pomiêdzy czeladkê.
+Woli w kuchennej s³uchaæ ochmistrzyni krzyków,
+GroŸb i razów kucharza, ha³asu kuchcików;
+A¿ go powoli wprawi³ w przyjemne marzenie
+Ruch jednostajny ro¿nów krêc¹cych pieczenie.
+Sêdzia od rana pisa³, zamkn¹wszy siê w izbie,
+WoŸny od rana czeka³ pod oknem na przyzbie;
+Sêdzia, skoñczywszy pozew, Protazego wzywa,
+Skargê przeciw Hrabiemu g³oœno odczytywa:
+O skrzywdzenie honoru, zel¿ywe wyrazy,
+Zaœ przeciw Gerwazemu o gwa³ty i razy;
+Obudwu o przechwa³ki, o koszta z powodu
+Procesu - ci¹gnie w rejestr taktowy do grodu.
+Pozew dziœ trzeba wrêczyæ ustnie, oczywisto,
+184
+Nim zajdzie s³oñce. WoŸny z min¹ uroczyst¹
+Wyci¹gn¹³ s³uch i rêkê, skoro pozew zoczy³;
+Sta³ powa¿nie, a rad by z radoœci podskoczy³.
+Na sam¹ myœl procesu czu³, ¿e siê odm³odzi³:
+Wspomnia³ na dawne lata, gdy z pozwami chodzi³
+Po guzy, ale razem po zap³aty hojne.
+Tak ¿o³nierz, który strawi³ ¿ycie tocz¹c wojnê,
+A na staroœæ w szpitalach spoczywa kaleki,
+Skoro us³yszy tr¹bê lub bêben daleki,
+Chwyta siê z ³o¿a, krzyczy przez sen: „Bij Moskala!”
+I na drewnianej nodze skacze ze szpitala
+Tak prêdko, ¿e go ledwie mo¿e z³owiæ m³odzie¿.
+Protazy œpieszy³ w³o¿yæ sw¹ woŸnieñsk¹ odzie¿.
+Przecie¿ ¿upana ani kontusza nie k³adzie,
+One s³u¿¹ ku wielkiej s¹dowej paradzie;
+Na podró¿ ma strój inny: szerokie rajtuzy
+I kurtê, której po³y, podpiête na guzy,
+Mo¿na zakasaæ albo spuœciæ na kolana;
+Czapka z uszami, sznurkiem u wierzchu zwi¹zana,
+Wznosi siê na pogodê, spuszcza siê przed s³ot¹.
+Tak ubrany, wzi¹³ pa³kê i ruszy³ piechot¹.
+Bo woŸni przed procesem, jak szpiegi przed bojem,
+Musz¹ kryæ siê pod ró¿n¹ postaci¹ i strojem.
+Dobrze zrobi³ Protazy, ¿e w drogê pospieszy³,
+Bo nied³ugo by swoim pozwem siê nacieszy³.
+W Soplicowie zmieniano kampaniji plany.
+Do Sêdziego wpad³ nagle Robak zadumany
+185
+I rzek³: „Sêdzio, to bieda nam z t¹ pani¹ ciotk¹,
+Z t¹ pani¹ Telimen¹, kokietk¹ i trzpiotk¹!
+Kiedy Zosia zosta³a dzieckiem w biednym stanie,
+Jacek j¹ Telimenie da³ na wychowanie,
+S³ysz¹c, ¿e jest osoba dobra, œwiat znaj¹ca,
+A postrzegam, ¿e ona coœ tu nam zam¹ca,
+Intryguje i pono Tadeuszka wabi;
+Œledzê j¹; albo mo¿e bierze siê do Hrabi,
+Mo¿e do obu razem. Obmyœlmy wiêc œrodki,
+Jak siê jej pozbyæ, bo st¹d mog¹ uroœæ plotki,
+Z³y przyk³ad i pomiêdzy m³okosami zwady,
+Które mog¹ pomieszaæ twe prawne uk³ady”.
+„Uk³ady? - krzykn¹³ Sêdzia z niezwyk³ym zapa³em -
+Z uk³adów kwita, ju¿ je skoñczy³em, zerwa³em”.
+„A to co? - przerwa³ Robak. - Gdzie rozum? gdzie g³owa?
+Co tu mi Wasze bajasz? jaka burda nowa?”
+„Nie z mej winy - rzek³ Sêdzia. - Proces to wyjaœni:
+Hrabia, pysza³ek, g³upiec, by³ przyczyn¹ waœni,
+I Gerwazy ³otr; lecz to do s¹du nale¿y.
+Szkoda, ¿eœ nie by³, Ksiê¿e, w zamku na wieczerzy,
+Poœwiadczy³byœ, jak Hrabia srodze mnie obrazi³”.
+„Po coœ Waœæ - krzykn¹³ Robak - do tych ruin ³azi³?
+Wiesz, jak zamku nie cierpiê; odt¹d moja noga
+Tam nie postanie. Znowu k³ótnia! kara Boga!
+Jak¿e tam by³o? powiedz; trzeba tê rzecz zatrzeæ.
+Ju¿ miê znudzi³o wreszcie na tyle g³upstw patrzeæ.
+Wa¿niejsze ja mam sprawy ni¿ godziæ pieniaczy,
+Ale jeszcze raz zgodzê”.
+„Zgodziæ? Có¿ to znaczy!
+186
+A idŸ¿e mi Waœæ wreszcie z t¹ zgod¹ do licha! -
+Przerwa³ Sêdzia, tupn¹wszy nog¹. - Patrzcie mnicha!
+¯e go przyjmujê grzecznie, chce mnie za nos wodziæ.
+Wiedz Wasze, ¿e Soplice nie zwykli siê godziæ;
+Gdy pozw¹, musz¹ wygraæ: nieraz w ich imieniu
+Trwa³ proces, a¿ wygrali w szóstym pokoleniu.
+Dosyæ zrobi³em g³upstwa, z porady Waszeci,
+Zwo³uj¹c podkomorskie s¹dy po raz trzeci.
+Od dzisiaj nie ma zgody; nie ma, nie ma, nie ma!
+(I krzycz¹c chodzi³, tupa³ nogami obiema).
+Prócz tego za wczorajszy niegrzeczny uczynek
+Musi mnie deprekowaæ, albo pojedynek!”
+„Ale, Sêdzio, có¿ bêdzie, jak siê Jacek dowie?
+Wszak on umrze z rozpaczy! Czyli¿ Soplicowie
+Nie nabroili jeszcze w tym zamku doœæ z³ego!
+Bracie! wspominaæ nie chcê wypadku strasznego.
+Wiesz tak¿e, ¿e czêœæ gruntów od zamku dziedzica
+Zabra³a i Soplicom da³a Targowica.
+Jacek za grzech ¿a³uj¹c, musia³ by³ œlubowaæ
+Pod absolucj¹ dobra te restytuowaæ.
+Wzi¹³ wiêc Zosiê, Horeszków dziedziczkê ubog¹,
+Hodowaæ, wychowanie jej op³aca³ drogo.
+Chcia³ j¹ Tadeuszkowi swojemu wyswataæ
+I tak dwa poró¿nione domy znowu zbrataæ,
+I dziedziczce bez wstydu ust¹piæ grabie¿y”.
+„Lecz có¿ to? - krzykn¹³ Sêdzia - co do mnie nale¿y?
+Ja siê nie zna³em, nawet nie widzia³em z Jackiem;
+Ledwiem s³ysza³ o jego ¿yciu hajdamackiem,
+187
+Siedz¹c wtenczas retorem w jezuickiej szkole,
+Potem u wojewody s³u¿¹c za pacholê.
+Dano mi dobra, wzi¹³em; kaza³ przyj¹æ Zosiê,
+Przyj¹³em, hodowa³em, myœlê o jej losie.
+Doœæ mnie nudzi ta ca³a historyja babia!
+A potem, czego¿ jeszcze wlaz³ mi tu ten Hrabia?
+Z jakim prawem do zamku? Wszak wiesz, przyjacielu,
+On Horeszkom dziesi¹ta woda na kisielu!
+I ma mnie l¿yæ? a ja go zapraszaæ do zgody!”
+„Bracie! - rzek³ ksi¹dz - wa¿ne s¹ do tego powody.
+Pamiêtasz, ¿e Jacek chcia³ do wojska s³aæ syna,
+Potem w Litwie zostawi³: có¿ w tym za przyczyna?
+Oto w domu Ojczyznie potrzebniejszy bêdzie.
+S³ysza³eœ pewnie, o czem ju¿ gadaj¹ wszêdzie,
+O czem ja wiadomostki przynosi³em nieraz:
+Teraz czas ju¿ powiedzieæ wszystko, czas ju¿ teraz!
+Wa¿ne rzeczy, mój bracie! Wojna tu¿ nad nami!
+Wojna o Polskê! bracie! Bêdziem Polakami!
+Wojna niechybna! Kiedy z poselstwem tajemnem
+Tu bieg³em, wojsk forpoczty ju¿ sta³y nad Niemnem;
+Napoleon ju¿ zbiera armijê ogromn¹,
+Jakiej cz³owiek nie widzia³ i dzieje nie pomn¹;
+Obok Francuzów ci¹gnie polskie wojsko ca³e,
+Nasz Józef, nasz D¹browski, nasze or³y bia³e!
+Ju¿ s¹ w drodze, na pierwszy znak Napoleona
+Przejd¹ Niemen i - bracie! Ojczyzna wskrzeszona!”
+188
+Sêdzia, s³uchaj¹c, z wolna okulary sk³ada³
+I wpatruj¹c siê mocno w Ksiêdza, nic nie gada³,
+Westchn¹³ g³êboko, w oczach ³zy siê zakrêci³y...
+Wreszcie porwa³ za szyjê Ksiêdza z ca³ej si³y:
+„Mój Robaku! - wo³aj¹c - czy to tylko prawda?
+Mój Robaku! - powtarza³ - czy to tylko prawda?
+Ile¿ razy zwodzono! Pamiêtasz? gadali:
+Napoleon ju¿ idzie! i my ju¿ czekali!
+Gadano: ju¿ w Koronie, ju¿ Prusaka pobi³,
+Wkracza do nas! A on - co? Pokój w Tyl¿y zrobi³!
+Czy tylko prawda? Czy ty nie zwodzisz sam siebie?”
+„Prawda - zawo³a³ Robak - jak Pan Bóg na niebie!”
+„B³ogos³awione¿ niechaj bêd¹ usta, które
+To zwiastuj¹! - rzek³ Sêdzia wznosz¹c rêce w górê. -
+Nie po¿a³ujesz twego poselstwa, Robaku,
+Nie po¿a³uje klasztor; dwieœcie owiec z braku
+Dajê na klasztor. Ksiê¿e, tyœ siê wczora pali³
+Do mojego kasztanka i gniadosza chwali³,
+Dziœ zaraz w twym kwestarskim wozie pójd¹ oba;
+Dziœ proœ mnie, o co zechcesz, co ci siê podoba,
+Nie odmówiê! Lecz o tym interesie ca³ym
+Z Hrabi¹, daj pokój; skrzywdzi³ mnie, ju¿ zapozwa³em,
+Czy¿ wypada...”
+Za³ama³ rêce Ksi¹dz zdziwiony.
+Wlepiwszy oczy w Sêdziê, ruszywszy ramiony,
+Rzek³: „To gdy Napoleon wolnoœæ Litwie niesie,
+Gdy œwiat dr¿y ca³y, to ty myœlisz o procesie?
+I jeszcze¿ po tem wszystkim, com tobie powiedzia³,
+Bêdziesz spokojnie, rêce za³o¿ywszy, siedzia³,
+Gdy dzia³aæ trzeba!”
+189
+- „Dzia³aæ? Có¿?” - Sêdzia zapyta³.
+„Jeszczeœ - rzek³ Robak - z oczu moich nie wyczyta³?
+Jeszcze serce nic tobie nie gada? Ach, bracie!
+Jeœli Soplicowskiej krwi kroplê w ¿y³ach macie,
+Uwa¿ tylko: Francuzi uderzaj¹ z przodu?...
+A gdyby z ty³u zrobiæ powstanie narodu?
+Co myœlisz? Niech no Pogoñ zar¿y, niech na ¯mudzi
+NiedŸwiedŸ ryknie! Ach, gdyby jakie tysi¹c ludzi,
+Gdyby choæ piêæset z ty³u na Moskwê natar³o,
+Powstanie jako po¿ar wko³o rozpostar³o,
+Gdybyœmy my, nabrawszy Moskwie harmat, znaków,
+Zwyciêzcy szli powitaæ wybawców rodaków?
+Ci¹gniemy! Napoleon widz¹c nasze lance
+Pyta: <<Co to za wojsko?>> My krzyczym: <<Powstañce,
+Najjaœniejszy Cesarzu! Litwa ochotnicy!>>
+Pyta: <<Pod czyj¹ wodz¹?>> - <<Sêdziego Soplicy!>>
+Ach, któ¿ by potem pisn¹æ œmia³ o Targowicy?
+Bracie, póki Ponarom staæ, Niemnowi p³yn¹æ,
+Póty w Litwie Sopliców imieniowi s³yn¹æ;
+Wnuków, prawnuków bêdzie Jagie³³ów stolica
+Wskazywaæ palcem, mówi¹c: oto jest Soplica,
+Z tych Sopliców, co pierwsi zrobili powstanie!”
+A na to Sêdzia: „Mniejsza o ludzkie gadanie;
+Nigdy nie dba³em bardzo o pochwa³y œwiata,
+Bóg œwiadkiem, ¿em nie winien grzechów mego brata;
+W politykê jam nigdy bardzo siê nie wdawa³,
+Urzêduj¹c i orz¹c mojej ziemi kawa³;
+Lecz jestem szlachcic, rad bym plamê domu zmazaæ,
+190
+Jestem Polak, dla kraju rad bym coœ dokazaæ,
+Choæ duszê oddaæ. W szable nie by³em zbyt têgi,
+Wszak¿e bierali ludzie i ode mnie ciêgi;
+Wie œwiat, ¿e w czasie polskich ostatnich sejmików
+Wyzwa³em i zrani³em dwoch braci Buzwików,
+Którzy... Ale to mniejsza. Jak¿e Wasze myœli?
+Czy potrzeba, ¿ebyœmy zaraz w pole wyszli?
+Strzelców zebraæ - rzecz ³atwa; prochu mam dostatek,
+W plebaniji u ksiêdza jest kilka armatek;
+Przypominam, i¿ Jankiel mówi³, i¿ u siebie
+Ma groty do lanc, ¿e je mogê wzi¹æ w potrzebie;
+Te groty przywióz³ w pakach gotowych z Królewca
+Pod sekretem; weŸmiem je, zaraz zrobim drzewca,
+Szabel nam nie zabraknie, szlachta na koñ wsiêdzie,
+Ja z synowcem na czele i? - jakoœ to bêdzie !”
+„O polska krwi!” - zawo³a³ Bernardyn wzruszony,
+Z otwartemi skoczywszy na Sêdziê ramiony. -
+„Prawe dzieciê Sopliców! Tobie Bóg przeznacza
+Oczyœciæ grzechy brata twojego, tu³acza;
+Zawszem ciebie szanowa³, ale od tej chwili
+Kocham ciê, jak gdybyœmy braci¹ sobie byli!
+Przygotujemy wszystko, lecz wyjœæ nie czas jeszcze;
+Ja sam wyznaczê miejsce i czas wam obwieszczê.
+Wiem, ¿e car wys³a³ goñców do Napoleona
+Prosiæ o pokój; wojna nie jest og³oszona;
+Lecz ksi¹¿ê Józef s³ysza³ od pana Biniona,
+Francuza; co nale¿y do cesarskiej rady,
+¯e siê na niczem skoñcz¹ wszystkie te uk³ady,
+191
+¯e bêdzie wojna. Ksi¹¿ê wys³a³ mnie na zwiady
+Z rozkazem, ¿eby byli Litwini gotowi
+Dowieœæ przychodz¹cemu Napoleonowi,
+¯e chc¹ z³¹czyæ siê znowu z siostr¹ sw¹, Koron¹,
+I ¿¹daj¹, a¿eby Polskê przywrócono.
+Tymczasem bracie, z Hrabi¹ trzeba przyjœæ do zgody;
+Jest to dziwak, fantastyk trochê, ale m³ody,
+Poczciwy, dobry Polak; potrzebny nam taki;
+W rewolucyjach bardzo potrzebne dziwaki,
+Wiem z doœwiadczenia; nawet g³upi siê przydadz¹,
+Byle tylko poczciwi i pod m¹drych w³adz¹.
+Hrabia pan, ma u szlachty wielkie zachowanie;
+Ca³y powiat ruszy siê, jeœli on powstanie;
+Znaj¹c jego maj¹tek, ka¿dy szlachcic powie:
+Musi to byæ rzecz pewna, gdy z ni¹ s¹ panowie.
+Biegê do niego zaraz”.
+„Niech siê pierwszy zg³osi -
+Rzek³ Sêdzia - niech przyjedzie tu, mnie niech przeprosi;
+Wszak jestem starszy wiekiem, jestem na urzêdzie!
+Co siê tycze procesu, s¹d arbitrów bêdzie...”
+Bernardyn trzasn¹³ drzwiami. „No, szczêœliwa droga!” -
+Rzek³ Sêdzia.
+Ksi¹dz wpad³ w powóz stoj¹cy u proga,
+Tnie biczem konie, ³echce lejcami po bokach;
+Furknê³a ka³amaszka, ginie w mg³y ob³okach,
+Tylko kiedy niekiedy kaptur mnicha bury
+Wznosi siê nad tumany jako sêp nad chmury.
+192
+WoŸny ju¿ dawniej wyszed³ ku domowi Hrabi.
+Jak lis bywalec, gdy go woñ s³oniny wabi,
+Bie¿y ku niej, a strzelców zna fortele skryte,
+Bie¿y, staje, przysiada coraz, wznosi kitê
+I wiatr ni¹ jak wachlarzem ku swym nozdrzom tuli,
+Pyta wiatru, czy strzelcy jad³a nie zatruli:
+Protazy zeszed³ z drogi i wzd³u¿ siano¿êci
+Kr¹¿y oko³o domu: pa³kê w rêku krêci,
+Udaje, ¿e obaczy³ kêdyœ byd³o w szkodzie;
+Tak zrêcznie lawiruj¹c stan¹³ przy ogrodzie;
+Schyli³ siê, bie¿y, rzek³byœ, i¿ derkacza tropi,
+A¿ nagle skoczy³ przez p³ot i wpad³ do konopi.
+W tej zielonej, pachn¹cej i gêstej krzewinie,
+Ko³o domu, jest pewny przytu³ek zwierzynie
+I ludziom. Nieraz zaj¹c zdybany w kapuœcie
+Skacze skryæ siê w konopiach bezpieczniej ni¿ w chruœcie,
+Bo go dla gêstwi ziela ani chart nie zgoni,
+Ani ogar wywietrzy dla zbyt têgiej woni.
+W konopiach cz³owiek dworski, uchodz¹c kañczuka
+Lub piêœci, siedzi cicho, a¿ siê pan wyfuka.
+I nawet czêsto zbiegli od rekruta ch³opi,
+Gdy ich rz¹d œledzi w lasach, siedz¹ œród konopi.
+I st¹d w czasie bitew, zajazdów, tradowañ
+Obie strony nie szczêdz¹ wielkich usi³owañ,
+A¿eby stanowisko zaj¹æ konopiane,
+Które z przodu ci¹gnie siê a¿ pod dworsk¹ œcianê,
+A z ty³u, pospolicie stykaj¹c siê z chmielem,
+Kryje atak i odwrót przed nieprzyjacielem.
+193
+Protazy, choæ cz³ek œmia³y, uczu³ nieco strachu,
+Bo przypomnia³ z samego roœliny zapachu
+Ró¿ne swoje dawniejsze woŸnieñskie przypadki,
+Jedne po drugich, bior¹c konopie na œwiadki:
+Jako raz zapozwany szlachcic z Telsz, Dzindolet,
+Rozkaza³ mu, opar³szy o piersi pistolet,
+WleŸæ pod stó³ i ów pozew psim g³osem odszczekaæ,
+¯e WoŸny musia³ co tchu w konopie uciekaæ.
+Jak póŸniej Wo³odkowicz, pan dumny, zuchwa³y,
+Co rozpêdza³ sejmiki, gwa³ci³ trybuna³y,
+Przyj¹wszy urzêdowy pozew, zdar³ na sztuki
+I postawiwszy przy drzwiach z kijami hajduki,
+Sam nad WoŸnego g³ow¹ trzyma³ go³y rapier,
+Krzycz¹c: „Albo ciê zetnê, albo zjedz twój papier!”
+WoŸny niby jeœæ zacz¹³, jak cz³owiek roztropny,
+A¿ skrad³szy siê do okna, wpad³ w ogród konopny.
+Wprawdzie ju¿ wtenczas w Litwie nie by³o zwyczajem
+Opêdzaæ siê od pozwów szabl¹ lub nahajem
+I ledwie woŸny czasem us³ysza³ ³ajanie,
+Ale Protazy o tej obyczajów zmianie
+Wiedzieæ nie móg³, bo dawno ju¿ pozwów nie nasza³.
+Choæ zawsze gotów, choæ siê Sêdziemu sam wprasza³,
+Sêdzia dot¹d, przez winny wzgl¹d na lata stare,
+Odmawia³ jego proœbom; dziœ przyj¹³ ofiarê
+Dla nagl¹cej potrzeby.
+WoŸny patrzy, czuwa -
+Cicho wszêdzie - w konopie z wolna rêce wsuwa
+I rozchylaj¹c gêstwê badylów, w jarzynie
+194
+Jako rybak pod wod¹ nurkuj¹cy p³ynie;
+Wzniós³ g³owê - cicho wszêdzie - do okien siê skrada -
+Cicho wszêdzie - przez okna g³¹b pa³acu bada -
+Pusto wszêdzie. - Na ganek wchodzi nie bez strachu,
+Odmyka klamkê - pusto jak w zaklêtym gmachu;
+Dobywa pozew, czyta g³oœno oœwiadczenie.
+A wtem us³ysza³ tarkot, uczu³ serca dr¿enie,
+Chcia³ uciec, gdy ode drzwi zasz³a mu osoba -
+Szczêœciem znajoma! Robak! Zdziwili siê oba.
+Widno, ¿e Hrabia kêdyœ ruszy³ z ca³ym dworem
+I bardzo spieszy³, bo drzwi zostawi³ otworem.
+Widaæ, ¿e siê uzbraja³; le¿a³y dwórurki
+I sztucce na pod³odze, dalej sztenfle, kurki
+I narzêdzia œlusarskie, któremi rynsztunki
+Poprawiano; proch, papier: robiono ³adunki.
+Czy Hrabia z ca³ym dworem wyjecha³ na ³owy?
+Ale po co¿ broñ rêczna? Tu szabla bez g³owy
+Zardzewia³a, tam le¿y szpada bez temlaku:
+Zapewne wybierano orê¿ z tego braku
+I poruszono nawet stare broni sk³ady.
+Robak obejrza³ pilnie rusznice i szpady,
+A potem do folwarku wybra³ siê na zwiady,
+Szukaj¹c s³ug, ¿eby siê rozpytaæ o Hrabiê;
+W pustym folwarku ledwie wynalaz³ dwie babie,
+Od których s³yszy, ¿e pan i dworska dru¿yna
+Ruszyli t³umnie, zbrojnie - drog¹ do Dobrzyna.
+195
+S³ynie szeroko w Litwie Dobrzyñski zaœcianek
+Mêstwem swoich szlachciców, piêknoœci¹ szlachcianek.
+Niegdyœ mo¿ny i ludny; bo gdy król Jan Trzeci
+Obwo³a³ pospolite ruszenie przez wici,
+Chor¹¿y województwa z samego Dobrzyna
+Przywiód³ mu szeœæset zbrojnej szlachty. Dziœ rodzina
+Zmniejszona, zubo¿a³a; dawniej w pañskich dworach
+Lub wojsku, na zajazdach, sejmikowych zborach,
+Zwykli byli Dobrzyñscy ¿yæ o ³atwym chlebie.
+Teraz zmuszeni sami pracowaæ na siebie
+Jako zaciê¿ne ch³opstwo! Tylko ¿e siermiêgi
+Nie nosz¹, lecz kapoty bia³e w czarne prêgi,
+A w niedzielê kontusze. Strój tak¿e szlachcianek
+Najubo¿szych ró¿ni siê od ch³opskich katanek:
+Zwykle chodz¹ w drylichach albo perkaliczkach,
+Byd³o pas¹ nie w ³apciach z kory, lecz w trzewiczkach,
+I ¿n¹ zbo¿e, a nawet przêd¹ - w rêkawiczkach.
+Ró¿nili siê Dobrzyñscy miêdzy Litw¹ braci¹
+Jêzykiem swoim tudzie¿ wzrostem i postaci¹.
+Czysta krew lacka, wszyscy mieli czarne w³osy,
+Wysokie czo³a, czarne oczy, orle nosy;
+Z Dobrzyñskiej Ziemi ród swój staro¿ytny wiedli.
+A choæ od lat czterystu na Litwie osiedli,
+Zachowali mazursk¹ mowê i zwyczaje.
+JeŸli który z nich dziecku imiê na chrzcie daje,
+Zawsze zwyk³ za patrona braæ Koronijasza:
+Œwiêtego Bart³omieja albo Matyjasza.
+Tak syn Macieja zawzdy zwa³ siê Bart³omiejem,
+196
+A znowu Bart³omieja syn zwa³ siê Maciejem;
+Kobiety wszystkie chrzczono Kachny lub Maryny.
+By rozeznaæ siê wpoœród takiej mieszaniny,
+Brali ró¿ne przydomki, od jakiej zalety
+Lub wady, tak mê¿czyŸni, jako i kobiety.
+Mê¿czyznom czasem kilka dawano przydomków
+Na znak pogardy albo szacunku spó³ziomków;
+Czasem jeden¿e szlachcic inaczej w Dobrzynie,
+A pod innym nazwiskiem u s¹siadów s³ynie.
+Dobrzyñskich naœladuj¹c, inna szlachta bliska
+Bra³a równie¿ przydomki, zwane i m i o n i s k a.
+Teraz ich ka¿da prawie u¿ywa rodzina,
+A rzadki wie, i¿ maj¹ pocz¹tek z Dobrzyna;
+I by³y tam potrzebne, kiedy w reszcie kraju
+G³upim naœladownictwem wesz³y do zwyczaju.
+Wiêc Matyjasz Dobrzyñski, który sta³ na czele
+Ca³ej rodziny, zwan by³ K u r k i e m n a k o œ c i e l e.
+Potem z siedemset dziewiêædziesi¹t czwartym rokiem
+Odmieniwszy przydomek, ochrzci³ siê Z a b o k i e m;
+To¿ K r ó 1 i k i e m Dobrzyñscy mianuj¹ go sami,
+A Litwini nazwali M a æ k i e m n a d M a æ k a m i.
+Jak on nad Dobrzyñskimi, dom jego nad sio³em
+Panowa³, stoj¹c miêdzy karczm¹ i koœcio³em.
+Widaæ rzadko zwiedzany, mieszka w nim ho³ota,
+Bo brama sterczy bez wrot, ogrody bez p³ota,
+Nie zasiane, na grzêdach ju¿ poros³y brzozki;
+197
+Przecie¿ ten folwark zda³ siê byæ stolic¹ wioski,
+I¿ kszta³tniejszy od innych chat, bardziej rozleg³y,
+I praw¹ stronê, gdzie jest œwietlica, mia³ z ceg³y.
+Obok lamus, spichrz, gumno, obora i stajnie,
+Wszystko w kupie, jak bywa u szlachty zwyczajnie.
+Wszystko nadzwyczaj stare, zgni³e; domu dachy
+Œwieci³y siê, jak gdyby od zielonej blachy,
+Od mchu i trawy, która buja jak na ³¹ce.
+Po strzechach gumien - niby ogrody wisz¹ce
+Ró¿nych roœlin: pokrzywa i krokos czerwony,
+¯ó³ta dziewanna, szczyru barwiste ogony,
+Gniazda ptastwa ró¿nego, w strychach go³êbniki,
+W oknach gniazda jaskó³cze, u progu króliki
+Bia³e skacz¹ i ryj¹ w niedeptanej darni.
+S³owem, dwór na kszta³t klatki albo królikarni.
+A dawniej by³ obronny! Pe³no wszêdzie œladów,
+¯e wielkich i ¿e czêstych doznawa³ napadów.
+Pod bram¹ dot¹d w trawie, jak dzieciêca g³owa
+Wielka, le¿a³a kula ¿elazna dzia³owa
+Od czasów szwedzkich; niegdyœ skrzyd³o wrót otwarte
+Bywa³o o tê kulê jak o g³az oparte.
+Na dziedziñcu spomiêdzy pio³unu i chwastu
+Wznosz¹ siê stare szczêty krzy¿ów kilkunastu
+Na ziemi nieœwiêconej; znak, ¿e tu chowano
+Poleg³ych œmierci¹ nag³¹ i niespodziewan¹.
+Kto by uwa¿a³ z bliska lamus, spichrz i chatê,
+Ujrzy œciany od ziemi do szczytu pstrokate
+198
+Niby rojem owadów czarnych; w ka¿dej plamie
+Siedzi we œrodku kula jak trzmiel w ziemnej jamie.
+U drzwi domostwa wszystkie klamki, æwieki, haki,
+Albo uciête, albo nosz¹ szabel znaki:
+Pewnie tu probowano hartu zygmuntówek,
+Któremi mo¿na œmia³o æwieki obci¹æ z g³ówek
+Lub hak przer¿n¹æ, w brzeszczocie nie zrobiwszy szczerby.
+Nade drzwiami Dobrzyñskich widne by³y herby;
+Lecz armaturê - serów zas³oni³y pu³ki
+I zasklepi³y gêsto gniazdami jaskó³ki.
+Wewn¹trz samego domu, w stajni i wozowni,
+Pe³no znajdziesz rynsztunków, jak w starej zbrojowni.
+Pod dachem wisz¹ cztery ogromne szyszaki,
+Ozdoby czó³ marsowych: dziœ Wenery ptaki,
+Go³êbie, w nich gruchaj¹c karmi¹ swe pisklêta.
+W stajni kolczuga wielka nad ¿³obem rozpiêta
+I pierœcieniasty pancerz s³u¿¹ za drabinê,
+W któr¹ ch³opiec zarzuca Ÿrebcom dziêcielinê.
+W kuchni kilka rapierów kucharka bezbo¿na
+Odhartowa³a, k³ad¹c je w piec zamiast ro¿na;
+Buñczukiem, ³upem z Wiednia, otrzepywa ¿arna:
+S³owem, wygna³a Marsa Ceres gospodarna
+I panuje z Pomon¹, Flor¹ i Wertumnem
+Nad Dobrzyñskiego domem, stodo³¹ i gumnem.
+Ale dziœ musz¹ znowu ust¹piæ boginie:
+Mars powraca.
+199
+O œwicie zjawi³ siê w Dobrzynie
+Konny pos³aniec; biega od chaty do chaty,
+Budzi jak na pañszczyznê; wstaj¹ szlachta braty,
+Nape³niaj¹ siê ci¿b¹ zaœcianku ulice,
+S³ychaæ krzyk w karczmie, widaæ w plebaniji œwiéce;
+Bieg¹; jeden drugiego pyta, co to znaczy,
+Starzy sk³adaj¹ radê, m³ódŸ konie kulbaczy,
+Kobiety zatrzymuj¹, ch³opcy siê szamoc¹,
+Rw¹ siê biec, biæ siê, ale nie wiedz¹, z kim, o co?
+Musz¹ chc¹c nie chc¹c zostaæ. W mieszkaniu plebana
+Trwa rada d³uga, t³umna, strasznie zamieszana,
+A¿ nie mog¹c zdañ zgodziæ, na koniec stanowi
+Prze³o¿yæ ca³¹ sprawê ojcu Maciejowi.
+Siedemdziesi¹t dwa lat liczy³ Maciej, starzec dziarski,
+Niskiego wzrostu, dawny konfederat barski.
+Pamiêtaj¹ i swoi, i nieprzyjaciele
+Jego damaskowan¹ krzyw¹ karabelê,
+Któr¹ piki i sztyki rzeza³ na kszta³t sieczki
+I której ¿artem skromne da³ imiê R ó z e c z k i.
+Z konfederata sta³ siê stronnikiem królewskim
+I trzyma³ z Tyzenhauzem, podskarbim litewskim;
+Lecz gdy król w Targowicy przyj¹³ uczestnictwo,
+Maciej opuœci³ znowu królewskie stronnictwo,
+I st¹d to, ¿e przechodzi³ partyi tak wiele,
+Nazywany by³ dawniej K u r k i e m n a k o œ c i e l e,
+¯e jak kurek za wiatrem chor¹giewkê zwraca³.
+Przyczynê zmian tak czêstych na pró¿no byœ maca³:
+Mo¿e Maciej zbyt wojnê lubi³; zwyciê¿ony
+200
+W jednej stronie, znów bitwy szuka³ z drugiej strony?
+Mo¿e, bystry polityk, duch czasu zbadywa³
+I tam szed³, gdzie Ojczyzny dobro upatrywa³?
+Kto wie! To pewna, ¿e go nigdy nie uwiod³y
+Ani chêæ osobistej chwa³y, ni zysk pod³y,
+I ¿e nigdy z moskiewsk¹ partyj¹ nie trzyma³;
+Na sam widok Moskala pieni³ siê i z¿yma³.
+By nie spotkaæ Moskala, po kraju zaborze
+Siedzia³ w domu, jak niedŸwiedŸ, gdy ssie ³apê w borze.
+Ostatni raz wojowa³, poszed³szy z Ogiñskim
+Do Wilna, gdzie s³u¿yli oba pod Jasiñskim.
+I tam z Rózeczk¹ cudów dokaza³ odwagi.
+Wiadomo, ¿e sam jeden skoczy³ z wa³ów Pragi
+Broniæ pana Pocieja, który, odbie¿any
+Na placu boju, dosta³ dwadzieœcia trzy rany.
+Myœlano d³ugo w Litwie, ¿e obu zabito;
+Wrócili oba, ka¿dy pok³uty jak sito.
+Pan Pociej, zacny cz³owiek, chcia³ zaraz po wojnie
+Obroñcê Dobrzyñskiego wynagrodziæ hojnie,
+Dawa³ mu folwark piêciu dymów w do¿ywocie
+I wyznaczy³ mu rocznie tysi¹c z³otych w z³ocie.
+Lecz Dobrzyñski odpisa³: „Niech Pociej Macieja,
+A nie Maciej Pocieja ma za dobrodzieja”.
+Odmówi³ wiêc folwarku i nie przyj¹³ p³acy;
+Sam wróciwszy do domu, ¿y³ z w³asnej r¹k pracy,
+Sprawuj¹c ule dla pszczó³, lekarstwa dla byd³a,
+Szl¹c na targ kuropatwy, które ³owi³ w sid³a,
+I poluj¹c na zwierza.
+201
+By³o doœæ w Dobrzynie
+Starych ludzi roztropnych, którzy po ³acinie
+Umieli i w palestrze æwiczyli siê z m³odu;
+By³o doœæ majêtniejszych; a z ca³ego rodu
+Maciek, prostak ubogi, by³ najwiêcej czczony,
+Nie tylko jako rêbacz Rózeczk¹ ws³awiony,
+Lecz jako cz³ek m¹drego i pewnego zdania,
+Znaj¹cy dzieje kraju, rodziny podania,
+Zarówno œwiadom prawa, jak i gospodarstwa.
+Wiedzia³ tak¿e sekreta strzelców i lekarstwa,
+Przyznawano mu nawet (czemu pleban przeczy)
+Wiadomoœæ nadzwyczajnych i nadludzkich rzeczy.
+To pewna, ¿e powietrza zmiany zna dok³adnie
+I czêœciej ni¿ kalendarz gospodarski zgadnie.
+Nie dziw tedy, ¿e czy to siejbê rozpoczynaæ,
+Czy wiciny wyprawiaæ, czy zbo¿e za¿ynaæ,
+Czy procesowaæ, czyli zawieraæ uk³ady,
+Nie dzia³o siê w Dobrzynie nic bez Maæka rady.
+Wp³ywu takiego starzec bynajmniej nie szuka³,
+Owszem, chcia³ siê go pozbyæ, klijentów swych fuka³
+I najczêœciej wypycha³ milczkiem za drzwi domu,
+Rady rzadko udziela³ i nie lada komu,
+Ledwie w niezmiernie wa¿nych sporach lub umowach
+Pytany wyrzek³ zdanie, i w niewielu s³owach.
+Myœlano, ¿e dzisiejszej podejmie siê sprawy
+I stanie sw¹ osob¹ na czele wyprawy;
+Bo bijatykê lubi³ niezmiernie za m³odu
+I by³ nieprzyjacielem moskiewskiego rodu.
+202
+W³aœnie staruszek chodzi³ po samotnym dworze,
+Nuc¹c piosenkê: „Kiedy ranne wstaj¹ zorze”,
+Rad, ¿e siê wypogadza; mg³a nie sz³a do góry,
+Jak siê dziaæ zwyk³o, kiedy zbieraj¹ siê chmury,
+Ale coraz spada³a; wiatr rozwin¹³ d³onie
+I mg³ê muska³, wyg³adza³, rozœcie³a³ na b³onie;
+Tymczasem s³onko z góry tysi¹cem promieni
+T³o przetyka, posrebrza, wyz³aca, rumieni.
+Jak para mistrzów w S³ucku lity pas wyrabia:
+Dziewica, siedz¹c w dole, kroœny ujedwabia
+I t³o rêk¹ wyg³adza, tymczasem tkacz z góry
+Zrzuca jej nitki srebra, z³ota i purpury,
+Tworz¹c barwy i kwiaty - tak dziœ ziemiê ca³¹
+Wiatr tumanami osnu³, a s³oñce dzier¿ga³o.
+Maciej ogrza³ siê s³oñcem, zakoñczy³ pacierze
+I ju¿ siê do swojego gospodarstwa bierze.
+Wyniós³ traw, liœcia; usiad³ przed domem i œwisn¹³:
+Na ten œwist rój królików spod ziemi wytrysn¹³.
+Jako narcyzy nagle wykwit³e nad trawê,
+Biel¹ siê d³ugie s³uchy; pod nimi jaskrawe
+Przeœwiecaj¹ siê oczki jak krwawe rubiny
+Gêsto wszyte w aksamit zielonej darniny.
+Ju¿ króliki na ³apkach stoj¹, ka¿dy s³ucha,
+Patrzy, na koniec ca³a trzódka bia³opucha
+Bie¿y do starca, liœæmi kapusty znêcona,
+Do nóg mu, na kolana skacze, na ramiona;
+On, sam bia³y jak królik, lubi ich gromadziæ
+Wko³o siebie i rêk¹ ciep³y ich puch g³adziæ,
+203
+A drug¹ rêk¹ z czapki proso w trawê miota
+Dla wróblów; spada z dachów krzykliwa ho³ota.
+Gdy siê staruszek bawi³ widokiem biesiady,
+Nagle króliki znik³y w ziemi, a gromady
+Wróblów na dach uciek³y przed goœæmi nowymi,
+Którzy szli do folwarku krokami prêdkiémi.
+Byli to z plebaniji przez szlachty gromadê
+Pos³owie wyprawieni do Maæka po radê.
+Z dala witaj¹c starca niskiemi uk³ony,
+Rzekli: „Niech bêdzie Jezus Chrystus pochwalony”.
+„Na wieki wieków, amen” - starzec odpowiedzia³,
+A gdy siê o wa¿noœci poselstwa dowiedzia³,
+Prosi do chaty; weszli, zasiadaj¹ ³awê,
+Pierwszy z pos³ów sta³ w œrodku i j¹³ zdawaæ sprawê.
+Tymczasem szlachty coraz gêœciej przybywa³o.
+Dobrzyñscy prawie wszyscy; s¹siadów niema³o
+Z okolicznych zaœcianków, zbrojni i bezbronni,
+W ka³amaszkach i bryczkach, i piesi, i konni,
+Stawi¹ wozy, podjezdki do brzezinek wi¹¿¹,
+Ciekawi skutku narad ko³o domu kr¹¿¹:
+Ju¿ izbê nape³nili, kupi¹ siê do sieni;
+Inni s³uchaj¹, w okna g³owami wciœnieni.
+204
+KSIÊGA SIÓDMA
+RADA
+Treœæ:
+Zbawienne rady Bartka, zwanego Prusak - G³os ¿o³nierski Maæka
+Chrzciciela - G³os polityczny pana Buchmana - Jankiel radzi ku zgodzie,
+któr¹ Scyzoryk rozcina - Rzecz Gerwazego, z której okazuj¹ siê wielkie
+skutki wymowy sejmowej - Protestacja starego Maæka - Nag³e przybycie
+posi³ków wojennych zrywa naradê - Hej¿e na Soplice!
+205
+Z kolei Bartek pose³ rzecz sw¹ wyprowadza³;
+Ten, ¿e czêsto na strugach do Królewca chadza³,
+Nazwany by³ Prusakiem od swych spó³rodaków
+Przez ¿art, bo nienawidzi³ okropnie Prusaków,
+Choæ lubi³ o nich gadaæ; cz³ek podesz³y w lata,
+W podró¿ach swych dalekich wiele zwiedzi³ œwiata;
+Gazet pilny czytelnik, polityki œwiadom,
+Móg³ wiêc niema³o œwiat³a udzieliæ obradom.
+Ten tak rzecz koñczy³:
+„Nie jest to, Panie Macieju,
+Bracie mój, a nas wszystkich Ojcze Dobrodzieju,
+Nie jest to marna pomoc. Ja bym na Francuzów
+Spuœci³ siê w czasie wojny jak na czterech tuzów:
+Lud bitny, a od czasów pana Tadeusza
+Koœciuszki œwiat takiego nie mia³ genijusza
+Wojennego jak wielki Cesarz Bonaparte.
+Pamiêtam, kiedy przeszli Francuzi przez Wartê,
+Bawi³em za granic¹ wtenczas, w roku Pañskim
+Tysi¹cznym osimsetnym szóstym; w³aœnie z Gdañskiem
+Handlowa³em, a krewnych mam wielu w Poznañskiem.
+JeŸdzi³em ich odwiedziæ; wiêc z panem Józefem
+Grabowskim, który teraz jest rejmentu szefem,
+A podówczas ¿y³ na wsi blisko Obiezierza,
+Polowaliœmy sobie na ma³ego Ÿwierza.
+By³ pokój w Wielko - Polszcze, jak teraz na Litwie;
+Wtem nagle rozesz³a siê wieœæ o strasznej bitwie;
+Przybieg³ do nas pos³aniec od pana Todwena,
+206
+Grabowski list przeczyta³, krzykn¹³: <<Jena! Jena!
+Zbito Prusaków na ³eb, na szyjê, wygrana!>>
+Ja, z konia zsiad³szy, zaraz pad³em na kolana,
+Dziêkuj¹c Panu Bogu.
+Do miasta jedziemy
+Niby dla interesu, niby nic nie wiemy,
+A¿ tu widzimy: wszystkie landraty, hofraty,
+Komisarze i wszystkie podobne psubraty
+K³aniaj¹ siê nam nisko; ka¿dy dr¿y, blednieje,
+Jako owad prusaczy, gdy wrz¹tkiem kto zleje.
+My œmiej¹c siê, tr¹c rêce, prosim uni¿enie
+O nowinki? pytamy, co s³ychaæ o Jenie?
+Tu ich strach zdj¹³, dziwi¹ siê, ¿e o klêsce owej
+Ju¿ wiemy; krzycz¹ Niemcy: <<Achary Got! o wej!>>
+Spuœciwszy nos, do domów, z domów dalej w nogi -
+O, to by³ rwetes! Wszystkie wielkopolskie drogi
+Pe³ne uciekaj¹cych; niemczyska jak mrowie
+Pe³zn¹, ci¹gn¹ pojazdy, które lud tam zowie
+Wageny i fornalki; mê¿czyŸni, kobiety,
+Z fajkami, z imbryczkami, wlek¹ pud³a, bety;
+Drapi¹, jak mog¹; a my milczkiem wchodzim w radê:
+Hej¿e na koñ, pomieszaæ Niemcom rejteradê!
+Nu¿ landratom t³uc w karki, z hofratów drzeæ schaby,
+A herów oficerów ³owiæ za harcaby -
+A jenera³ D¹browski wpada do Poznania
+I cesarski przynosi rozkaz: do powstania!
+W tydzieñ jeden - tak lud nasz Prusaków wych³osta³
+I wygna³, na lekarstwo Niemca byœ nie dosta³!
+207
+Gdyby siê tak obróciæ i gracko, i raŸnie,
+I u nas w Litwie sprawiæ Moskwie tak¹ ³aŸniê?
+He? co myœlisz, Macieju? Jeœli z Bonapartem
+Moskwa drze koty, to on wojuje nie ¿artem:
+Bohater pierwszy w œwiecie, a wojsk ma bez liku!
+He, có¿ myœlisz, Macieju, nasz ojcze Króliku?”
+Skoñczy³. Czekaj¹ wszyscy Macieja wyroku.
+Maciej g³owy nie ruszy³ ani podniós³ wzroku,
+Tylko rêk¹ kilkakroæ uderzy³ po boku,
+Jak gdyby szabli szuka³ (od zaboru kraju
+Szabli nie nosi³; przecie¿ z dawnego zwyczaju
+Na wspomnienie Moskala zawsze rêkê zwraca³
+Na lewy bok, zapewne Rózeczki swej maca³;
+I st¹d by³ nazywany powszechnie Zabokiem).
+Ju¿ wzniós³ g³owê, s³uchaj¹ w milczeniu g³êbokiem.
+Maciej oczekiwanie powszechne omyli³,
+Nachmurzy³ brwi i znowu g³owê na pierœ schyli³.
+Na koniec odezwa³ siê, z wolna ka¿de s³owo
+Wymawiaj¹c z przyciskiem, a w takt kiwa³ g³ow¹:
+„Cicho! sk¹d¿e ta ca³a nowina pochodzi?
+Jak daleko Francuzi? Kto nimi dowodzi?
+Czy ju¿ wojnê zaczêli z Moskw¹? gdzie i o co?
+Którêdy maj¹ ci¹gn¹æ? z jak¹ id¹ moc¹?
+Wiele piechoty, jazdy? Kto wie, niechaj gada!”
+Milcza³a, patrz¹c na siê kolejno, gromada.
+„Radzi³bym - rzecze Prusak - czekaæ bernardyna
+208
+Robaka, bo od niego pochodzi nowina;
+Tymczasem pos³aæ pewnych szpiegów nad granicê
+I po cichu uzbrajaæ ca³¹ okolicê,
+A tymczasem ostro¿nie ca³¹ rzecz prowadziæ,
+Aby Moskalom naszych zamiarów nie zdradziæ”.
+He! czekaæ? szczekaæ? zwlekaæ? -
+przerwa³ Maciej drugi,
+Ochrzczony Kropicielem od wielkiej maczugi,
+Któr¹ zwa³ Kropide³kiem; mia³ j¹ dziœ przy sobie.
+Stan¹³ za ni¹, na ga³ce zwiesi³ rêce obie,
+Na rêku opar³ brodê krzycz¹c: „Czekaæ! zwlekaæ!
+Sejmikowaæ! Hem, trem, brem, a potem uciekaæ.
+Ja w Prusach nie bywa³em; rozum królewiecki
+Dobry dla Prus, a u mnie jest rozum szlachecki.
+To wiem, ¿e kto chce biæ siê, niech Kropid³o chwyta,
+Kto umieraæ, ten ksiêdza niech wo³a, i kwita!
+Ja chcê ¿yæ, biæ! Bernardyn po co? czy my ¿aki?
+Co mi tam Robak! otó¿ my bêdziem robaki,
+I dalej Moskwê toczyæ! trem, bdrem, szpiegi, wzwiady;
+Wiecie wy, co to znaczy? - Oto, ¿e wy dziady,
+Niedo³êgi! He, Bracia! to wy¿la rzecz tropiæ,
+Bernardyñska kwestowaæ, a moja rzecz: kropiæ,
+Kropiæ, kropiæ i kwita!” - Tu maczugê g³asn¹³,
+Za nim ca³y t³um szlachty: „Kropiæ, kropiæ!” - wrzasn¹³.
+Popar³ stronê Chrzciciela Bartek, zwan Brzytewka,
+Od szabli cienkiej, tudzie¿ Maciej, zwan Konewka,
+Od sztuæca, który nasza³, z gard³em tak szerokiem,
+209
+¯e zeñ, jak z konwi tuzin kulek la³ potokiem;
+Oba krzyczeli: „Wiwat Chrzciciel z Kropide³kiem!”
+Prusak chcia³ mówiæ, ale zg³uszono go zgie³kiem
+I œmiechem: „Precz - wo³ano - precz Prusaki, tchórze!
+Kto tchórz, niech w bernardyñskim chowa siê kapturze”.
+Wtem znowu g³owê z wolna podniós³ Maciej stary
+I zaczê³y cokolwiek uciszaæ siê gwary.
+„Nie drwijcie - rzek³ - z Robaka;
+znam go, to æwik klecha,
+Ten robaczek wiêkszego od was zgryz³ orzecha;
+Raz go tylko widzia³em, ledwiem okiem rzuci³,
+Pozna³em, co za ptaszek; ksi¹dz oczy odwróci³,
+Lêkaj¹c siê, ¿ebym go nie zacz¹³ spowiadaæ;
+Ale to rzecz nie moja, wiele o tym gadaæ!
+On tu nie przyjdzie, pró¿no wzywaæ Bernardyna.
+Jeœli od niego wysz³a ta ca³a nowina,
+To kto wie, w jakim celu: bo to bies ksiê¿yna!
+Jeœli prócz tej nowiny nic wiêcej nie wiecie,
+Wiêc po coœcie tu przyszli? i czego wy chcecie?”
+„Wojny!” - krzyknêli. - „Jakiej?” - spyta³. - Zawo³ali:
+„Wojny z Moskalem! biæ siê! Haj¿e na Moskali!”
+Prusak wci¹¿ wo³a³, a g³os coraz wy¿ej wznosi³,
+A¿ pos³uchanie czêœci¹ uk³onem wyprosi³,
+Czêœci¹ zdoby³ sw¹ mow¹ krzykliw¹ i cienk¹.
+„I ja chcê biæ siê - wo³a³, t³uk¹c siê w pierœ rêk¹ -
+Choæ kropid³a nie noszê, dr¹giem od wiciny
+210
+Sprawi³em raz Prusakom czterem dobre chrzciny,
+Którzy miê po pjanemu chcieli w Preglu topiæ”.
+„Toœ zuch, Bartku - rzek³ Chrzciciel -
+dobrze! kropiæ kropiæ!”
+„Ale¿, najs³odszy Jezu! trzeba pierwej wiedzieæ,
+Z kim wojna? o co? Trzeba to œwiatu powiedzieæ -
+Wo³a³ Prusak - bo jak¿e lud ruszy za nami?
+Gdzie pójdzie, kiedy, gdzie iœæ, my nie wiemy sami!
+Bracia Szlachta! Panowie! potrzeba rozs¹dku!
+Dobrodzieje! potrzeba ³adu i porz¹dku!
+Chcecie wojny, wiêc zróbmy konfederacyj¹,
+Obmyœlmy, gdzie zawi¹zaæ i pod lask¹ czyj¹?
+Tak by³o w Wielko - Polszcze: widzim rejteradê
+Niemieck¹, có¿ my robim! Wchodzim tajnie w radê,
+Uzbrajamy i szlachtê, i w³oœcian gromadê,
+Gotowi, D¹browskiego czekamy rozkazu,
+Na koniec, haj¿e na koñ! powstajem od razu!”
+„Proszê o g³os!” - zawo³a³ pan komisarz z Klecka,
+Cz³owiek m³ody, przystojny, ubrany z niemiecka;
+Zwa³ siê Buchman, lecz Polak by³, w Polszcze siê rodzi³;
+Nie wiedzieæ pewnie, czyli ze szlachty pochodzi³,
+Lecz o to nie pytano; i wszyscy Buchmana
+Szacowali, i¿ s³u¿y³ u wielkiego pana.
+By³ dobry patryjota i pe³en nauki,
+Z ksi¹g obcych wyuczy³ siê gospodarstwa sztuki
+I dóbr administracj¹ prowadzi³ porz¹dnie;
+O polityce tak¿e wnioskowa³ rozs¹dnie,
+Piêknie pisaæ i g³adko umia³ siê wys³awiaæ,
+211
+Zatem umilkli wszyscy, kiedy j¹³ rozprawiaæ.
+„Proszê o g³os!” - powtórzy³, po dwakroæ odchrz¹kn¹³,
+Uk³oni³ siê i usty dŸwiêcznemi tak brz¹kn¹³:
+„Preopinanci moi w swych g³osach wymownych
+Dotknêli wszystkich punktów stanowczych i g³ownych,
+Dyskusyj¹ na wy¿sze wznieœli stanowisko;
+Mnie tylko pozostaje w jedno zj¹æ ognisko
+Rzucone trafne myœli i rozumowania;
+Mam nadziejê w ten sposób sprzeczne zgodziæ zdania.
+Dwie czêœci dyskusyi ca³ej uwa¿a³em,
+Podzia³ ju¿ jest zrobiony, idê tym podzia³em.
+Naprzód: dlaczego mamy przedsiêbraæ powstanie?
+W jakim duchu? to pierwsze ¿ywotne pytanie;
+Drugie rewolucyjnej w³adzy siê dotycze;
+Podzia³ jest trafny, tylko przewróciæ go ¿yczê.
+Naprzód zacz¹æ od w³adzy; skoro pojmiem w³adzê,
+Z niej powstania istotê, duch, cel wyprowadzê.
+Co do w³adzy wiêc - kiedy oczyma przebiegam
+Dzieje ca³ej ludzkoœci, i có¿ w nich spostrzegam?
+Oto ród ludzki dziki, w lasach rozpierzchniony,
+Skupia siê, zbiera, ³¹czy dla wspólnej obrony,
+Obmyœla j¹; i to jest najpierwsza obrada.
+Potem ka¿dy wolnoœci w³asnej cz¹stkê sk³ada
+Dla dobra powszechnego: to pierwsza ustawa,
+Z której jako ze Ÿród³a p³yn¹ wszystkie prawa.
+Widzimy tedy, ¿e rz¹d umow¹ siê tworzy,
+Nie pochodz¹c, jak mylnie s¹dz¹, z woli Bo¿éj.
+Owo¿, rz¹d na kontrakcie opar³szy spo³ecznym,
+Podzia³ w³adzy ju¿ tylko jest skutkiem koniecznym...”
+212
+„Otó¿ s¹ i kontrakty! kijowskie czy miñskie? -
+Rzek³ stary Maciej - owo¿ i rz¹dy babiñskie!
+Panie Buchman, czy Bóg nam chcia³ cara narzuciæ,
+Czy diabe³, ja z Waszeci¹ nie bêdê siê k³óciæ;
+Panie Buchman, gadaj Waœæ, jakby cara zruciæ”.
+„Tu sêk! - krzykn¹³ Kropiciel - gdybym móg³ podskoczyæ
+Do tronu i Kropid³em, plusk, raz cara zmoczyæ,
+To ju¿ by on nie wróci³ ni kijowskim traktem,
+Ni miñskim, ni za ¿adnym Buchmana kontraktem,
+Aniby go wskrzesili z mocy Bo¿ej popi,
+Ni z mocy Belzebuba - ten mi zuch, kto kropi.
+Panie Buchman, Waœcina rzecz bardzo wymowna,
+Ale wymowa - szum, drum; kropiæ - to rzecz g³owna”.
+„To, to, to!” - pisn¹³, rêce tr¹c, Bartek Brzytewka,
+Od Chrzciciela do Maæka biegaj¹c jak cewka,
+Od jednej strony krosien przerzucana w drug¹ -
+„Tylko ty, Maæku z Rózg¹, ty, Maæku z maczug¹,
+Tylko zgodŸcie siê, dalbóg, pobijem na druzgi
+Moskala; Brzytew idzie pod komendê Rózgi”.
+„Komenda - przerwa³ Chrzciciel - dobra ku paradzie;
+U nas by³a komenda w kowieñskiej brygadzie
+Krótka a wêz³owata: Strasz, sam siê nie strachaj -
+Bij, nie daj siê - postêpuj czêsto, gêsto machaj:
+Szach, mach!”
+„To - pisn¹³ Brzytwa - to mi regulament!
+Po co tu pisaæ akta, po co psuæ atrament?
+213
+Konfederacji trzeba? O to ca³a sprzeczka?
+Jest marsza³ek nasz Maciej, a laska Rózeczka”.
+„Niech ¿yje - krzykn¹³ Chrzciciel - Kurek na koœciele!”
+Szlachta odpowiedzia³a: „Wiwant Kropiciele!”
+Ale w k¹tach szmer powsta³, choæ w œrodku t³umiony;
+Widaæ, ¿e siê rozdziela rada na dwie strony.
+Buchman krzykn¹³: „Ja zgody nigdy nie pochwalam!
+To mój system!” Ktoœ drugi wrzasn¹³: „Nie pozwalam!”
+Inni z k¹tów wtóruj¹. Nareszcie g³os gruby
+Ozwa³ siê przyby³ego szlachcica Sko³uby:
+„Có¿ to, Pañstwo Dobrzyñscy! a to co siê œwiêci?
+A my czy to bêdziemy spod prawa wyjêci?
+Kiedy nas zapraszano z naszego zaœcianku,
+A zaprasza³ nas klucznik Rêbaj³o Mopanku,
+Mówiono nam, ¿e wielkie rzeczy dziaæ siê mia³y,
+¯e tu nie o Dobrzyñskich, lecz o powiat ca³y,
+O ca³¹ szlachtê idzie; to¿ i Robak b¹ka³,
+Choæ nigdy nie dokoñczy³ i zawsze siê j¹ka³,
+I ciemno siê t³umaczy³; wreszcie, koniec koñców,
+My zjechali, s¹siadów wezwali przez goñców.
+Nie sami tu, Panowie Dobrzyñscy, jesteœcie;
+Z ró¿nych innych zaœcianków jest tu nas ze dwieœcie;
+Wszyscy wiêc radŸmy. Jeœli potrzeba marsza³ka,
+G³osujmy wszyscy; równa u ka¿dego ga³ka.
+Niech ¿yje równoœæ!”
+214
+Zatem dwaj Terajewicze
+I czterej Stupu³kowscy, i trzej Mickiewicze
+Krzyknêli: „Wiwat równoœæ!” - stoj¹c za Sko³ub¹.
+Tymczasem Buchman wo³a³: „Zgoda bêdzie zgub¹!”
+Kropiciel krzycza³: „Bez was obejdziem siê sami;
+Niech ¿yje nasz marsza³ek, Maciek nad Maækami!
+Hej, do laski!” Dobrzyñscy krzycz¹: „Zapraszamy!”
+A obca szlachta wo³a w g³os: „Nie pozwalamy!”
+Rozstrycha siê t³um na dwie kupy rozdzielony
+I kiwaj¹c g³owami w dwie przeciwne strony,
+Tamci: „Nie pozwalamy!” - ci krzycz¹: „Prosiemy!”
+Maciek stary w poœrodku jeden siedzia³ niemy
+I jedna g³owa jego by³a nieruchoma.
+Przeciw niemu sta³ Chrzciciel, zwieszony rêkoma
+Na maczudze, a g³ow¹ na koñcu maczugi
+Wspart¹ krêci³ jak tykw¹ wbit¹ na kij d³ugi
+I na przemiany to w ty³, to siê naprzód kiwa³,
+I ustawicznie: „Kropiæ, kropiæ!” wykrzykiwa³.
+Wzd³u¿ izby zaœ przebiega³ Brzytewka ruchawy
+Ci¹gle od Kropiciela do Macieja ³awy.
+Konewka zaœ powoli wszerz izbê przechodzi³
+Od Dobrzyñskich do szlachty, niby to ich godzi³;
+Jeden wci¹¿ wo³a³: „Goliæ!” - a drugi: „Zalewaæ!”
+Maciek milcza³, lecz widno, ¿e siê zacz¹³ gniewaæ.
+Æwieræ godziny wrza³ ha³as, gdy nad t³um wrzeszcz¹cy,
+Ze œrodka g³ów, wyskoczy³ w górê s³up b³yszcz¹cy:
+By³ to rapier s¹¿nistej d³ugoœci, szeroki
+215
+Na ca³¹ piêdŸ, a sieczny na obadwa boki.
+Widocznie miecz teutoñski, z norymberskiej stali
+Ukuty; wszyscy milcz¹c na broñ pogl¹dali.
+Kto j¹ podniós³? nie widaæ, lecz zaraz zgadniono:
+„To Scyzoryk! Niech ¿yje Scyzoryk! - krzykniono -
+Wiwat Scyzoryk, klejnot Rêbaj³ów zaœcianku!
+Wiwat Rêbaj³o, Szczerbiec, Pó³kozic, Mopanku!”
+Wnet Gerwazy (to on by³) przez t³um siê przecisn¹³
+Na œrodek izby, wko³o Scyzorykiem b³ysn¹³,
+Potem, w dó³ chyl¹c ostrze na znak powitania
+Przed Maækiem, rzek³: „Rózeczce Scyzoryk siê k³ania.
+Bracia szlachta Dobrzyñscy! Ja nie bêdê radzi³
+Nic a nic, powiem tylko, po com Was zgromadzi³,
+A co robiæ, jak robiæ, decydujcie sami.
+Wiecie, s³uch dawno chodzi miêdzy zaœciankami,
+¯e siê na wielkie rzeczy zanosi na œwiecie;
+Ksi¹dz Robak o tem gada³, wszak¿e wszyscy wiecie?”
+„Wiemy!” - krzyknêli. - „Dobrze. Owo¿ m¹drej g³owie -
+Ci¹gn¹³ mowca spojrzawszy bystro - doœæ dwie s³owie,
+Nieprawda¿?” „Prawda!” - rzekli. - „Gdy cesarz francuski -
+Rzek³ Klucznik - st¹d przyci¹ga, a stamt¹d car ruski:
+Wiêc wojna, car z cesarzem, królowie z królami
+Pójd¹ za ³by, jak zwykle miêdzy monarchami;
+A nam czy siedzieæ cicho? Gdy wielki wielkiego
+Bêdzie dusiæ, my duœmy mniejszych, ka¿dy swego.
+Z góry i z do³u, wielcy wielkich, ma³ych mali,
+Jak zaczniem ci¹æ, tak ca³e szelmostwo siê zwali
+I tak zakwitnie szczêœcie i Rzeczpospolita.
+216
+Nieprawda¿?”
+„Prawda! - rzekli - jakby z ksi¹¿ki czyta”.
+„Prawda! - powtórzy³ Chrzciciel - krop a krop, i kwita”.
+„Ja zawsze gotów goliæ” - ozwa³ siê Brzytewka.
+„Tylko zgodŸcie siê - prosi³ uprzejmie Konewka -
+Chrzcicielu i Macieju, pod czyj¹ iœæ wodz¹”.
+Ale mu przerwa³ Buchman: „Niech siê g³upi godz¹!
+Dyskusyje publicznej sprawie nie zaszkodz¹.
+Proszê milczeæ! S³uchamy! Sprawa na tem zyska,
+Pan Klucznik j¹ z nowego zwa¿a stanowiska”.
+„Owszem - zawo³a³ Klucznik - u mnie po staremu:
+O wielkich rzeczach myœleæ nale¿y wielkiemu;
+Jest na to cesarz, bêdzie król, senat, pos³owie.
+Takie rzeczy, Mopanku, robi¹ siê w Krakowie
+Lub w Warszawie, nie u nas, w zaœcianku, w Dobrzynie;
+Aktów konfederackich nie pisz¹ w kominie
+Kred¹, nie na wicinie, lecz na pergaminie:
+Nie nam to pisaæ akta, ma Polska pisarzy
+Koronnych i litewskich, tak robili starzy;
+Moja rzecz Scyzorykiem wyrzynaæ”. - „Kropid³em
+Pluskaæ” - doda³ Kropiciel. - „I wykalaæ Szyd³em” -
+Krzykn¹³ Bartek Szyde³ko, dobywszy swej szpadki.
+„Wszystkich was - koñczy³ Klucznik - biorê tu na œwiadki,
+Czy Robak nie powiada³, ¿e wprzód nim przyjmiecie
+W dom wasz Napoleona, trzeba wymieœæ œmiecie?
+S³yszeliœcie to wszyscy, a czy rozumiecie?
+Któ¿ jest œmieciem powiatu? Kto zdradziecko zabi³
+217
+Najlepszego z Polaków, kto go okrad³, zgrabi³?
+I jeszcze chce ostatki wydrzeæ z r¹k dziedzica?
+Któ¿ to? Mam¿e wam gadaæ?”
+„A ju¿ci Soplica -
+Przerwa³ Konewka - to ³otr!” - „Oj, to ciemiê¿yciel!” -
+Pisn¹³ Brzytewka. - „Wiêc go kropiæ!” - doda³ Chrzciciel.
+„Jeœli zdrajca - rzek³ Buchman - wiêc na szubienicê!”
+„Hej¿e! - krzyknêli wszyscy - haj¿e na Soplicê!”
+Lecz Prusak œmia³ podj¹æ siê Sêdziego obrony
+I wo³a³ z wzniesionemi ku szlachcie ramiony:
+„Panowie Bracia! aj! aj! a na boskie rany!
+Co znowu? Panie Klucznik, czy Waœæ opêtany?
+Czy o tem by³a mowa? ¿e ktoœ mia³ wariata,
+Banita bratem, to co? karaæ go za brata!
+To mi po chrzeœcijañsku! S¹ tu w tym konszachty
+Hrabiego. - ¯eby Sêdzia by³ ciê¿ki dla szlachty,
+Nieprawda! dalibóg¿e! to wy tylko sami
+Pozywacie go, a on zgody szuka z wami,
+Ustêpuje ze swego, jeszcze grzywny p³aci,
+Ma proces z Hrabi¹, có¿ st¹d? obadwa bogaci;
+Niechaj pan drze siê z panem, có¿ to do nas braci?
+Pan Sêdzia ciemiê¿yciel! On pierwszy zabrania³,
+A¿eby siê ch³op przed nim do ziemi nie k³ania³,
+Mówi¹c, ¿e to grzech. Nieraz u niego gromada
+Ch³opska, ja sam widzia³em, do sto³u z nim siada;
+P³aci³ za w³oœæ podatki, a nie tak jest w Klecku,
+Choæ tam Waœæ, Panie Buchman, rz¹dzisz po niemiecku.
+218
+Sêdzia zdrajca! - My siê z nim od infimy znamy:
+Poczciwe by³o dziecko i dziœ taki samy;
+Polskê kocha nad wszystko, polskie obyczaje
+Chowa, modom moskiewskim przystêpu nie daje.
+Ilekroæ z Prus powracam, chc¹c zmyæ siê z niemczyzny,
+Wpadam do Soplicowa jak w centrum polszczyzny:
+Tam siê cz³owiek napije, nadysze Ojczyzny!
+Dalbóg, Dobrzyñscy! ja wasz brat, ale Sêdziego
+Nie pozwolê pokrzywdziæ, nie bêdzie nic z tego.
+Nie tak, Panowie Bracia, w Wielko - Polszcze by³o:
+Co za duch! co za zgoda! a¿ przypomnieæ mi³o!
+Nikt tam podobn¹ fraszk¹ nie œmia³ rady mieszaæ!”
+„To nie fraszka - zawo³a³ Klucznik - ³otrów wieszaæ!”
+Szmer wzmaga³ siê; wtem Jankiel pos³uchania prosi³,
+Na ³awê wskoczy³, stan¹³ i nad g³owy wznosi³
+Brodê jak wiechê, co mu a¿ do pasa wisi;
+Praw¹ rêk¹ zdj¹³ z wolna z g³owy ko³pak lisi,
+Lew¹ rêk¹ jarmu³kê zruszon¹ poprawi³,
+Potem lewicê za pas zatkn¹³ i tak prawi³,
+Ko³pakiem lisim w kolej k³aniaj¹c siê nisko
+„Nu, Panowie Dobrzyñscy, ja sobie ¿ydzisko;
+Mnie Sêdzia ni brat, ni swat; szanujê Sopliców,
+Jak panów bardzo dobrych i moich dziedziców;
+Szanujê te¿ Dobrzyñskich Bartków i Maciejów,
+Jako dobrych s¹siadów, panów dobrodziejów;
+A mówiê tak: je¿eli Pañstwo chc¹ gwa³t zrobiæ
+219
+Sêdziemu, to bardzo Ÿle; mo¿ecie siê pobiæ,
+Zabiæ... - A asesory? a sprawnik? a turma?
+Bo w wiosce u Soplicy jest ¿o³nierzy hurma,
+Wszystko jegry! Asesor w domu; tylko œwiœnie,
+Tak wraz przymaszeruj¹, stoj¹ jak umyœlnie.
+A co bêdzie? A jeœli czekacie Francuza,
+To Francuz jest daleko jeszcze, droga du¿a.
+Ja ¯yd, o wojnach nie wiem, a by³em w Bielicy
+I widzia³em tam ¿ydków od samej granicy;
+S³ychaæ, ¿e Francuz stoi nad rzek¹ £ososn¹,
+A wojna jeœli bêdzie, to chyba a¿ wiosn¹.
+Nu, mówiê tak: czekajcie; wszak dwór Soplicowa
+Nie budka kramna, co siê rozbierze, w wóz schowa
+I pojedzie - dwór jak sta³, do wiosny staæ bêdzie;
+A pan Sêdzia to nie jest ¿ydek na arendzie,
+Nie uciecze, to jego mo¿na znaleŸæ wiosn¹;
+A teraz rozejdŸcie siê, a nie gadaæ g³oœno
+O tem, co by³o, bo to gadaæ, to daremno!
+A czyja ³aska Panów Szlachty, proszê ze mn¹.
+Moja Siora powi³a ma³ego Jankielka,
+Ja dziœ traktujê wszystkich, a muzyka wielka!
+Ka¿ê przynieœæ kozicê, basetlê, dwie skrzypiec,
+A pan Maciej Dobrodziej lubi stary lipiec
+I nowego mazurka; mam nowe mazurki,
+A wyuczy³em œpiewaæ fein moje bachurki”.
+Wymowa lubionego powszechnie Jankiela
+Trafia³a do serc; powsta³ krzyk, oklask wesela,
+220
+Szmer przyzwolenia nawet za domem siê szerzy³,
+Gdy Gerwazy w Jankiela Scyzorykiem zmierzy³.
+¯yd skoczy³, wpad³ w t³um;
+Klucznik wo³a³: „Precz st¹d, ¯ydzie!
+Nie tkaj palców miêdzy drzwi, nie o ciebie idzie!
+Panie Prusak! ¿e Waszeæ sêdziowsk¹ handlujesz
+Par¹ wicin mizernych, to ju¿ zañ gard³ujesz?
+Zapomnia³eœ, Mopanku, ¿e ojciec Waszécin
+Sp³awia³ do Prus dwadzieœcie Horeszkowskich wicin?
+St¹d siê zbogaci³ i on, i jego rodzina;
+Ba, nawet wszyscy, ilu was tu jest z Dobrzyna.
+Bo pamiêtacie, starzy, s³yszeliœcie m³odzi,
+¯e Stolnik by³ was wszystkich ojciec i dobrodziéj:
+Kogo¿ on komisarzem s³a³ do swych dóbr piñskich?
+Dobrzyñskiego! Rachmistrzów kogo mia³? Dobrzyñskich!
+Marsza³kostwa, kredensu nie zwierza³ nikomu,
+Tylko Dobrzyñskim: pe³no Dobrzyñskich mia³ w domu!
+On forytowa³ wasze w trybuna³ach sprawy,
+On wyrabia³ u króla dla was chleb ³askawy,
+Dzieci wasze kopami pomieszcza³ w konwikcie
+Pijarskim, na swym koszcie, odzie¿y i wikcie;
+Doros³ych promowowa³ tak¿e swym nak³adem.
+A dlaczego to robi³? ¯e wam by³ s¹siadem!
+Dziœ Soplica kopcami tyka waszych granic;
+Có¿ kiedy wam dobrego zrobi³ on?”
+„Nic a nic! -
+Przerwa³ Konewka - bo to wyros³o z szlachciury,
+A jak dmie siê, phu phu phu, jak nos drze do góry!
+Pamiêtacie, prosi³em na córki wesele;
+221
+Pojê, nie chce piæ, mówi: <<Nie pijê tak wiele
+Jak wy szlachta; wy szlachta ci¹gniecie jak b¹ki!>>
+Ot, magnat! delikacik z marymonckiej m¹ki!
+Nie pi³, leliœmy w gard³o; krzycza³: <<Gwa³t siê dzieje!>>
+Czekaj no, niech no ja mu z Konewki nalejê”.
+„Filut - zawo³a³ Chrzciciel - oj, i ja go kropnê
+Za swoje. Mój syn - by³o to dziecko roztropne,
+Teraz tak zg³upia³, ¿e go nazywaj¹ Sakiem.
+A z przyczyny Sêdziego zosta³ g³upcem takim.
+Mówi³em: <<Po co tobie leŸæ do Soplicowa?
+Je¿eli ciê tam z³owiê, niech ciê Bóg uchowa!>>
+On znowu smyk do Zosi, dybie przez konopie;
+Z³owi³em go, a zatem za uszy i kropiê;
+A on beczy i beczy jak maleñkie ch³opie:
+<<Ojcze, choæ zabij, muszê tam iœæ>> - a wci¹¿ szlocha .
+Co tobie? A on mówi, ¿e tê Zosiê kocha!
+Chcia³by popatrzyæ na ni¹! ¯al mi nieboraka;
+Mówiê Sêdziemu: <<Sêdzio, daj Zosiê dla Saka!>>
+On mówi: <<Jeszcze ma³a, czekaj ze trzy lata,
+Jak sama zechce>>. £otr! ³¿e, ju¿ j¹ komuœ swata.
+S³ysza³em; ju¿ ja siê tam na wesele wkrêcê,
+Ja im ³o¿e ma³¿eñskie Kropid³em poœwiêcê”.
+„I taki ³otr - zawo³a³ Klucznik - ma panowaæ?
+I dawnych panów, lepszych od siebie, rujnowaæ?
+A Horeszków i pamiêæ, i imiê zaginie!
+Gdzie¿ jest wdziêcznoœæ na œwiecie?
+- nie ma jej w Dobrzynie.
+222
+Bracia! chcecie bój z ruskim wieœæ imperatorem,
+A boicie siê wojny z Soplicowskim dworem?
+Strach wam turmy! czy¿ to ja wzywam na rozboje?
+Broñ Bo¿e! Szlachta Bracia! ja przy prawie stojê.
+Wszak Hrabia wygra³, zyska³ dekretów niema³o;
+Tylko je egzekwowaæ! Tak dawniej bywa³o:
+Trybuna³ pisa³ dekret, szlachta wype³nia³a,
+A szczególniej Dobrzyñscy, i st¹d wasza chwa³a
+Uros³a w Litwie!
+Wszak¿e to Dobrzyñscy sami
+Bili siê na zajeŸdzie myskim z Moskalami,
+Których przywiód³ jenera³ ruski Wojni³owicz
+I ³otr, przyjaciel jego, pan Wo³k z £ugomowicz;
+Pamiêtacie, jak Wo³ka wziêliœmy w niewolê,
+Jak chcieliœmy go wieszaæ na belce w stodole,
+I¿ by³ tyran dla ch³opstwa, a s³uga Moskali;
+Ale siê ch³opi g³upi nad nim zlitowali!
+(Upiec go muszê kiedyœ na tym Scyzoryku).
+Nie wspomnê innych wielkich zajazdów bez liku,
+Z których wyszliœmy zawsze, jak szlachcie przysta³o,
+I z zyskiem, i aplauzem powszechnym, i z chwa³¹!
+Po có¿ o tem wspominaæ! Dziœ darmo pan Hrabia,
+S¹siad wasz, sprawê toczy, dekrety wyrabia,
+Ju¿ nikt z was pomóc nie chce biednemu sierocie!
+Dziedzic Stolnika, tego, który ¿ywi³ krocie,
+Dziœ nie ma przyjaciela oprocz mnie - Klucznika,
+I ot, tego wiernego mego Scyzoryka!”
+223
+„I Kropid³a! - rzek³ Chrzciciel - gdzie ty, Gerwazeñku,
+Tam i ja, póki rêka, póki plusk plask w rêku.
+Co dwaj, to dwaj! Dalibóg, mój Gerwazy! ty miecz,
+Ja mam Kropid³o; dalbóg! ja kropiê, a ty siecz,
+I tak szach mach, plusk i plask; oni niech gawêdz¹!”
+„Toæ i Bartka - rzek³ Brzytwa - Bracia nie odpêdz¹;
+Ju¿ co wy namydlicie, to ja wszystko zgolê”.
+„I ja - przyda³ Konewka - z wami ruszyæ wolê,
+Gdy ich nie mo¿na zgodziæ na obior marsza³ka;
+Co mi tam g³osy, ga³ki, u mnie insza ga³ka
+(Tu wydoby³ z kieszeni garœæ kul, dzwoni³ niemi):
+Ot, ga³ki! - krzykn¹³ - w Sêdziê ga³kami wszystkiemi!”
+„Do was - wo³a³ Sko³uba - do was siê ³¹czymy!”
+„Gdzie wy - krzyknê³a szlachta - gdzie wy, to tam i my!
+Niech ¿yj¹ Horeszkowie! wiwant Pó³kozice!
+Wiwat Klucznik Rêbaj³o! Haj¿e na Soplice!”
+I tak wszystkich poci¹gn¹³ wymowny Gerwazy:
+Bo wszyscy ku Sêdziemu mieli swe urazy,
+Jak zwyczajnie w s¹siedztwie, to o szkodê skargi,
+To o wyrêby, to o granice zatargi:
+Jednych gniew, drugich tylko podburza³a zawiœæ
+Bogactw Sêdziego - wszystkich zgodzi³a nienawiœæ.
+Cisn¹ siê do Klucznika, podnosz¹ do góry
+Szable, pa³ki...
+A¿ Maciek, dotychczas ponury,
+Nieruchomy, wsta³ z ³awy i wolnemi kroki
+Wyszed³ na œrodek izby, i podpar³ siê w boki;
+224
+I spojrzawszy przed siebie, i kiwaj¹c g³ow¹,
+Zabra³ g³os, wymawiaj¹c z wolna ka¿de s³owo,
+Z przestankiem i przyciskiem: „A g³upi! a g³upi!
+A g³upi wy! Na kim siê mle³o, na was skrupi.
+To póki o wskrzeszeniu Polski by³a rada,
+O dobru pospolitem, g³upi, u was zwada?
+Nie mo¿na by³o, g³upi, ani siê rozmówiæ,
+G³upi, ani porz¹dku, ani postanowiæ
+Wodza nad wami, g³upi! A niech no kto podda
+Osobiste urazy, g³upi, u was zgoda!
+Precz st¹d! bo jakem Maciek, was, do milijonów
+Kroæset kroci tysiêcy fur beczek furgonów
+Diab³ów!!!...”
+Ucichli wszyscy jak ra¿eni gromem!
+Ale razem straszliwy powsta³ krzyk za domem:
+„Wiwat Hrabia!” On wje¿d¿a³ na folwark Maciejów,
+Sam zbrojny, za nim zbrojnych dziesiêciu d¿okejów.
+Hrabia siedzia³ na dzielnym koniu, w czarnym stroju;
+Na sukni orzechowy p³aszcz w³oskiego kroju,
+Szeroki, bez rêkawów, jak wielka opona,
+Spiêty klamr¹ u szyi, spada³ przez ramiona;
+Kapelusz mia³ okr¹g³y z piórem, w rêku szpadê,
+Okrêci³ siê i szpad¹ powita³ gromadê.
+„Wiwat Hrabia! - krzyknêli - z nim ¿yæ i umieraæ!”
+Szlachta zaczê³a z chaty przez okna wyzieraæ
+I za Klucznikiem coraz ku drzwiom siê napieraæ;
+Klucznik wyszed³, a za nim t³um przeze drzwi run¹³,
+Maciek resztê wypêdzi³, drzwi zamkn¹³, zasun¹³
+I przez okno wyjrzawszy, raz jeszcze rzek³: „G³upi!”
+225
+A tymczasem siê szlachta do Hrabiego kupi;
+Id¹ w karczmê, Gerwazy wspomnia³ dawne czasy,
+Kaza³ sobie trzy podaæ od kontuszów pasy,
+Na nich ze sklepu karczmy beczki wydobywa
+Trzy: jedn¹ miodu, drug¹ wódki, trzeci¹ piwa.
+Wyj¹³ goŸdzie, wnet z szumem trysnê³y trzy strugi:
+Jeden bia³y jak srebro, krwawnikowy drugi,
+Trzeci ¿ó³ty; troist¹ graj¹ w górze têcz¹,
+A spadaj¹c w sto kubków, we sto szklanek brzêcz¹.
+Wre szlachta, tamci pij¹, ci Hrabiemu ¿ycz¹
+Lat setnych, wszyscy: „Haj¿e na Soplice!” krzycz¹.
+Jankiel wymkn¹³ siê milczkiem, oklep; Prusak równie,
+Nie s³uchany, choæ jeszcze rozprawia³ wymownie,
+Chcia³ zmykaæ, szlachta w pogoñ, wo³aj¹c, ¿e zdradzi³.
+Mickiewicz sta³ z daleka, ni krzycza³, ni radzi³,
+Ale z miny poznano, ¿e coœ z³ego knuje,
+Wiêc do kordów, i haj¿e! On siê rejteruje,
+Odcina siê, ju¿ ranny, przyparty do p³otów,
+Gdy mu skoczy³ na odsiecz Zan i trzech Czeczotów.
+Zaczem rozjêto szlachtê, ale w tym rozruchu
+Dwóch by³o ciêtych w rêce, ktoœ dosta³ po uchu.
+Reszta wsiada³a na koñ.
+Hrabia i Gerwazy
+Porz¹dkuj¹, rozdaj¹ orê¿e, rozkazy.
+W koñcu wszyscy przez d³ug¹ zaœcianku ulicê
+Puœcili siê w cwa³, krzycz¹c: „Haj¿e na Soplice!”
+226
+KSIÊGA ÓSMA
+ZAJAZD
+Treœæ:
+Astronomia Wojskiego - Uwaga Podkomorzego nad kometami - Tajemnicza
+scena w pokoju Sêdziego - Tadeusz, chc¹c zrêcznie wypl¹taæ siê, wpada
+w wielkie k³opoty - Nowa Dydo- Zajazd - Ostatnia woŸnieñska protestacja -
+Hrabia zdobywa Soplicowo - Szturm i rzeŸ - Gerwazy piwnicznym - Uczta
+zajazdowa.
+227
+Przed burz¹ bywa chwila cicha i ponura,
+Kiedy nad g³owy ludzi przyleciawszy chmura
+Stanie i gro¿¹c twarz¹, dech wiatrów zatrzyma,
+Milczy, obiega ziemiê b³yskawic oczyma,
+Znacz¹c te miejsca, gdzie wnet ciœnie grom po gromie:
+Tej ciszy chwila by³a w Soplicowskim domie.
+Myœli³byœ, ¿e przeczucie nadzwyczajnych zdarzeñ
+Œciê³o usta i wznios³o duchy w kraje marzeñ.
+Po wieczerzy i Sêdzia, i goœcie ze dworu
+Wychodz¹ na dziedziniec u¿ywaæ wieczoru;
+Zasiadaj¹ na przyzbach wys³anych muraw¹;
+Ca³e grono z posêpn¹ i cich¹ postaw¹
+Pogl¹da w niebo, które zdawa³o siê zni¿aæ,
+Œcieœniaæ i coraz bardziej ku ziemi przybli¿aæ,
+A¿ oboje, skrywszy siê pod zas³onê ciemn¹
+Jak kochankowie, wszczêli rozmowê tajemn¹,
+T³umacz¹c swe uczucia w westchnieniach t³umionych,
+Szeptach, szmerach i s³owach na wpó³ wymówionych,
+Z których sk³ada siê dziwna muzyka wieczoru.
+Zacz¹³ j¹ puszczyk, jêcz¹c na poddaszu dworu;
+Szepnê³y wiotkiem skrzyd³em niedoperze, lec¹
+Pod dom, gdzie szyby okien, twarze ludzi œwiec¹;
+Ni¿ej zaœ - niedoperzów siostrzyczki, æmy, rojem
+Wij¹ siê, przywabione bia³ym kobiet strojem.
+Mianowicie przykrz¹ siê Zosi, bij¹c w lice
+I w jasne oczki, które bior¹ za dwie œwiéce.
+Na powietrzu owadów wielki kr¹g siê zbiera,
+228
+Krêci siê, graj¹c jako harmoniki sfera;
+Ucho Zosi rozró¿nia wœród tysi¹ca gwarów
+Akord muszek i pó³ton fa³szywy komarów.
+W polu koncert wieczorny ledwie jest zaczêty;
+W³aœnie muzycy koñcz¹ stroiæ instrumenty.
+Ju¿ trzykroæ wrzasn¹³ derkacz, pierwszy skrzypak ³¹ki,
+Ju¿ mu z dala wtóruj¹ z bagien basem b¹ki,
+Ju¿ bekasy do góry porwawszy siê wij¹
+I bekaj¹c raz po raz jak w bêbenki bij¹.
+Na fina³ szmerów muszych i ptaszêcej wrzawy
+Odezwa³y siê chórem podwójnym dwa stawy,
+Jako zaklête w górach kaukaskich jeziora,
+Milcz¹ce przez dzieñ ca³y, graj¹ce z wieczora.
+Jeden staw, co toñ jasn¹ i brzeg mia³ piaszczysty,
+Modr¹ piersi¹ jêk wyda³ cichy, uroczysty;
+Drugi staw, z dnem b³otnistem i gardzielem mêtnym,
+Odpowiedzia³ mu krzykiem ¿a³oœnie namiêtnym;
+W obu stawach pia³y ¿ab niezliczone hordy,
+Oba chory zgodzone w dwa wielkie akordy.
+Ten fortissimo zabrzmia³, tamten nuci z cicha,
+Ten zdaje siê wyrzekaæ, tamten tylko wzdycha;
+Tak dwa stawy gada³y do siebie przez pola,
+Jak graj¹ce na przemian dwie arfy Eola.
+Mrok gêstnia³; tylko w gaju i oko³o rzeczki,
+W ³ozach, b³yska³y wilcze oczy jako œwieczki,
+A dalej, u œcieœnionych widnokrêgu brzegów,
+229
+Tu i ówdzie ogniska pastuszych noclegów.
+Nareszcie ksiê¿yc srebrn¹ pochodniê zanieci³,
+Wyszed³ z boru i niebo i ziemiê oœwieci³.
+One teraz, z pomroku odkryte w po³owie,
+Drzema³y obok siebie jako ma³¿onkowie
+Szczêœliwi: niebo w czyste objê³o ramiona
+Ziemi pierœ, co ksiê¿ycem œwieci posrebrzona.
+Ju¿ naprzeciw ksiê¿yca gwiazda jedna, druga
+B³ysnê³a; ju¿ ich tysi¹c, ju¿ milijon mruga.
+Kastor z bratem Polluksem jaœnieli na czele,
+Zwani niegdyœ u S³awian: Lele i Polele;
+Teraz ich w zodyjaku gminnym znów przechrzczono,
+Jeden zowie siê L i t w ¹, a drugi K o r o n ¹.
+Dalej niebieskiej W a g i dwie szale b³yskaj¹;
+Na nich Bóg w dniu stworzenia (starzy powiadaj¹)
+Wa¿y³ z kolei wszystkie planety i ziemie,
+Nim w przepaœciach powietrza osadzi³ ich brzemiê;
+Potem wagi z³ociste zawiesi³ na niebie:
+Z nich to ludzie wag i szal wzór wziêli dla siebie.
+Na pó³noc œwieci okr¹g gwiaŸdzistego S i t a,
+Przez które Bóg (jak mówi¹) przesia³ ziarnka ¿yta,
+Kiedy je z nieba zruca³ dla Adama ojca,
+Wygnanego za grzechy z rozkoszy ogrojca.
+Nieco wy¿ej D a w i d a w ó z, gotów do jazdy,
+D³ugi dyszel kieruje do Polarnej Gwiazdy.
+230
+Starzy Litwini wiedz¹ o rydwanie owym,
+¯e nies³usznie pospólstwo zwie go Dawidowym,
+Gdy¿ to jest wóz Anielski. Na nim to przed czasy
+Jecha³ Lucyper, Boga gdy wyzwa³ w zapasy,
+Mlecznym goœciñcem pêdz¹c w cwa³ w niebieskie progi,
+A¿ go Micha³ zbi³ z wozu, a wóz zruci³ z drogi.
+Teraz, popsuty, miêdzy gwiazdami siê wala,
+Naprawiaæ go archanio³ Micha³ nie pozwala.
+I to wiadomo tak¿e u starych Litwinów
+(A wiadomoœæ tê pono wziêli od rabinów),
+¯e ów zodyjakowy S m o k, d³ugi i gruby,
+Który gwiaŸdziste wije po niebie przeguby,
+Którego mylnie W ê ¿ e m chrzcz¹ astronomowie,
+Jest nie wê¿em, lecz ryb¹. Lewiatan siê zowie.
+Przed czasy mieszka³ w morzach, ale po potopie
+Zdech³ z niedostatku wody; wiêc na niebios stropie,
+Tak dla osobliwoœci, jako dla pami¹tki,
+Anieli zawiesili jego martwe szcz¹tki.
+Podobnie pleban mirski zawiesi³ w koœciele
+Wykopane olbrzymów ¿ebra i piszczele.
+Takie gwiazd historyje, które z ksi¹¿ek zbada³
+Albo s³ysza³ z podania, Wojski opowiada³;
+Chocia¿ wieczorem s³aby mia³ wzrok Wojski stary
+I nie móg³ w niebie dojrzeæ nic przez okulary,
+Lecz na pamiêæ zna³ imiê i kszta³t ka¿dej gwiazdy;
+Wskazywa³ palcem miejsca i drogê ich jazdy.
+231
+Dziœ ma³o go s³uchano, nie zwa¿ano wcale
+Na Sito ni na Smoka, ani te¿ na Szale;
+Dziœ oczy i myœl wszystkich poci¹ga do siebie
+Nowy goœæ, dostrze¿ony niedawno na niebie:
+By³ to k o m e t a pierwszej wielkoœci i mocy,
+Zjawi³ siê na zachodzie, lecia³ ku pó³nocy;
+Krwawym okiem z ukosa na rydwan spoziera,
+Jakby chcia³ zaj¹æ puste miejsce Lucypera,
+Warkocz d³ugi w ty³ rzuci³ i czêœæ nieba trzeci¹
+Obwin¹³ nim, gwiazd krocie zagarn¹³ jak sieci¹
+I ci¹gnie je za sob¹, a sam wy¿ej g³ow¹
+Mierzy, na pó³noc, prosto w gwiazdê biegunow¹.
+Z niewymownym przeczuciem ca³y lud litewski
+Pogl¹da³ ka¿dej nocy na ten cud niebieski,
+Bior¹c z³¹ wró¿bê z niego tudzie¿ z innych znaków;
+Bo zbyt czêsto s³yszano krzyk z³owieszczych ptaków,
+Które na pustych polach gromadz¹c siê w kupy,
+Ostrzy³y dzioby, jakby czekaj¹c na trupy.
+Zbyt czêsto postrzegano, ¿e psy ziemiê ry³y
+I jak gdyby œmieræ wietrz¹c, przeraŸliwie wy³y:
+Co wró¿y g³ód lub wojnê; a stra¿nicy boru
+Widzieli, jak przez smêtarz sz³a dziewica moru,
+Która wznosi siê czo³em nad najwy¿sze drzewa,
+A w lewym rêku chustk¹ skrwawion¹ powiewa.
+Ró¿ne st¹d wnioski tworzy³ stoj¹cy przy p³ocie
+Cywun, co przyszed³ zdawaæ sprawê o robocie,
+I pisarz prowentowy w szeptach z ekonomem.
+232
+Lecz Podkomorzy siedzia³ na przyŸbie przed domem.
+Przerwa³ rozmowê goœci, znaæ, ¿e g³os zabiera;
+B³ysnê³a przy ksiê¿ycu wielka tabakiera
+(Ca³a z szczerego z³ota, z brylantów oprawa,
+We œrodku za szk³em portret króla Stanis³awa);
+Zadzwoni³ w ni¹ palcami, za¿y³ i rzek³: „Panie
+Tadeuszu, Waœcine o gwiazdach gadanie
+Jest tylko echem tego, co s³ysza³eœ w szkole.
+Ja o cudzie - prostaków poradziæ siê wolê.
+I ja astronomiji s³ucha³em dwa lata
+W Wilnie, gdzie Puzynina, m¹dra i bogata
+Pani, odda³a dochód z wioski dwiestu ch³opów
+Na zakupienie ró¿nych szkie³ i teleskopów;
+Ksi¹dz Poczobut, cz³ek s³awny, by³ obserwatorem
+I ca³ej Akademiji naonczas rektorem,
+Przecie¿ w koñcu katedrê i teleskop rzuci³,
+Do klasztoru, do cichej celi swej powróci³
+I tam umar³ przyk³adnie. Znam siê te¿ z Œniadeckim,
+Który jest m¹drym bardzo cz³ekiem, chocia¿ œwieckim.
+Owo¿ astronomowie planetê, kometê,
+Uwa¿aj¹ tak jako mieszczanie karetê;
+Wiedz¹, czyli zaje¿d¿a przed króla stolicê,
+Czyli z rogatek miejskich rusza za granicê;
+Lecz kto w niej jecha³? po co? co z królem rozmawia³?
+Czy król pos³a z pokojem, czy z wojn¹ wyprawia³?
+O to ani pytaj¹.
+233
+Pomnê, za mych czasów,
+Gdy Branecki karet¹ sw¹ ruszy³ do Jassów
+I za t¹ niepoczciw¹ poci¹gn¹³ karet¹
+Ogon targowiczanów, jak za t¹ komet¹ -
+Lud prosty, choæ w publiczne nie miesza³ siê rady,
+Zgadn¹³ zaraz, ¿e ogon ów jest wró¿b¹ zdrady.
+S³ychaæ, ¿e lud da³ imiê m i o t ³ y tej komecie,
+I powiada, ¿e ona milijon wymiecie”.
+A na to rzek³ z uk³onem Wojski: „Prawda, Jaœnie
+Wielmo¿ny Podkomorzy; przypominam w³aœnie,
+Co mnie mówiono niegdyœ, ma³emu dzieciêciu,
+Pamiêtam, choæ nie mia³em wówczas lat dziesiêciu,
+Kiedy widzia³em w domu naszym nieboszczyka
+Sapiehê, pancernego znaku porucznika,
+Co potem by³ nadwornym marsza³kiem królewskim,
+Na koniec umar³ wielkim kanclerzem litewskim,
+Miawszy lat sto i dziesiêæ. Ten, za króla Jana
+Trzeciego by³ pod Wiedniem w chor¹gwi hetmana
+Jab³onowskiego; owo¿ ów kanclerz powiada³,
+¯e w³aœnie kiedy na koñ król Jan Trzeci siada³,
+Gdy nuncjusz papieski ¿egna³ go na drogê,
+A pose³ austryjacki ca³owa³ mu nogê,
+Podaj¹c strzemiê (pose³ zwa³ siê Wilczek hrabia),
+Król krzykn¹³: <<Patrzcie, co siê na niebie wyrabia>>
+Spójrz¹, aliæ nad g³owy suwa³ siê kometa
+Drog¹, jak¹ ci¹gnê³y wojska Mahometa:
+Z wschodu na zachód; potem i ksi¹dz Bartochowski,
+Sk³adaj¹c panegiryk na tryumf krakowski,
+234
+Pod god³em Orientis Fulmen, prawi³ wiele
+O tym komecie; tak¿e czytam o nim w dziele
+Pod tytu³em Janina, gdzie jest opisana
+Ca³a wyprawa króla nieboszczyka Jana
+I wyryta chor¹giew wielka Mahometa,
+I ów taki, jak dziœ go widzimy, kometa”.
+„Amen - rzek³ na to Sêdzia - ja wró¿bê Waszeci
+Przyjmujê; oby z gwiazd¹ zjawi³ siê Jan Trzeci!
+Jest na zachodzie wielki dziœ bohater; mo¿e
+Kometa go przywiedzie do nas; co daj Bo¿e!”
+Na to rzek³ Wojski, g³owê pochyliwszy smutnie:
+„Kometa czasem wojny, czasem wró¿y k³ótnie!
+Niedobrze, i¿ siê zjawi³ tu¿ nad Soplicowem:
+Mo¿e nam grozi jakiem nieszczêœciem domowem.
+Mieliœmy wczora dosyæ rozterku i zwady,
+Tak w czasie polowania, jako i biesiady,
+Rejent k³óci³ siê z rana z panem Asesorem,
+A pan Tadeusz wyzwa³ Hrabiego wieczorem.
+Pono spór ten ze skóry niedŸwiedziej pochodzi³;
+I gdyby mnie Dobrodziej Sêdzia nie przeszkodzi³,
+Ja bym u sto³u obu przeciwników zgodzi³.
+Bo chcia³em opowiedzieæ wypadek ciekawy,
+Podobny do zdarzenia wczorajszej wyprawy,
+Co trafi³ siê najpierwszym strzelcom za mych czasów,
+Pos³owi Rejtanowi i ksiêciu Denassów.
+Przypadek by³ takowy:
+235
+Jenera³ Podolskich
+Ziem przeje¿d¿a³ z Wo³ynia do swoich dóbr polskich,
+Czy te¿, gdy dobrze pomnê, na sejm do Warszawy.
+Po drodze zwiedza³ szlachtê, ju¿ to dla zabawy,
+Ju¿ dla popularnoœci; wst¹pi³ wiêc do pana
+Tadeusza, dziœ œwiêtej pamiêci, Rejtana,
+Który by³ potem naszym nowogrodzkim pos³em
+I w którego ja domu od dzieciñstwa wzros³em.
+Owo¿ Rejtan na przyjazd ksiêcia Jenera³a
+Zaprosi³ goœci - liczna szlachta siê zebra³a,
+By³o teatrum (Ksi¹¿ê kocha³ siê w teatrze);
+Fajerwerk dawa³ Kaszyc, który mieszka w Jatrze,
+Pan Tyzenhauz tancerzy przys³a³, a kapele
+Ogiñski i pan So³tan, co mieszka w Zdziêciele.
+S³owem, dawano huczne nad spodziw zabawy
+W domu, a w lasach wielkie robiono ob³awy.
+Wiadomo zaœ Waszmoœciom jest, ¿e prawie wszyscy,
+Ile ich zapamiêtaæ mo¿na, Czartoryscy,
+Choæ id¹ z Jagiellonów krwi, lecz do myœlistwa
+Nie s¹ bardzo pochopni, pewno nie z lenistwa,
+Lecz z gustów cudzoziemskich; i ksi¹¿ê Jenera³
+Czêœciej do ksi¹¿ek niŸli do psiarni zaziera³,
+I do alkówek damskich czêœciej ni¿ do lasów.
+W œwicie Ksiêcia by³ ksi¹¿ê niemiecki Denassów,
+O którym powiadano, ¿e w libijskiej ziemi
+Goszcz¹c, polowa³ niegdyœ z królmi murzyñskiemi
+I tam tygrysa œpis¹ w rêcznym boju zwali³,
+Z czego siê bardzo ksi¹¿ê ów Denassów chwali³.
+236
+U nas zaœ polowano na dziki w tê porê;
+Rejtan zabi³ ze sztucca ogromn¹ maciorê,
+Z wielkim niebezpieczeñstwem, bo z bliska wypali³.
+Ka¿dy z nas trafnoœæ strza³u wydziwia³ i chwali³,
+Tylko Niemiec Denassów obojêtnie s³ucha³
+Pochwa³ takich i, chodz¹c, pod nos sobie dmucha³:
+¯e trafny strza³ dowodzi tylko œmia³e oko,
+Bia³a broñ œmia³¹ rêkê; i zacz¹³ szeroko
+Znowu gadaæ o swojej Libiji i œpisie,
+O swych królach murzyñskich i o swym tygrysie.
+Markotno to siê sta³o panu Rejtanowi,
+By³ cz³ek ¿ywy, uderzy³ po szabli i mówi:
+<<Moœci Ksi¹¿ê! kto patrzy œmiele, walczy œmiele;
+Warte dziki tygrysów, a spis karabele>> -
+I zaczynali z Niemcem dyskurs nazbyt ¿wawy.
+Szczêœciem, ksi¹¿ê Jenera³ przerwa³ te rozprawy,
+Godz¹c ich po francusku. Co tam gada³, nie wiem,
+Ale ta zgoda by³ to popio³ nad ¿arzewiem,
+Bo Rejtan wzi¹³ do serca, okazyi czeka³
+I dobr¹ sztukê sp³ataæ Niemcowi przyrzeka³;
+Tej sztuki ledwie w³asnym nie przyp³aci³ zdrowiem,
+A sp³ata³ j¹ nazajutrz, jak to wnet opowiem”.
+Tu Wojski umilkn¹wszy praw¹ rêkê wznosi³
+I u Podkomorzego tabakiery prosi³;
+D³ugo za¿ywa, koñczyæ powieœci nie raczy,
+Jak gdyby chcia³ zaostrzyæ ciekawoœæ s³uchaczy.
+Zaczyna³ wreszcie, kiedy znowu mu przerwano
+Powieœæ tak¹ ciekaw¹, tak pilnie s³uchan¹!
+237
+Bo do Sêdziego nagle któœ przys³a³ cz³owieka,
+Donosz¹c, ¿e z niezw³ocznym interesem czeka.
+Sêdzia, daj¹c dobranoc, ¿egna³ ca³e grono;
+Natychmiast siê po ró¿nych stronach rozpierzchniono:
+Ci spaæ do domu, tamci w stodole na sianie;
+Sêdzia szed³ podró¿nemu dawaæ pos³uchanie.
+Inni ju¿ œpi¹. Tadeusz po sieniach siê zwija,
+Chodz¹c jako wartownik oko³o drzwi stryja,
+Bo musi w wa¿nych rzeczach rady jego szukaæ
+Dziœ jeszcze, nim spaæ pójdzie; nie œmie do drzwi stukaæ.
+Sêdzia drzwi na klucz zamkn¹³, z kimœ tajnie rozmawia;
+Tadeusz koñca czeka, a ucha nadstawia.
+S³yszy wewn¹trz szlochanie; nie tr¹caj¹c klamek,
+Ostró¿nie dziurk¹ klucza zagl¹da przez zamek.
+Widzi rzecz dziwn¹! Sêdzia i Robak na ziemi
+Klêczeli obj¹wszy siê i ³zami rzewnemi
+P³akali, Robak rêce Sêdziego ca³owa³,
+Sêdzia Ksiêdza za szyjê p³acz¹c obejmowa³;
+Wreszcie po æwierægodzinnem przerwaniu rozmowy
+Robak po cichu tymi odezwa³ siê s³owy:
+„Bracie; Bóg wie, ¿em dot¹d tajemnic dochowa³,
+Którem z ¿alu za grzechy w spowiedzi œlubowa³;
+¯e Bogu i OjczyŸnie poœwiêcony ca³y,
+Nie s³u¿¹c pysze, ziemskiej nie szukaj¹c chwa³y,
+¯y³em dot¹d i chcia³em umrzeæ bernardynem,
+238
+Nie wydaj¹c nazwiska nie tylko przed gminem,
+Ale nawet przed tob¹ i przed w³asnym synem!
+Wszak¿e ksi¹dz prowincyja³ da³ mi pozwolenie
+In articulo mortis zrobiæ objawienie.
+Kto wie, czy wrócê ¿ywy! Kto wie, co siê stanie
+W Dobrzynie! Bracie! wielkie, wielkie zamieszanie!
+Francuz jeszcze daleko; nim przeminie zima,
+Trzeba czekaæ, a szlachta pono nie dotrzyma.
+Mo¿em zanadto czynnie z powstaniem siê krz¹ta³!
+Pono Ÿle zrozumieli! Klucznik wszystko spl¹ta³!
+Ten wariat Hrabia! s³yszê, pobieg³ do Dobrzyna!
+Nie mog³em go uprzedziæ, wa¿na w tym przyczyna:
+Stary Maciek mnie pozna³, a jeœli odkryje,
+Potrzeba bêdzie oddaæ pod Scyzoryk szyjê.
+Nic Klucznika nie wstrzyma! mniejsza o m¹ g³owê,
+Lecz tym odkryciem spisku zerwa³bym osnowê.
+Przecie¿ dziœ tam byæ muszê! widzieæ, co siê dzieje,
+Choæbym zgin¹³; beze mnie szlachta oszaleje!
+B¹dŸ zdrów, najmilszy bracie, b¹dŸ zdrów, œpieszyæ muszê.
+Jeœli zginê, ty jeden westchniesz za m¹ duszê;
+W przypadku wojny tobie ca³a tajemnica
+Wiadoma; koñcz, com zacz¹³, pomnij, ¿eœ Soplica!”
+Tu Ksi¹dz ³zy otar³, habit zapi¹³, kaptur w³o¿y³
+I okienicê tyln¹ po cichu otworzy³,
+Widaæ by³o, ¿e oknem do ogrodu skaka³;
+Sêdzia, zostawszy jeden, siad³ w krzeœle i p³aka³.
+239
+Chwilê czeka³ Tadeusz, nim w klamkê zadzwoni³;
+Otworzono mu; cicho wszed³, nisko siê sk³oni³:
+„Stryjaszku Dobrodzieju - rzek³ - ledwie dni kilka
+Przebawi³em tu, dni te minê³y jak chwilka;
+Nie mia³em czasu z twoim domem siê nacieszyæ
+I z tob¹, a odje¿d¿aæ muszê, muszê œpieszyæ
+Zaraz, dzisiaj, Stryjaszku, a jutro najdaléj:
+Wszak pamiêtacie, ¿eœmy Hrabiego wyzwali.
+Biæ siê z nim to rzecz moja, pos³a³em wyzwanie,
+W Litwie jest zakazane pojedynkowanie,
+Jadê wiêc na granicê Warszawskiego Ksiêstwa;
+Hrabia, prawda, fanfaron, lecz mu nie brak mêstwa,
+Na miejsce naznaczone zapewne siê stawi,
+Rozprawim siê; a jeœli Bóg pob³ogos³awi,
+Ukarzê go, a potem za £ososny brzegi
+Przep³ynê, gdzie mnie bratnie czekaj¹ szeregi.
+S³ysza³em, ¿e mi ojciec testamentem kaza³
+S³u¿yæ w wojsku, a nie wiem, kto testament zmaza³”.
+„Mój Tadeuszku - rzek³ stryj - czy Waszeæ k¹pany
+W gor¹cej wodzie, czy te¿ krêcisz jak lis szczwany,
+Co indziej kit¹ wije, a sam indziej bie¿y?
+Wyzwaliœmy, zapewne, i biæ siê nale¿y.
+Ale jechaæ dziœ, sk¹d¿eœ Waszeæ tak siê zaci¹³?
+Przed pojedynkiem zwyczaj jest pos³aæ przyjacio³,
+Uk³adaæ siê, wszak Hrabia mo¿e nas przeprosiæ,
+Deprekowaæ; czekaj Waœæ, czasu jeszcze dosyæ.
+Chyba inny giez jaki Waœci st¹d wygania,
+To gadaj szczerze, po co takie omawiania?
+240
+Jestem twój stryj; choæ stary, znam, co serce m³ode;
+By³em ci ojcem (mówi¹c g³adzi³ go pod brodê).
+Ju¿ w ucho szepn¹³ o tem mnie mój palec ma³y,
+¯e Waszeæ masz tu jakieœ z damami kaba³y.
+Za katy, prêdko teraz m³odŸ do dam siê bierze!
+No, Tadeuszku, przyznaj mi siê Waœæ, a szczerze”.
+„Ju¿ci - b¹kn¹³ Tadeusz - prawda, s¹ przyczyny
+Inne, kochany Stryju! mo¿e z mojej winy!
+Omy³ka! có¿? nieszczêœcie! ju¿ trudno naprawiæ!
+Nie, drogi Stryju, d³u¿ej nie mogê tu bawiæ!
+B³¹d m³odoœci! Stryjaszku, nie pytaj o wiêcej,
+Ja muszê z Soplicowa wyje¿d¿aæ co prêdzej”.
+„Ho - rzek³ stryj - pewnie jakieœ mi³oœne zatargi!
+Uwa¿a³em, ¿e Waszeæ wczora gryz³eœ wargi
+Pogl¹daj¹c spode ³ba na pewn¹ dziewczynkê,
+Widzia³em, ¿e i ona mia³a kwaœn¹ minkê.
+Znam ja te wszystkie g³upstwa; kiedy dzieci para
+Kocha siê; to tam u nich nieszczêœæ co niemiara;
+To ciesz¹ siê, to znowu trapi¹ siê i smuc¹;
+To znowu Bóg wie o co do zêbów siê sk³óc¹;
+To stoj¹c w k¹tkach jakby mruki, nie gadaj¹
+Do siebie, czasem nawet w pole uciekaj¹.
+Je¿eli na was raptus podobny napada,
+B¹dŸcie tylko cierpliwi, ju¿ jest na to rada;
+Biorê na siebie wkrótce przywieœæ was do zgody.
+Znam ja te wszystkie g³upstwa, wszak¿e by³em m³ody.
+Powiedz mi Wasze wszystko; ja mo¿e nawzajem
+Coœ odkryjê i tak siê oba poprzyznajem”.
+241
+„Stryjaszku - rzek³ Tadeusz (ca³uj¹c mu rêkê
+I rumieni¹c siê) - powiem prawdê; tê panienkê,
+Zosiê, wychowanicê Stryja, podoba³em
+Bardzo, choæ tylko parê razy j¹ widzia³em;
+A mówi¹, ¿e Stryj dla mnie za ¿onê przeznacza
+Podkomorzankê, piêkn¹ i córkê bogacza.
+Teraz nie móg³bym z pann¹ Ró¿¹ siê o¿eniæ,
+Kiedy kocham tê Zosiê; trudno serce zmieniæ!
+Nieuczciwie, ¿eni¹c siê z jedn¹, kochaæ drug¹,
+Czas mo¿e mnie uleczy; wyjadê - na d³ugo”.
+„Tadeuszku! - stryj przerwa³ - to mi dziwny sposób
+Kochania siê: uciekaæ od kochanych osób!
+Dobrze, ¿eœ szczery; widzisz, g³upstwo byœ wyp³ata³
+Odje¿d¿aj¹c: a co Waœæ powiesz, gdybym swata³
+Sam Waci Zosiê! He! có¿, nie skoczysz z radoœci?”
+Tadeusz rzek³ po chwili: „Dobroæ Jegomoœci
+Dziwi mnie! Lecz có¿? ³aska Stryja Dobrodzieja
+Nie przyda siê ju¿ na nic! Ach! pró¿na nadzieja!
+Bo pani Telimena nie odda mi Zosi!”
+„Bêdziem prosiæ” - rzek³ Sêdzia.
+„Nikt jej nie uprosi -
+Przerwa³ prêdko Tadeusz - nie, czekaæ nie mogê,
+Stryjaszku, muszê prêdko, jutro jechaæ w drogê.
+Daj mi, 5tryjaszku, tylko twe b³ogos³awieñstwo,
+Wszystko przygotowa³em, jadê zaraz w Ksiêstwo”.
+242
+Sêdzia w¹s krêc¹c, z gniewem na ch³opca spoziera³:
+„To Waœæ tak szczery? takeœ mi serce otwiera³?
+Naprzód ów pojedynek! Potem znowu mi³oœæ
+I ten wyjazd, oj! jest tu w tem jakaœ zawi³oœæ.
+Ju¿ mnie gadano, ju¿em kroki Waœci bada³!
+Asan ba³amut i trzpiot, Asan k³amstwa gada³.
+A gdzie¿ to Asan chodzi³ onegdaj wieczorem?
+Czego Asan jak wy¿e³ tropi³ pode dworem?
+O Tadeuszku! jeœli mo¿e Asan Zosiê
+Zba³amuci³ i teraz uciekasz? m³okosie,
+To siê Waci nie uda; lubisz czy nie lubisz,
+Zapowiadam Asanu, ¿e Zosiê poœlubisz,
+A nie, to bizun - jutro staniesz na kobiercu!
+I gada mnie o czuciach! o niezmiennym sercu!
+£garz jesteœ! pfe! ja z Waœci, Panie Tadeuszu,
+Zrobiê œledztwo, ja Waœci jeszcze natrê uszu!
+Dziœ doœæ mia³em k³opotów! A¿ mi g³owa boli!
+Ten mi jeszcze spokojnie zasn¹æ nie dozwoli!
+IdŸ mi Waœæ spaæ!”
+To mówi¹c, drzwi na wœci¹¿ otwiera³
+I zawo³a³ WoŸnego, ¿eby go rozbiera³.
+Tadeusz cicho wyszed³, opuœciwszy g³owê;
+Rozbiera³ w myœli przykr¹ ze stryjem rozmowê,
+Pierwszy raz po³ajany tak ostro!... oceni³
+S³usznoœæ wyrzutów, sam siê przed sob¹ rumieni³.
+Co pocz¹æ? jeœli Zosia o wszystkiem siê dowie?
+Prosiæ o rêkê? a có¿ Telimena powie?
+Nie - czu³, ¿e nie móg³ d³u¿ej zostaæ w Soplicowie.
+243
+Tak zadumany, ledwie zrobi³ kroków parê,
+Gdy mu coœ drogê zasz³o; spójrza³, widzi marê,
+Ca³¹ w bieliŸnie, d³ug¹, wysmuk³¹ i cienk¹.
+Suwa³a siê ku niemu z wyci¹gniêt¹ rêk¹,
+Od której odbija³ siê dr¿¹cy blask miesiêczny,
+I przyst¹piwszy, cicho jêknê³a: „Niewdziêczny!
+Szuka³eœ wzroku mego, teraz go unikasz,
+Szuka³eœ rozmów ze mn¹, dziœ uszy zamykasz,
+Jakby w s³owach, we wzroku mym by³a trucizna!
+Dobrze mi tak, wiedzia³am, kto jesteœ! - mê¿czyzna!
+Nie znaj¹c kokieterii, nie chcia³am ciê drêczyæ,
+Uszczêœliwi³am; tak¿eœ umia³ mnie zawdziêczyæ!
+Tryumf nad miêkkim sercem serce twe zatwardzi³;
+¯eœ je zdoby³ zbyt ³acno, zbyt prêdkoœ niem wzgardzi³!
+Dobrze mi tak! lecz straszn¹ nauczona prob¹,
+Wierz mi, i¿ wiêcej ni¿ ty - gardzê sama sob¹!”
+„Telimeno - Tadeusz rzek³ - dalbóg, nietwarde
+Mam serce ani ciebie unikam przez wzgardê,
+Ale uwa¿ no sama, wszak nas widz¹, œledz¹,
+Czy¿ mo¿na tak otwarcie? có¿ ludzie powiedz¹?
+Wszak to nieprzyzwoicie, to, dalbóg, jest grzechem”.
+„Grzechem! - odpowiedzia³a mu z gorzkim uœmiechem -
+Niewini¹tko! baranek! Ja, bêd¹c kobiét¹,
+Jeœli z mi³oœci nie dbam, choæby mnie odkryto,
+Choæby mnie os³awiono; a ty, ty mê¿czyzna?
+Có¿ szkodzi z was któremu, chocia¿ siê i przyzna,
+¯e ma romans z dziesiêciu razem kochankami?
+Mów prawdê: chcesz mnie rzuciæ?” - Zala³a siê ³zami.
+244
+„Telimeno, có¿ by œwiat mówi³ o cz³owieku -
+Rzek³ Tadeusz - który by teraz, w moim wieku,
+Zdrów, ¿y³ na wsi, kocha³ siê - kiedy tyle m³odzi,
+Tylu ¿onatych od ¿on, od dzieci uchodzi
+Za granicê, pod znaki narodowe bie¿y?
+Choæbym chcia³ zostaæ, czy to ode mnie zale¿y?
+Ojciec mnie testamentem kaza³, abym s³u¿y³
+W wojsku polskiem, teraz stryj ten rozkaz powtórzy³.
+Jutro jadê, zrobi³em ju¿ postanowienie,
+I dalbóg, Telimeno, ju¿ go nie odmieniê”.
+„Ja - rzek³a Telimena - nie chcê ci zagradzaæ
+Drogi do s³awy, szczêœciu twojemu przeszkadzaæ!
+Jesteœ mê¿czyzn¹, znajdziesz kochankê godniejsz¹
+Serca twojego, znajdziesz bogatsz¹, piêkniejsz¹!
+Tylko dla mej pociechy niech wiem przed rozstaniem,
+¯e twoja sk³onnoœæ by³a prawdziwem kochaniem,
+¯e to nie by³ ¿art tylko, nie rozpusta p³ocha,
+Lecz mi³oœæ; niech wiem, ¿e mnie mój Tadeusz kocha!
+Niech s³owo <<kocham>> jeszcze raz z ust twych us³yszê,
+Niech je w sercu wyryjê i w myœli zapiszê;
+Przebaczê ³acniej, chocia¿ przestaniesz mnie kochaæ,
+Pomn¹c, jakeœ mnie kocha³...” - I zaczê³a szlochaæ.
+Tadeusz, widz¹c, ¿e tak p³acze i tak b³aga
+Czule, i tylko takiej drobnostki wymaga,
+Wzruszy³ siê, przejê³y go szczery ¿al i litoœæ,
+I je¿eliby bada³ serca swego skrytoœæ,
+Mo¿e by siê w tej chwili i sam nie dowiedzia³,
+Czyli j¹ kocha³, czy nie. - Wiêc ¿ywo powiedzia³:
+245
+„Telimeno, bogdaj mnie jasny piorun ubi³,
+Jeœli nieprawda, ¿em ciê, dalbóg, bardzo lubi³
+Czy kocha³; krótkie z sob¹ spêdziliœmy chwile,
+Ale one mnie przesz³y tak s³odko, tak mile,
+¯e bêd¹ d³ugo, zawsze myœli mej przytomne,
+I dalibóg¿e, nigdy ciebie nie zapomnê”.
+Telimena skoczywszy pad³a mu na szyjê:
+„Tegom siê spodziewa³a, kochasz mnie, wiêc ¿yjê!
+Bo dzisiaj mia³am dni me w³asn¹ rêk¹ skróciæ!
+Gdy mnie kochasz, mój drogi, czy¿ mo¿esz mnie rzuciæ?
+Tobie odda³am serce, oddam ci maj¹tek,
+Pójdê za tob¹ wszêdzie; ka¿dy œwiata k¹tek
+Bêdzie mnie z tob¹ mi³y! Z najdzikszej pustyni
+Mi³oœæ, wierzaj mi, ogród rozkoszy uczyni”.
+Tadeusz, wydar³szy siê z objêcia przemoc¹:
+„Jak to? - rzek³ - czyœ z rozumu obrana? gdzie? po co?
+Jechaæ ze mn¹? Ja, bêd¹c sam prostym ¿o³nierzem,
+W³óczyæ, czy markietankê?” „To my siê pobierzem” -
+Rzek³a mu Telimena. „Nie, nigdy! - zawo³a
+Tadeusz. Ja ¿eniæ siê nie mam teraz zgo³a
+Zamiaru ni kochaæ siê - fraszki! dajmy pokój!
+Proszê ciê, moja droga, rozmyœl siê! uspokój!
+Ja jestem tobie wdziêczen, ale niepodobna
+¯eniæ siê, kochajmy siê, ale tak - z osobna.
+Zostaæ d³u¿ej nie mogê; nie, nie, jechaæ muszê,
+B¹dŸ zdrowa, Telimeno moja, jutro ruszê”.
+246
+Rzek³, nasuwa³ kapelusz, odwraca³ siê bokiem,
+Chc¹c iœæ; lecz go wstrzyma³a Telimena okiem
+I twarz¹, jak Meduzy g³ow¹; musia³ zostaæ
+Mimowolnie; pogl¹da³ z trwog¹ na jej postaæ,
+Sta³a blada, bez ruchu, bez tchu i bez ¿ycia!
+A¿ wyci¹gaj¹c rêkê jak miecz do przebicia,
+Z palcem zmierzonym prosto w Tadeusza oczy:
+„Tego chcia³am - krzyknê³a - ha, jêzyku smoczy!
+Serce jaszczurcze! To nic, ¿em tob¹ zajêta
+Wzgardzi³a Asesora, Hrabiê i Rejenta,
+¯eœ mnie uwiód³ i teraz porzucasz sierotê,
+To nic! Jesteœ mê¿czyzn¹, znam wasz¹ niecnotê,
+Wiem, ¿e jak inni, tak ty móg³byœ wiarê z³amaæ,
+Lecz nie wiedzia³am, ¿e tak podle umiesz k³amaæ!
+S³ucha³am pode drzwiami stryja! wiêc to dziecko?
+Zosia? wpad³a ci w oko? i na ni¹ zdradziecko
+Dybiesz! Zaledwieœ jedn¹ nieszczêsn¹ oszuka³,
+A ju¿eœ pod jej bokiem nowych ofiar szuka³!
+Uciekaj, lecz ciê moje doœcign¹ przeklêctwa -
+Lub zostañ, wydam œwiatu twoje bezeceñstwa;
+Twe sztuki ju¿ nie zwiod¹ innych, jak mnie zwiod³y!
+Precz! gardzê tob¹! jesteœ k³amca, cz³owiek pod³y!”
+Na obelgê œmierteln¹ dla uszu szlachcica,
+I której ¿aden nigdy nie s³ysza³ Soplica,
+Zadr¿a³ Tadeusz, twarz mu poblad³a jak trupia,
+Tupn¹wszy nog¹, usta przyci¹wszy, rzek³: „G³upia!”
+247
+Odszed³; lecz wyraz „pod³oœæ” echem siê powtórzy³
+W sercu, wzdrygn¹³ siê m³odzian, czu³, ¿e nañ zas³u¿y³;
+Czu³, ¿e wyrz¹dzi³ wielk¹ krzywdê Telimenie,
+¯e go s³usznie skar¿y³a, mówi³o sumnienie;
+Lecz czu³, ¿e po tych skargach tem mocniej j¹ zbrzydzi³;
+O Zosi, ach! pomyœliæ nie wa¿y³ siê, wstydzi³.
+Przecie¿ ta Zosia, taka piêkna, taka mi³a!
+Stryj swata³ j¹! mo¿e by jego ¿on¹ by³a,
+Gdyby nie szatan, co go pl¹cz¹c w grzech za grzechem,
+W k³amstwo za k³amstwem, wreszcie odst¹pi³ z uœmiechem.
+Z³ajany, pogardzony od wszystkich! w dni parê
+Zmarnowa³ przysz³oœæ! Uczu³ s³uszn¹ zbrodni karê.
+W tej burzy uczuæ, jakby kotwica spoczynku,
+Zab³ysnê³a mu nagle myœl o pojedynku:
+„Zamordowaæ Hrabiego! ³otra! - krzykn¹³ w gniewie. -
+Zgin¹æ albo zemœciæ siê!” A za co? Sam nie wie!
+I ten gniew wielki, jak siê zaj¹³ w mgnieniu oka,
+Tak wywietrza³; znow zdjê³a go ¿a³oœæ g³êboka.
+Myœli³: „Jeœli prawdziwe by³o postrze¿enie,
+¯e Hrabia z Zosi¹ jakieœ ma porozumienie,
+I có¿ st¹d? Mo¿e Hrabia kocha Zosiê szczerze,
+Mo¿e go ona kocha? za mê¿a wybierze!
+Jakim¿e prawem chcia³bym zerwaæ to zamêœcie
+I, sam nieszczêœnik, wszystkich mam zaburzaæ szczêœcie?”
+Wpad³ w rozpacz i nie widzia³ innego sposobu,
+Chyba ucieczkê prêdk¹; gdzie? chyba do grobu!
+248
+Wiêc ku³ak przycisn¹wszy na schylonem czole,
+Bieg³ ku ³¹kom, gdzie stawy b³yszcza³y siê w dole,
+I stan¹³ nad b³otnistym; w zielonawe tonie
+£akomy wzrok utopi³ i b³otniste wonie
+Z rozkosz¹ ci¹gn¹³ piersi¹, i otworzy³ usta
+Ku nim: bo samobójstwo jak ka¿da rozpusta
+Jest wymyœln¹; on w g³owy szalonym zawrocie
+Czu³ niewymowny poci¹g utopiæ siê w b³ocie.
+Lecz Telimena, z dzikiej m³odzieñca postawy
+Zgaduj¹c rozpacz, widz¹c, ¿e pobieg³ nad stawy,
+Chocia¿ ku niemu takim s³usznym gniewem pa³a,
+Przelêk³a siê; w istocie dobre serce mia³a.
+¯al jej by³o, ¿e inn¹ œmia³ Tadeusz lubiæ,
+Chcia³a go skaraæ, ale nie myœli³a zgubiæ;
+Wiêc puœci³a siê za nim, wznosz¹c rêce obie,
+Krzycz¹c: „Stój! g³upstwo! kochaj czy nie! ¿eñ siê sobie
+Czy jedŸ! tylko stój!” - Ale on ju¿ szybkim biegiem
+Wyprzedzi³ j¹ daleko; ju¿ - stan¹³ nad brzegiem.
+Dziwnym zrz¹dzeniem losów, po tym samym brzegu
+Jecha³ Hrabia na czele d¿okejów szeregu,
+A zachwycony wdziêkiem nocy tak pogodnej
+I harmonij¹ cudn¹ orkiestry podwodnej,
+Owych chorów, co brzmia³y jak arfy eolskie
+(¯adne ¿aby nie graj¹ tak piêknie jak polskie),
+Wstrzyma³ konia i o swej zapomnia³ wyprawie,
+Zwróci³ ucho do stawu i s³ucha³ ciekawie.
+Oczy wodzi³ po polach, po niebios obszarze:
+Pewnie uk³ada³ w myœli nocne peiza¿e.
+249
+Zaiste, okolica by³a malownicza!
+Dwa stawy pochyli³y ku sobie oblicza
+Jako para kochanków: prawy staw mia³ wody
+G³adkie i czyste jako dziewicze jagody;
+Lewy, ciemniejszy nieco, jako twarz m³odziana
+Smag³awa i ju¿ mêskim puchem osypana.
+Prawy z³ocistym piaskiem po³yska³ siê wko³o
+Jak gdyby w³osem jasnym; a lewego czo³o
+Naje¿one ³ozami, wierzbami czubate;
+Oba stawy ubrane w zielonoœci szatê.
+Z nich dwa strugi, jak rêce zwi¹zane pospo³u,
+Œciskaj¹ siê; strug dalej upada do do³u;
+Upada, lecz nie ginie, bo w rowu ciemnotê
+Unosi na swych falach ksiê¿yca poz³otê;
+Woda warstami spada, a na ka¿dej warœcie
+Po³yskaj¹ siê blasku miesiêcznego garœcie,
+Œwiat³o w rowie na drobne drzazgi siê roztr¹ca,
+Chwyta je i w g³¹b niesie toñ uciekaj¹ca,
+A z góry znów garœciami spada blask miesi¹ca.
+Myœla³byœ, ¿e u stawu siedzi Œwitezianka,
+Jedn¹ rêk¹ zdrój leje z bezdennego dzbanka,
+A drug¹ rêk¹ w wodê dla zabawki miota
+Brane z fartuszka garœcie zaklêtego z³ota.
+Dalej, z rowu wybieg³szy, strumieñ na równinie
+Rozkrêca siê, ucisza, lecz widaæ, ¿e p³ynie,
+Bo na jego ruchomej, drgaj¹cej pow³oce
+Wzd³u¿ miesiêczne œwiate³ko drgaj¹ce migoce.
+250
+Jako piêkny w¹¿ ¿mudzki, zwany g i w o j t o s e m,
+Chocia¿ zdaje siê drzemaæ, le¿¹c miêdzy wrzosem,
+Pe³Ÿnie, bo na przemiany srebrzy siê i z³oci,
+A¿ nagle zniknie z oczu we mchu lub paproci:
+Tak strumieñ krêc¹cy siê chowa³ siê w olszynach,
+Które na widnokrêgu czernia³y koñczynach,
+Wznosz¹c swe kszta³ty lekkie, niewyraŸne oku,
+Jak duchy na wpó³ widne, na po³y w ob³oku.
+Miêdzy stawami w rowie m³yn ukryty siedzi;
+Jako stary opiekun, co kochanków œledzi,
+Pods³ucha³ ich rozmowê, gniewa siê, szamoce,
+Trzêsie g³ow¹, rêkami, i groŸby be³koce:
+Tak ów m³yn nagle zatrz¹s³ mchem obros³e czo³o
+I palczast¹ sw¹ piêœci¹ wykrêcaj¹c wko³o,
+Ledwo klekn¹³ i szczêki zêbowate ruszy³,
+Zaraz mi³oœn¹ stawów rozmowê zag³uszy³
+I zbudzi³ Hrabiê.
+Hrabia, widz¹c, ¿e tak blisko
+Tadeusz naszed³ jego zbrojne stanowisko,
+Krzyczy: „Do broni! ³apaj!” Skoczyli d¿okeje;
+Nim Tadeusz rozeznaæ móg³, co siê z nim dzieje,
+Ju¿ go chwycili; bieg¹ do dworu, w podwórze
+Wpadaj¹; dwór budzi siê, psy w ha³as, w krzyk stró¿e.
+Wyskoczy³ wpó³ ubrany Sêdzia; widzi zgrajê
+Zbrojn¹, myœli, ¿e zbójcy, a¿ Hrabiê poznaje.
+„Co to jest?” - pyta. Hrabia szpad¹ nad nim mign¹³,
+Lecz widz¹c bezbronnego w zapale ostygn¹³.
+251
+„Soplico! - rzek³ - odwieczny wrogu mej rodziny.
+Dziœ skarzê ciê za dawne i za œwie¿e winy,
+Dziœ zdasz mi sprawê z mojej fortuny zaboru,
+Nim pomszczê siê obelgi mojego honoru!”
+Lecz Sêdzia ¿egnaj¹c siê krzykn¹³: „W imiê Ojca
+I Syna! tfu! Mospanie Hrabia, czy waœæ zbojca?
+Przebóg! czy to siê zgadza z Pana urodzeniem,
+Wychowaniem i z Pana na œwiecie znaczeniem?
+Nie pozwolê skrzywdziæ siê!” - Wtem Sêdziego s³udzy
+Biegli, jedni z kijami, ze strzelbami drudzy;
+Wojski, stoj¹c z daleka, pogl¹da³ ciekawie
+W oczy panu Hrabiemu, a nó¿ mia³ w rêkawie.
+Ju¿ mieli zacz¹æ bitwê, lecz Sêdzia przeszkodzi³;
+Pró¿no by³o broniæ siê, nowy wróg nadchodzi³:
+Postrze¿ono w olszynie blask, wystrza³ rusznicy!
+Most na rzece zahucza³ têtentem konnicy
+I „Haj¿e na Soplicê!” tysi¹c g³osów wrzas³o.
+Wzdrygn¹³ siê Sêdzia, pozna³ Gerwazego has³o.
+„Nic to - zawo³a³ Hrabia - bêdzie tu nas wiêcéj,
+Poddaj siê, Sêdzio, to s¹ moi sprzymierzeñcy”.
+Wtem Asesor nadbiega³ krzycz¹c: „Areszt k³adê
+W imiê Imperatorskiej Moœci; oddaj szpadê,
+Panie Hrabio, bo wezwê wojskowej pomocy!
+A wiesz Pan, ¿e kto zbrojnie œmie napadaæ w nocy,
+Zastrze¿ono tysi¹cznym dwóchsetnym ukazem,
+¯e jak z³o...” Wtem go Hrabia w twarz uderzy³ p³azem.
+252
+Pad³ zg³uszony Asesor i skry³ siê w pokrzywy;
+Wszyscy myœleli, ¿e by³ ranny lub nie¿ywy.
+„Widzê - rzek³ Sêdzia - ¿e siê na rozbój zanosi”.
+Jêknêli wszyscy; wszystkich zag³uszy³ wrzask Zosi,
+Która krzycza³a, Sêdziê obj¹wszy rêkami,
+Jako dziecko od ¯ydów k³ute igie³kami.
+Tymczasem Telimena wpad³a miêdzy konie,
+Wyci¹gnê³a ku Hrabi za³amane d³onie:
+„Na twój honor! - krzyknê³a przeraŸliwym g³osem,
+Z g³ow¹ w ty³ wychylon¹, z rozpuszczonym w³osem -
+Przez wszystko, co jest œwiêtem, na klêczkach b³agamy!
+Hrabio, œmiesz¿e odmówiæ? prosz¹ ciebie damy;
+Okrutniku, nas pierwej musisz zamordowaæ!”
+Pad³a zemdlona - Hrabia skoczy³ j¹ ratowaæ,
+Zadziwiony i nieco zmieszany t¹ scen¹.
+„Panno Zofijo - rzecze - Pani Telimeno!
+Nigdy siê krwi¹ bezbronnych ta szpada nie splami;
+Soplicowie, jesteœcie mojemi wiêŸniami.
+Tak zrobi³em we W³oszech, kiedy pod opok¹,
+Któr¹ Sycylijanie zw¹ Birbante-rokk¹,
+Zdoby³em tabor zbójców; zbrojnych mordowa³em,
+Rozbrojonych zabra³em i zwi¹zaæ kaza³em:
+Szli za koñmi i tryumf mój zdobili œwietny,
+Potem ich powieszono u podno¿a Etny”.
+By³o to osobliwe szczêœcie dla Sopliców,
+¯e Hrabia, maj¹c lepsze konie od szlachciców
+253
+I chc¹c spotkaæ siê pierwszy, zostawi³ ich w tyle
+I bieg³ przed reszt¹ jazdy, przynajmniej o milê
+Ze swym d¿okejstwem, które, pos³uszne i karne,
+Stanowi³o niejako wojsko regularne,
+Gdy inna szlachta by³a, zwyczajem powstania,
+Burzliwa i nieŸmiernie skora do wieszania.
+Hrabia mia³ czas ostygn¹æ z zapa³u i gniewu,
+Przemyœla³, jak by skoñczyæ bój bez krwi rozlewu;
+Wiêc rodzinê Sopliców w domu zamkn¹æ ka¿e
+Jako wiêŸniów wojennych; u drzwi stawi stra¿e.
+Wtem „Haj¿e na Sopliców!” wpada szlachta hurmem,
+Obstêpuje dwór wko³o i bierze go szturmem,
+Tym ³acniej, ¿e wódz wziêty i pierzch³a za³oga;
+Lecz zdobywcy chc¹ biæ siê, wyszukuj¹ wroga.
+Do domu nie wpuszczeni, bieg¹ do folwarku,
+Do kuchni.
+Gdy do kuchni weszli, widok garków,
+Ogieñ ledwie zagas³y, potraw zapach œwie¿y,
+Chrupanie psów, gryz¹cych ostatki wieczerzy,
+Chwyta wszystkich za serca, myœl wszystkich odmienia,
+Studzi gniewy, zapala potrzebê jedzenia.
+Marszem i ca³odziennym znu¿eni sejmikiem,
+„Jeœæ! jeœæ!” - po trzykroæ zgodnym wezwali okrzykiem,
+Odpowiedziano: „Piæ! piæ!” Miêdzy szlachty zgraj¹
+Staj¹ dwa chory: ci piæ, a ci jeœæ wo³aj¹;
+Odg³os leci echami; gdzie tylko dochodzi,
+254
+Wzbudza oskomê w ustach, g³ód w ¿o³¹dkach rodzi.
+I tak na dane z kuchni has³o, niespodzianie
+Rozesz³a siê armija na fura¿owanie.
+Gerwazy, od pokojów Sêdziego odparty,
+Ust¹piæ musia³ przez wzgl¹d dla hrabiowskiej warty.
+Wiêc nie mog¹c zemœciæ siê na nieprzyjacielu,
+Myœli³ o drugim wielkim tej wyprawy celu.
+Jako cz³ek doœwiadczony i bieg³y w prawnictwie,
+Chce Hrabiego osadziæ na nowym dziedzictwie
+Legalnie i formalnie; wiêc za WoŸnym biega,
+A¿ go po d³ugich œledztwach za piecem dostrzega.
+Wnet porywa za ko³nierz, na dziedziniec wlecze
+I zmierzywszy mu w piersi Scyzoryk, tak rzecze:
+„Panie WoŸny, pan Hrabia œmie Waæpana prosiæ,
+Abyœ raczy³ przed szlacht¹ braci¹ wnet og³osiæ
+Intromisyj¹ Hrabi do zamku, do dworu
+Sopliców, do wsi, gruntów zasianych, ugoru,
+S³owem, cum gais, boris et graniciebus,
+Kmetonibus, scultetis et omnibus rebus
+Et quibusdam alijis. Jak tam wiesz, tak szczekaj,
+Nic nie opuszczaj!”
+„Panie Kluczniku, zaczekaj! -
+Rzek³ œmia³o, rêce za pas w³o¿ywszy Protazy -
+Gotów jestem wype³niaæ wszelkie stron rozkazy,
+Ale ostrzegam, ¿e akt nie bêdzie mia³ mocy,
+Wymuszony przez gwa³ty, og³oszony w nocy”.
+„Co za gwa³ty? - rzek³ Klucznik - tu nie ma napaœci,
+255
+Wszak proszê Pana grzecznie; jeœli ciemno Waœci,
+To Scyzorykiem skrzesam ognia, ¿e Waszeci
+Zaraz w œlepiach jak w siedmiu koœcio³ach zaœwieci”.
+„Gerwazeñku - rzek³ WoŸny - po co siê tak d¹saæ?
+Jestem woŸny, nie moja rzecz sprawê roztrz¹saæ;
+Wszak wiadomo, ¿e strona woŸnego zaprasza
+I dyktuje mu, co chce, a woŸny og³asza.
+WoŸny jest pos³em prawa, a pos³ów nie karz¹,
+Nie wiem tedy, za co mnie trzymacie pod stra¿¹;
+Wnet akt spiszê, niech mi kto latarkê przyniesie,
+A tymczasem og³aszam: Bracia, uciszcie siê!”
+I by donoœniej mówiæ, wst¹pi³ na stos wielki
+Belek (pod p³otem sadu suszy³y siê belki),
+Wlaz³ na nie i zarazem, jakby go wiatr zdmuchn¹³,
+Znikn¹³ z oczu; s³yszano, jak w kapustê buchn¹³;
+Widziano, po konopiach ciemnych jego bia³a
+Konfederatka niby go³¹b przelecia³a.
+Konewka strzeli³ w czapkê, ale chybi³ celu;
+Wtem zatrzeszcza³y tyki, ju¿ Protazy w chmielu -
+„Protestujê!” - zawo³a³; pewny by³ ucieczki,
+Bo za sob¹ mia³ ³ozê i bagniska rzeczki.
+Po tej protestacyi, która siê ozwa³a
+Jak na zdobytych wa³ach ostatni strza³ dzia³a,
+Usta³ ju¿ wszelki opor w Soplicowskim dworze;
+Szlachta g³odna pl¹druje, zabiera, co mo¿e.
+Kropiciel, stanowisko zaj¹wszy w oborze,
+256
+Jednego wo³u i dwa cielce w ³by zakropi³,
+A Brzytewka im szablê w gardzielach utopi³.
+Szyde³ko równie czynnie u¿ywa³ swej szpadki,
+Kabany i prosiêta kol¹c pod ³opatki.
+Ju¿ rzeŸ zagra¿a ptastwu. Czujne gêsi stado,
+Co niegdyœ ocali³o Rzym przed Gallów zdrad¹,
+Darmo gêga o pomoc; zamiast Manlijusza
+Wpada w kotuch Konewka, jedne ptaki zdusza,
+A drugie ¿ywcem wi¹¿e do pasa kontusza.
+Pró¿no gêsi, szyjami wywijaj¹c, chrypi¹,
+Pró¿no gêsiory sycz¹c napastnika szczypi¹.
+On bie¿y; osypany iskrz¹cym siê puchem,
+Unoszony jak kó³mi gêsich skrzyde³ ruchem,
+Zdaje siê byæ chochlikiem, skrzydlatym z³ym duchem.
+Ale rzeŸ najstraszniejsza, chocia¿ najmniej krzyku,
+Miêdzy kurami. M³ody Sak wpad³ do kurniku
+I z drabinek, stryczkami ³owi¹c, ci¹gnie z góry
+Kogutki i szurpate i czubate kury;
+Jedne po drugich dusi i sk³ada do kupy,
+Ptastwo piêkne, karmione per³owemi krupy.
+Niebaczny Saku, jaki¿ zapa³ ciê unosi!
+Nigdy ju¿ odt¹d gniewnej nie przeb³agasz Zosi.
+Gerwazy przypomina starodawne czasy.
+Ka¿e sobie podawaæ od kontuszów pasy
+I nimi z Soplicowskiej piwnicy dobywa
+Beczki starej siwuchy, dêbniaku i piwa.
+Jedne wnet odgwo¿d¿ono, a drugie ochoczo
+257
+Szlachta, gêsta jak mrówie, porywaj¹, tocz¹
+Do zamku; tam na nocleg ca³y t³um siê zbiera,
+Tam za³o¿ona g³ówna Hrabiego kwatera.
+Nak³adaj¹ sto ognisk, warz¹, skwarz¹, piek¹,
+Gn¹ siê sto³y pod miêsem, trunek p³ynie rzek¹;
+Chce szlachta noc tê przepiæ, przejeœæ i przeœpiewaæ.
+Lecz powoli zaczêli drzemaæ i poziewaæ;
+Oko gaœnie za okiem, i ca³a gromada
+Kiwa g³owami, ka¿dy, gdzie siedzia³, tam pada:
+Ten z mis¹, ten nad kuflem, ten przy wo³u æwierci.
+Tak zwyciê¿ców zwyciê¿y³ w koñcu sen, brat œmierci.
+KSIÊGA DZIEWI¥TA
+BITWA
+Treœæ:
+O niebezpieczeñstwach wynikaj¹cych z nieporz¹dnego obozowania -
+Odsiecz niespodziana - Smutne po³o¿enie szlachty - Odwiedziny
+kwestarskie s¹ wró¿b¹ ratunku - Major P³ut zbytni¹ zalotnoœci¹ œci¹ga
+na siebie burzê - Wystrza³ z krócicy, has³o boju - Czyny Kropiciela, czyny
+i niebezpieczeñstwa Maæka - Konewka zasadzk¹ ocala Soplicowo - Posi³ki
+jezdne, atak na piechotê - Czyny Tadeusza - Pojedynek dowódców
+przerwany zdrad¹ - Wojski stanowczym manewrem przechyla szalê boju -
+Czyny krwawe Gerwazego - Podkomorzy zwyciê¿ca wspania³omyœlny.
+259
+A chrapali tak twardym snem, ¿e ich nie budzi
+Blask latarek i wniœcie kilkudziesi¹t ludzi,
+Którzy wpadli na szlachtê, jak paj¹ki œcienne
+Nazwane k o s a r z a m i na muchy wpó³senne:
+Zaledwie która bzyknie, ju¿ d³ugimi nogi
+Obejmuje j¹ wko³o i dusi mistrz srogi.
+Sen szlachecki by³ jeszcze twardszy ni¿ sen muszy:
+¯aden nie bzyka, le¿¹ wszyscy jak bez duszy,
+Chocia¿ byli chwytani silnymi rêkoma
+I przewracani jako na przewi¹s³ach s³oma.
+Tylko jeden Konewka, któremu w powiecie
+Nie znajdziesz równie mocnej g³owy przy bankiecie,
+Konewka, co móg³ wypiæ lipcu dwa anta³y,
+Nim mu spl¹ta³ siê jêzyk i nogi zachwia³y,
+Ten, choæ d³ugo ucztowa³ i usn¹³ g³êboko,
+Dawa³ przecie znak ¿ycia; przemkn¹³ jedno oko
+I widzi! istne zmory! dwie okropne twarze
+Tu¿ nad sob¹, a ka¿da ma w¹sów po parze;
+Dysz¹ nad nim, ust jego tykaj¹ w¹sami
+I czworgiem r¹k woko³o wij¹ jak skrzyd³ami;
+Zl¹k³ siê, chcia³ prze¿egnaæ siê: darmo rêkê chwyta,
+Rêka prawa jak gdyby do boku przybita;
+Ruszy³ lew¹, niestety! czuje, ¿e go duchy
+Spowi³y ciasno, jako niemowlê w pieluchy;
+Zl¹k³ siê jeszcze okropniej, wnet oko zawiera,
+Le¿y nie dysz¹c, stygnie, ledwie nie umiera!
+260
+Lecz Kropiciel zerwa³ siê broniæ siê - po czasie!
+Bo ju¿ by³ skrêpowany we swym w³asnym pasie;
+Przecie¿ zwin¹³ siê i tak sprê¿yœcie podskoczy³,
+¯e pad³ na piersi sennych, po g³owach siê toczy³,
+Miota³ siê jako szczupak, gdy siê w piasku rzuca.
+A rycza³ jako niedŸwiedŸ, bo mia³ silne p³uca.
+Rycza³: „Zdrada!” Wnet ca³a zbudzona gromada
+Chorem odpowiedzia³a: „Zdrada! gwa³tu! zdrada!”
+Krzyk dochodzi echami zwierciadlanej sali,
+Kêdy Hrabia, Gerwazy i d¿okeje spali;
+Przebudza siê Gerwazy, darmo siê wydziera,
+Zwi¹zany w kij do swego w³asnego rapiera;
+Patrzy, widzi przy oknie ludzi uzbrojonych,
+W czarnych, krótkich kaszkietach, w mundurach zielonych;
+Jeden z nich, opasany szarf¹, trzyma³ szpadê
+I ostrzem jej kierowa³ swych drabów gromadê,
+Szepc¹c: „Wi¹¿! wi¹¿!”
+Doko³a le¿¹ jak barany
+D¿okeje w pêtach, Hrabia siedzi nie zwi¹zany,
+Lecz bezbronny; przy nim dwaj z go³emi bagnety
+Stoj¹ drabi. - Pozna³ ich Gerwazy, niestety!
+Moskale!!!
+Nieraz Klucznik by³ w podobnych trwogach,
+Nieraz miewa³ powrozy na rêku i nogach,
+A przecie¿ siê uwalnia³; wiedzia³ o sposobie
+Rwania wiêzów, by³ silny bardzo, ufa³ sobie.
+Przemyœla³ ratowaæ siê milczkiem; oczy zmru¿y³,
+261
+Niby œpi, z wolna rêce i nogi przed³u¿y³,
+Dech wci¹gn¹³, brzuch i piersi œcisn¹³ co najwê¿ej;
+A¿ jednym razem kurczy, wydyma siê, prê¿y,
+Jak w¹¿, g³owê i ogon gdy chowa w przeguby,
+Tak Gerwazy z d³ugiego sta³ siê krótki, gruby;
+Rozci¹gnê³y siê, nawet skrzypnê³y powrozy,
+Ale nie pêk³y! Klucznik ze wstydu i zgrozy
+Przewróci³ siê i w ziemiê schowawszy twarz gniewn¹,
+Zamkn¹wszy oczy, le¿a³ nieczu³y jak drewno.
+Wtem ozwa³y siê bêbny, naprzód z rzadka, potem
+Coraz gêstszym i coraz g³oœniejszym ³oskotem;
+Na ten apel rozkaza³ oficer Moskali
+D¿okejów z Hrabi¹ zamkn¹æ pod stra¿¹ na sali,
+Szlachtê wieœæ na dwór, kêdy sta³a druga rota.
+Nadaremnie Kropiciel d¹sa siê i miota.
+Sztab sta³ we dworze, a z nim zbrojnej szlachty wiele:
+Podhajscy, Birbaszowie, Hreczechy, Biergele,
+Wszyscy Sêdziego krewni albo przyjaciele.
+Na odsiecz mu przybiegli s³ysz¹c o napadzie,
+Zw³aszcza ¿e z Dobrzyñskimi byli z dawna w zwadzie.
+Kto z wiosek batalijon Moskalów sprowadzi³?
+Kto tak prêdko s¹siedztwo z zaœcianków zgromadzi³?
+Asesor-li, czy Jankiel? Ró¿nie s³ychaæ o tem,
+Lecz nikt pewnie nie wiedzia³ ni wtenczas, ni potem.
+Ju¿ te¿ i s³oñce wschodzi, krwawo siê czerwieni,
+Brzegiem têpym, jak gdyby odartym z promieni,
+262
+Na wpó³ widne, na po³y w czerni chmur siê chowa
+Jak roz¿arzona w wêglach kowalskich podkowa.
+Wiatr wzmaga³ siê i pêdzi³ ob³oki ze wschodu,
+Gêste i poszarpane jako bry³y lodu;
+Ka¿dy ob³ok w przelocie deszczem zimnym prószy,
+Z ty³u za nim wiatr leci i deszcz znowu suszy,
+Za wiatrem znowu ob³ok nadbiega wilgotny:
+I tak dzieñ na przemiany by³ ch³odny i s³otny.
+Tymczasem Major belki schn¹ce pode dworem
+Ka¿e wlec, w ka¿dej belce wysiekaæ toporem
+Pó³okr¹g³e otwory, w te otwory wtyka
+Nogi wiêŸniów i drug¹ belk¹ je zamyka.
+Oba drewna goŸdziami przebite po rogach
+Œcisnê³y siê, jako psie paszczêki, na nogach.
+Zaœ powrozami mocniej sznurowano rêce
+Na plecach szlachty; Major, ku wiêkszej ich mêce,
+Kaza³ pierwej pozdzieraæ z g³ów konfederatki,
+Z pleców p³aszcze, kontusze, nawet taratatki.
+Nawet ¿upany. I tak szlachta, skuta w k³odzie,
+Siedzia³a rzêdem, dzwoni¹c zêbami na ch³odzie
+I na deszczu, bo coraz wzmaga³a siê s³ota,
+Nadaremnie Kropiciel d¹sa siê i miota.
+Darmo Sêdzia za szlacht¹ instancyjê wnosi
+I Telimena ³¹czy proœby do ³ez Zosi,
+A¿eby miano wiêkszy wzgl¹d na niewolników.
+Wprawdzie oficer rotny, pan Nikita Ryków,
+Moskal, lecz dobry cz³owiek, da³ siê udobruchaæ,
+Có¿, kiedy sam majora P³uta musia³ s³uchaæ!
+263
+Ten major, Polak rodem, z miasteczka Dzierowicz,
+Nazywa³ siê (jak s³ychaæ) po polsku P³utowicz,
+Lecz przechrzci³ siê; ³otr wielki, jak siê zwykle dzieje
+Z Polakiem, który w carskiej s³u¿bie zmoskwicieje.
+P³ut sta³ z fajk¹ przed frontem, w boki siê podpiera³
+I gdy mu k³aniano siê, nos w górê zadziera³,
+A za odpowiedŸ, na znak gniewnego humoru,
+Wypuœci³ z ust k³¹b dymu i poszed³ do dworu.
+A tymczasem Rykowa Sêdzia u³agadza
+I Asesora tak¿e na bok odprowadza;
+Przemyœlaj¹, jak by rzecz zakoñczyæ bez s¹du,
+A co jeszcze wa¿niejsza, bez mieszañ siê rz¹du.
+Wiêc do majora P³uta rzek³ kapitan Ryków:
+„Panie Major! co nam z tych wszystkich niewolników?
+Oddamy pod s¹d? bêdzie szlachcie wielka bieda,
+A Panu Majorowi nikt za to nic nie da.
+Wiesz co, Major? ot, lepiej tê sprawê zagodziæ,
+Pan Sêdzia Majorowi musi trud nagrodziæ,
+My powiemy, ¿e my tu przyszli dla wizyty,
+A tak i kozy ca³e, i wilk bêdzie syty.
+Przys³owie ruskie: Wszystko mo¿na, lecz ostro¿nie:
+I to przys³owie: Sobie piecz na carskim ro¿nie;
+I to przys³owie: Lepsza zgoda od niezgody;
+Zapl¹taj dobrze wêze³, koñce wsadŸ do wody.
+Raportu nie podamy, tak siê nikt nie dowie.
+Bóg da³ rêce, ¿eby braæ, to ruskie przys³owie”.
+264
+S³ysz¹c to Major wstaje i od gniewu parska:
+„Czy ty oszala³, Ryków? to s³u¿ba cesarska,
+A s³u¿ba nie jest dru¿ba, stary, g³upi Ryków!
+Czy ty oszala³? ja mam puszczaæ buntowników!
+W takim wojennym czasie! Ha, pany Polaki,
+Ja was nauczê buntu! Ha, szlachta ³ajdaki,
+Dobrzyñscy, oj, ja znam was! Niech ³ajdaki mokn¹!
+(I zaœmia³ siê na ca³e gard³o, patrz¹c w okno).
+Wszak¿e ten sam Dobrzyñski, co siedzi w surducie -
+Hej, zdj¹æ mu surdut! - w roku przesz³ym na reducie
+Zacz¹³ ze mn¹ tê k³ótniê. Kto zacz¹³? on, nie ja.
+On, gdy tañczy³em, krzykn¹³: <<Precz, za drzwi z³odzieja>>
+¯e wtenczas za pu³kowej okradzenie kasy
+By³em pod œledztwem, mia³em wielkie ambarasy,
+A jemu co do tego? Ja tañczê mazura,
+On krzyczy z ty³u: <<Z³odziej!>> - Szlachta za nim: <<Ura!>>
+Skrzywdzili mnie - a co? wpad³ w me szpony szlachciura.
+Mówi³em: Ej, Dobrzyñski! ej, przyjdzie do woza
+Koza - a co? Dobrzyñski, widzisz! bêdzie ³oza”.
+Potem Sêdziemu szepn¹³, schyliwszy siê, w ucho:
+„Jeœli chcesz, Sêdzio, ¿eby to usz³o na sucho,
+Za ka¿d¹ g³owê tysi¹c rubelków gotówk¹.
+Tysi¹c rubelków, Sêdzio, to ostatnie s³ówko”.
+Sêdzia chcia³ targowaæ siê, lecz Major nie s³ucha³,
+Znowu biega³ po izbie, dymem gêsto bucha³,
+Podobny do szmermelu albo do rakiety.
+Chodzi³y za nim prosz¹c i p³acz¹c kobiety.
+265
+„Majorze - mówi³ Sêdzia - choæ pozwiesz do prawa,
+Có¿ wygrasz? Tu nie zasz³a ¿adna bitwa krwawa,
+Nie by³o ran; ¿e zjedli kury i pó³g¹ski,
+Za to wedle Statutu zap³ac¹ nawi¹zki.
+Ja na pana Hrabiego nie zanoszê skargi,
+To tylko by³y zwyk³e s¹siedzkie zatargi”.
+„A czy Sêdzia - rzek³ Major -
+¿ ó ³ t ¹ k s i ê g ê czyta³?”
+„Co to za ¿ó³ta ksiêga?” pan Sêdzia zapyta³.
+„Ksiêga - rzek³ Major - lepsza ni¿ wasze statuty,
+A w niej pisze co s³owo: stryczek, Sybir, knuty;
+Ksiêga ustaw wojennych, teraz w Litwie ca³éj
+Og³oszonych; ju¿ pod stó³ wasze trybuna³y.
+Pod³ug ustaw wojennych za takow¹ psotê
+Pójdziecie ju¿ to najmniej w sybirn¹ robotê”.
+„Apelujê - rzek³ Sêdzia - do gubernatora”.
+„Apeluj - rzek³ P³ut - choæby do Imperatora.
+Wiesz, ¿e gdy Imperator zatwierdza ukazy,
+Z ³aski swej czêsto karê powiêksza dwa razy.
+Apelujcie, ja mo¿e wynajdê w potrzebie,
+Mospanie Sêdzio, dobry kruczek i na ciebie.
+Wszak Jankiel, szpieg, którego ju¿ rz¹d dawno œledzi,
+Jest twoim domownikiem, w karczmie twojej siedzi.
+Mogê teraz was wszystkich wzi¹æ w areszt od razu”.
+„Mnie - rzek³ Sêdzia - braæ w areszt? jak œmiesz bez rozkazu?”
+I przychodzi³o coraz do ¿ywszego sporu,
+Gdy nowy goœæ zajecha³ na dziedziniec dworu.
+266
+Wjazd t³umny, dziwny. Przodem, niby laufer, bie¿y
+Ogromny, czarny baran, a ³eb mu siê je¿y
+Czterema rogami, z których dwa jako kab³¹ki
+Krêc¹ siê ko³o uszu, ubrane we dzwonki,
+A dwa, od czo³a na bok wysuwaj¹c koñce,
+Wstrz¹saj¹ kulki kr¹g³e, mosiê¿ne, brzêcz¹ce.
+Za baranem sz³y wo³y, trzoda owiec, kozy,
+Za byd³em cztery ciê¿ko pakowane wozy.
+Wszyscy odgadli, ¿e to wjazd ksiêdza Kwestarza.
+Wiêc pan Sêdzia, powinnoœæ znaj¹c gospodarza,
+Sta³ w progu witaæ goœcia. Ksi¹dz na pierwszej bryce
+Jecha³, kapturem na wpó³ zas³oniwszy lice,
+Ale go wnet poznano, bo gdy wiêŸniów min¹³,
+Zwróci³ siê ku nim twarz¹, palcem na znak skin¹³.
+I drugiej bryki furman równie by³ poznany:
+Stary Maciek Rózeczka, za ch³opa przebrany;
+Szlachta zaczê³a krzyczeæ, skoro siê pokaza³,
+On rzek³: „G³upi!” - i rêk¹ milczenie nakaza³.
+Na trzecim wozie Prusak w kubraku wytartym,
+A pan Zan z Mickiewiczem jechali na czwartym.
+A tymczasem Podhajscy i Isajewicze,
+Birbasze, Wilbikowie, Biergele, Kotwicze,
+Widz¹c szlachtê Dobrzyñskich w tak ciê¿kiej niewoli,
+Zaczêli z dawnych gniewów ostygaæ powoli.
+Bo szlachta polska, chocia¿ niezmiernie k³otliwa
+I porywcza do bitew, przecie¿ nie jest mœciwa.
+Bieg¹ wiêc do Macieja starego po radê.
+267
+On ko³o wozów ca³¹ ustawia gromadê,
+Ka¿e czekaæ.
+Bernardyn wst¹pi³ do pokoju.
+Zaledwie go poznano, choæ nie zmieni³ stroju,
+Tak przybra³ inn¹ postaæ. Zwyczajnie ponury,
+Zamyœlony, a teraz g³owê wzniós³ do góry
+I z min¹ rozjaœnion¹, jak kwestarz rubacha,
+Nim zacz¹³ gadaæ, d³ugo œmia³ siê:
+„Cha, cha, cha, cha,
+K³aniam, k³aniam! cha, cha, cha, wyœmienicie, przednie!
+Panowie oficery, kto poluje we dnie,
+Wy w nocy! dobry po³ów, widzia³em zwierzynê;
+Oj, skubaæ, skubaæ szlachtê, oj, drzeæ z nich ³upinê!
+Oj, weŸcie¿ ich na munsztuk, bo te¿ szlachta bryka!
+Winszujê ci, Majorze, ¿eœ z³owi³ Hrabika!
+To t³uœcioszek, to bogacz, panicz z antenatów,
+Nie wypuszczaj go z klatki bez trzystu dukatów;
+A jak weŸmiesz, na klasztor daj jakie trzy grosze
+I dla mnie, bo ja zaw¿dy za tw¹ duszê proszê.
+Jakem bernardyn, bardzo myœlê o twej duszy!
+Œmieræ i sztabsoficerów porywa za uszy!
+Dobrze napisa³ Baka, ¿e œmieræ d¿ga za katy
+W szkar³aty i po suknie nieraz dobrze stuknie,
+I po p³ótnie tak utnie, jak i po kapturze,
+I po fryzurze równie, jak i po mundurze.
+Œmieræ matula, powiada Baka, jak cebula
+£zy wyciska, gdy œciska, a równie przytula
+I dziecko, co siê lula, i zucha, co hula!
+Ach! ach! Majorze, dzisiaj ¿yjem, jutro gnijem,
+268
+To tylko nasze, co dziœ zjemy i wypijem!
+Panie Sêdzio, wszak¿e to czas podobno œniadaæ?
+Siadam za stó³ i proszê wszystkich ze mn¹ siadaæ;
+Majorze, gdyby zrazów? Panie Poruczniku,
+Co myœlisz? gdyby wazê dobrego ponczyku?”
+„To prawda, Ojcze - rzekli dwaj oficerowie -
+Czas by ju¿ zjeœæ i wypiæ Pana Sêdzi zdrowie!”
+Zdziwili siê domowi, patrz¹c na Robaka,
+Sk¹d mu siê wziê³a mina i weso³oœæ taka.
+Sêdzia wnet kucharzowi powtórzy³ rozkazy;
+Wniesiono wazê, cukier, butelki i zrazy.
+P³ut i Ryków tak czynnie zaczêli siê zwijaæ,
+Tak ³akomie po³ykaæ i gêsto zapijaæ,
+¯e w pó³ godziny zjedli dwadzieœcia trzy zrazy
+I wychylili ponczu ogromne pó³ wazy.
+Wiêc Major syt i wesó³ w krzeœle siê rozwali³,
+Doby³ fajkê, biletem bankowym zapali³
+I otar³szy œniadanie z ust koñcem serwety,
+Obróci³ œmiej¹ce siê oczy na kobiety
+I rzek³: „Ja, piêkne Panie, lubiê was jak wety!
+Na me szlify majorskie, gdy cz³ek zjad³ œniadanie,
+Najlepsz¹ jest po zrazach zak¹sk¹ gadanie
+Z paniami tak piêknemi jak wy, piêkne Panie!
+Wiecie co? grajmy w karty! w welba-cwelba? w wista?
+Albo pójdŸmy mazurka? he! do diab³ów trzysta!
+269
+Wszak ja w jegierskim pu³ku pierwszy mazurzysta!”
+Za czym ku damom bli¿ej schyli³ siê wygiêty
+I puszcza³ na przemiany dym i komplementy.
+„Tañczyæ! - zawo³a³ Robak - gdy wychylê flaszê,
+To i ja, choæ ksi¹dz, habit czasami podkaszê
+I potañczê mazurka! Ale wiesz, Majorze,
+My tu pijem, a jegry tam zmarzn¹ na dworze?
+Hulaæ, to hulaæ! Sêdzio, daj beczkê siwuchy!
+Major pozwoli, niechaj pij¹ jegry zuchy!”
+„Prosi³bym - rzecze Major - lecz w tem nie ma musu”.
+„Daj, Sêdzio - szepn¹³ Robak - beczkê spirytusu”.
+I tak, kiedy we dworze sztab weso³y ³yka,
+Za domem zaczê³a siê w wojsku pijatyka.
+Ryków kapitan milczkiem kielichy wychyla³,
+Lecz Major pi³ i razem damom siê przymila³,
+A wzmaga³ siê w nim coraz tañcowania zapa³;
+Rzuci³ fajkê i rêkê Telimeny z³apa³,
+Chcia³ tañczyæ, lecz uciek³a; wiêc podszed³ do Zosi,
+K³aniaj¹c siê, s³aniaj¹c, do mazurka prosi:
+„Hej! ty Ryków, przestañ¿e tam tr¹biæ na fajce,
+Precz fajka, wszak ty dobrze grasz na ba³abajce;
+Widzisz no tam gitarê, pódŸ no, weŸ gitarê,
+I mazurka! ja, Major, idê w pierwsz¹ parê”.
+Kapitan wzi¹³ gitarê i struny przykrêca³,
+P³ut znowu Telimenê do tañca zachêca³.
+270
+„S³owo majorskie, Panno, nie Rosyjaninem
+Jestem, je¿eli k³amiê! chcê byæ sukinsynem,
+Je¿eli k³amiê; spytaj, a oficerowie
+Wszyscy poœwiadcz¹, ca³a armija to powie,
+¯e w tej drugiej armiji, w korpusie dziewi¹tym,
+W drugiej pieszej dywizji, w pu³ku piêædziesi¹tym
+Jegierskim major P³ut jest pierwszy mazurzysta.
+PódŸ¿e, Panienko! nie b¹dŸ taka narowista!
+Bo ja po oficersku ukarzê Panienkê...”
+To mówi¹c skoczy³, chwyci³ Telimeny rêkê
+I szerokim ca³usem w bia³e ramiê klasn¹³,
+Gdy Tadeusz, przypad³szy z boku, w twarz mu trzasn¹³.
+I ca³us, i policzek ozwa³y siê razem,
+Jeden za drugim, jako wyraz za wyrazem.
+Major os³upia³, oczy przetar³, z gniewu blady
+Zawo³a³: „Bunt! buntownik!” - i dobywszy szpady,
+Bieg³ przebiæ; wtem Ksi¹dz dosta³ z rêkawa krócicê:
+„Pal, Tadeuszku! - krzykn¹³ - pal jak w jasn¹ œwiécê!”
+Tadeusz wnet pochwyci³, wymierzy³, wypali³,
+Chybi³, ale Majora zg³uszy³ i osmali³.
+Porywa siê z gitar¹ Ryków: „Bunt! bunt!” - wo³a,
+Wpada na Tadeusza; lecz Wojski zza sto³a
+Machn¹³ rêk¹ na odlew; nó¿ w powietrzu œwisn¹³
+Miêdzy g³owy i pierwej uderzy³, ni¿ b³ysn¹³.
+Uderza w dno gitary, na wylot j¹ wierci,
+Schyli³ siê na bok Ryków i tak uszed³ œmierci.
+Lecz strwo¿y³ siê; krzykn¹wszy:
+271
+„Jegry! bunt! Jej Bogu!” -
+Doby³ szpady, broni¹c siê zbli¿a³ siê do progu.
+Wtem z drugiej strony izby wpada szlachty wiele
+Przez okna, z rapierami, Rózeczka na czele.
+P³ut w sieni, Ryków za nim, wo³aj¹ ¿o³nierzy,
+Ju¿ trzech najbli¿szych domu na pomoc im bie¿y;
+Ju¿ przeze drzwi w³a¿¹ trzy b³yszcz¹ce bagnety,
+A za nimi trzy czarne schylone kaszkiety.
+Maciek sta³ u drzwi z Rózg¹ wzniesion¹ do góry,
+Lgn¹c do œciany, czatowa³ jako kot na szczury,
+A¿ ci¹³ okropnie; mo¿e g³owy by trzy zwali³,
+Lecz stary, czy nie dojrza³, czy zbyt siê zapali³,
+Bo nim szyje wytknêli, r¹bn¹³ po kaszkietach,
+Zdar³ je; Rózga spadaj¹c brz¹k³a po bagnetach.
+Moskale cofaj¹ siê, Maciek ich wygania
+Na dziedziniec.
+Tam jeszcze wiêcej zamieszania.
+Tam stronnicy Sopliców pracuj¹ w zawody
+Nad rozkuciem Dobrzyñskich, rozrywaj¹ k³ody;
+Widz¹c to jegry za broñ porywaj¹, bieg¹;
+Sier¿ant, wpad³szy, bagnetem przebi³ Podhajskiego,
+Dwóch drugich szlachty zrani³, do trzeciego strzela,
+Uciekaj¹; by³o to przy k³odzie Chrzciciela.
+Ten ju¿ mia³ rêce wolne, gotowe ku walce:
+Wsta³, podniós³ d³oñ i zwin¹³ w k³êbek d³ugie palce,
+272
+I z góry tak uderzy³ w grzbiet Rosyjanina,
+¯e twarz jego i skroñ wbi³ w zamek karabina.
+Trzas³ zamek, lecz zalany krwi¹ proch ju¿ nie spali³;
+Sier¿ant u nóg Chrzciciela na sw¹ broñ siê zwali³.
+Chrzciciel schyla siê, chwyta karabin za rurê
+I wij¹c jak kropid³em, podnosi go w górê,
+Robi m³ynka, dwóch zaraz szeregowych zwala
+Po ramionach i w g³owê ugadza kaprala;
+Reszta zlêk³a od k³ody cofa siê z przestrachem:
+Tak Kropiciel ruchomym nakry³ szlachtê dachem.
+Zaczem rozbito k³odê, rozciêto powrozy,
+Szlachta ju¿ wolna wpada na kwestarskie wozy,
+Z nich dobywa rapiery, pa³asze, tasaki,
+Kosy, strzelby; Konewka znalaz³ dwa szturmaki
+I worek kul; wsypa³ je do swego szturmaka,
+Drugi, równie nabiwszy, ust¹pi³ dla Saka.
+Jegrów wiêcej przybywa, mieszaj¹ siê, t³uk¹;
+Szlachta w zgie³ku nie mo¿e ci¹æ krzy¿ow¹ sztuk¹,
+Jegry nie mog¹ strzelaæ, ju¿ walcz¹ wrêcz, z bliska -
+Ju¿ stal, z¹b za z¹b o stal porwawszy siê, pryska,
+Bagnet o szablê, kosa o gifes siê ³amie,
+Piêœæ spotyka siê z piêœci¹ i z ramieniem ramiê.
+Lecz Ryków z czêœci¹ jegrów pobieg³, gdzie stodo³a
+Tyka p³otów; tam staje, na ¿o³nierzy wo³a,
+A¿eby zaprzestali bitwê tak bez³adn¹,
+Gdzie nie u¿ywszy broni, pod piêœciami padn¹.
+273
+Gniewny, ¿e sam nie mo¿e daæ ognia, bo w t³umie
+Moskalów od Polaków rozró¿niæ nie umie,
+Wo³a: „Stroj siê!” (co znaczy: formuj siê do szyku),
+Ale komendy jego nie s³ychaæ œród krzyku.
+Stary Maciek, do rêcznych zapasów niezdolny,
+Rejterowa³ siê, czyni¹c przed sob¹ plac wolny
+Na prawo i na lewo; tu koñcem szablicy
+Uciera bagnet z rury jako knot ze œwiécy;
+Tam machn¹wszy na odlew, œcina albo kole.
+I tak ostro¿ny Maciek ustêpuje w pole.
+Lecz z najwiêkszym na niego naciera uporem
+Stary Gifrejter, co by³ pu³ku instruktorem,
+Wielki mistrz na bagnety; zebra³ siê sam w sobie,
+Skurczy³ siê, a karabin porwa³ w rêce obie,
+Praw¹ u zamka, lew¹, w pó³ rury porywa,
+Krêci siê, podskakuje, czasem przysiadywa,
+Lew¹ rêkê opuszcza, a broñ z prawej rêki
+Suwa naprzód, jak ¿¹d³o z wê¿owej paszczêki,
+I znowu j¹ w ty³ cofa, na kolanie wspiera,
+I tak krêc¹c siê, skacz¹c, na Maæka naciera.
+Oceni³ przeciwnika zrêcznoœæ Maciek stary
+I lew¹ rêk¹ w³o¿y³ na nos okulary,
+Praw¹ rêkojeœæ Rózgi tu¿ przy piersiach trzyma,
+Cofa siê, Gifrejtera ruch œledz¹c oczyma,
+Sam s³ania siê na nogach, jakby by³ pijany;
+Gifrejter bie¿y prêdzej i, pewny wygranej,
+274
+¯eby uchodz¹cego tem ³acniej dosiêgn¹³,
+Powsta³ i ca³¹ praw¹ rêkê wzd³u¿ wyci¹gn¹³
+Popychaj¹c karabin, a tak siê wysili³
+Pchniêciem i wag¹ broni, ¿e siê a¿ pochyli³;
+Maciek tam, kêdy bagnet wk³ada siê na rurê,
+Podstawia sw¹ rêkojeœæ, podbija broñ w górê,
+I wnet spuszczaj¹c Rózgê, tnie Moskala w rêkê
+Raz, i znowu na odlew przecina mu szczêkê. -
+Tak pad³ Gifrejter, fechmistrz najpierwszy z Moskalów,
+Kawaler trzech krzy¿yków i czterech medalów.
+Tymczasem ko³o k³odek lewe szlachty skrzyd³o
+Ju¿ jest bliskie zwyciêstwa; tam walczy³ Kropid³o,
+Widny z dala, tam Brzytwa wi³ siê œród Moskali,
+Ten ich w pó³ cia³a rzeza, tamten w g³owy wali;
+Jako machina, któr¹ niemieccy majstrowie
+Wymyœlili i która m³ockarni¹ siê zowie,
+A jest razem sieczkarni¹, ma cepy i no¿e,
+Razem i s³omê kraje, i wybija zbo¿e:
+Tak pracuj¹ Kropiciel i Brzytwa pospo³u,
+Morduj¹c nieprzyjació³, ten z góry, ten z do³u.
+Lecz Kropiciel ju¿ pewne porzuca zwyciêstwo,
+Bie¿y na prawe skrzyd³o, gdzie niebezpieczeñstwo
+Nowe grozi Maækowi; œmierci Gifrejtera
+Mszcz¹c siê, Proporszczyk z d³ugim szpontonem naciera
+(Szponton jest to zarazem dzida i siekiera,
+Teraz ju¿ zaniedbany, i tylko na flocie
+U¿ywaj¹ go; wówczas s³u¿y³ i piechocie).
+275
+Proporszczyk, cz³owiek m³ody, zrêcznie siê uwija³;
+Ilekroæ mu przeciwnik broñ na bok odbija³,
+On cofa³ siê; m³odego nie móg³ Maciek zgoniæ,
+I tak, nie rani¹c, musia³ tylko siebie broniæ.
+Ju¿ mu Proporszczyk dzid¹ lekk¹ ranê zada³,
+Ju¿ wznosz¹c w górê berdysz, do ciêcia siê sk³ada³:
+Chrzciciel nie zdo³a dobiec, lecz staje w pó³ drogi,
+Okrêca broñ i ciska wrogowi pod nogi.
+Skruszy³ koœæ; ju¿ Proporszczyk szponton z r¹k upuszcza,
+S³ania siê; wpada Chrzciciel, za nim szlachty t³uszcza,
+A za szlacht¹ Moskale od lewego skrzyd³a
+Bieg¹ zmieszani; wszcz¹³ siê bój ko³o Kropid³a.
+Chrzciciel, który w obronie Maæka orê¿ straci³,
+Ledwie ¿e tej przys³ugi ¿yciem nie przyp³aci³,
+Bo przypad³o nañ z ty³u dwóch silnych Moskali
+I czworo r¹k zarazem we w³os mu wpl¹tali;
+Upi¹wszy siê nogami, ci¹gn¹ jako liny
+Sprê¿yste, uwi¹zane do masztu wiciny;
+Daremnie w ty³ Kropiciel ciska œlepe razy,
+Chwieje siê - a wtem postrzeg³, ¿e blisko Gerwazy
+Walczy; zawo³a³: „Jezus Maria! Scyzoryku!”
+Klucznik, trwogê Chrzciciela poznawszy po krzyku,
+Odwróci³ siê i spuœci³ ostrze p³ytkiej stali
+Miêdzy g³owê Chrzciciela i rêce Moskali.
+Cofnêli siê, wydawszy przeraŸliwe g³osy,
+Lecz jedna rêka, mocniej wpl¹tana we w³osy,
+Zosta³a siê, wisz¹ca i krwi¹ buchaj¹ca.
+276
+Tak orlik, jedn¹ szponê gdy wbije w zaj¹ca,
+Drug¹, by wstrzymaæ zwierza, o drzewo uczepi,
+A zaj¹c, targn¹wszy siê, or³a wpó³ rozszczepi,
+Prawa szpona u drzewa zostaje siê w lesie,
+A lew¹, zakrwawion¹, Ÿwierz na pola niesie.
+Kropiciel, wolny, oczy obraca doko³a,
+Rêce wyci¹ga, broni szuka, broni wo³a,
+Tymczasem grzmi piêœciami, stoj¹c mocno w kroku
+I pilnuj¹c siê z bliska Gerwazego boku,
+A¿ Saka, syna swego, postrzega w nat³oku.
+Sak praw¹ rêk¹ szturmak wymierza, a lew¹
+Ci¹gnie za sob¹ d³ugie, s¹¿niowate drzewo,
+Uzbrojone w krzemienie i w guzy, i sêki
+(Nikt by go nie podŸwign¹³ prócz Chrzciciela rêki).
+Chrzciciel, gdy mi³¹ broñ sw¹, swe Kropid³o zoczy³,
+Chwyci³ je, uca³owa³, z radoœci podskoczy³,
+Zakrêci³ je nad g³ow¹ i zaraz ubroczy³.
+Co potem dokazywa³, jakie klêski szerzy³,
+Daremnie œpiewaæ, nikt by muzie nie uwierzy³,
+Jak nie wierzono w Wilnie ubogiej kobiécie,
+Która, stoj¹c na œwiêtej Ostrej Bramy szczycie,
+Widzia³a, jako Dejów, moskiewski jenera³,
+Wchodz¹c z pu³kiem Kozaków, ju¿ bramê otwiera³
+I jak jeden mieszczanin, zwany Czarnobacki,
+Zabi³ Dejowa i zniós³ ca³y pu³k kozacki.
+277
+Dosyæ, ¿e siê tak sta³o, jak przewidzia³ Ryków:
+Jegry w t³umie ulegli mocy przeciwników.
+Dwudziestu trzech na ziemi wala siê zabitych,
+Trzydziestu kilku jêczy ranami okrytych,
+Wielu pierzch³o, skry³o siê w sad, w chmiele, nad rzekê,
+Kilku wpad³o do domu pod kobiet opiekê.
+Zwyciêska szlachta biega z okrzykiem wesela,
+Ci do beczek, ci ³upy rw¹ z nieprzyjaciela;
+Jeden Robak tryumfów szlachty nie podziela.
+On dot¹d sam nie walczy³ (bo broni¹ kanony
+Ksiêdzu biæ siê), lecz jako cz³owiek doœwiadczony
+Dawa³ rady, plac boju z ró¿nych stron obchodzi³,
+Wzrokiem, rêk¹, walcz¹cych zachêca³, przywodzi³.
+I teraz wo³a, aby do niego siê ³¹czyæ,
+Uderzyæ na Rykowa, zwyciêstwo dokoñczyæ.
+Tymczasem przez pos³añca wskaza³ do Rykowa,
+¯e je¿eli broñ z³o¿y, ¿ycie swe zachowa;
+Je¿eli zaœ oddanie broni bêdzie zwlekaæ,
+Robak ka¿e otoczyæ resztê i wysiekaæ.
+Kapitan Ryków wcale nie prosi³ pardonu;
+Zebrawszy ko³o siebie z pó³ batalijonu,
+Krzykn¹³: „Za broñ!” - wnet szereg karabiny chwyta,
+Chrz¹snê³a broñ, a by³a ju¿ dawno nabita;
+Krzykn¹³: „Cel!” - rury rzêdem zab³ysnê³y d³ugim,
+Krzykn¹³: „Ognia kolej¹!” - grzmi¹ jeden po drugim;
+Ten strzela, ten nabija, ten chwyta do rêki,
+278
+S³ychaæ œwisty kul, zamków chrzêsty, sztenflów dŸwiêki.
+Ca³y szereg zdaje siê byæ ruchawym p³azem,
+Który tysi¹c b³yszcz¹cych nóg wywija razem.
+Prawda, ¿e jegry byli mocnym trunkiem pjani,
+•le mierz¹ i chybiaj¹, rzadko który rani,
+Ledwie który zabije; przecie¿ dwóch Maciejów
+Ju¿ zraniono i poleg³ jeden z Bart³omiejów.
+Szlachta z niewiela rusznic z rzadka siê odstrzela,
+Chce szablami uderzyæ na nieprzyjaciela,
+Ale starsi wstrzymuj¹; kule gêsto œwiszcz¹,
+Ra¿¹, spêdzaj¹, wkrótce dziedziniec oczyszcz¹.
+Ju¿ a¿ po szybach dworu zaczynaj¹ dzwoniæ.
+Tadeusz, który zosta³ w domu kobiet broniæ
+Z rozkazu stryja, s³ysz¹c, ¿e coraz to gorzéj
+Wre bitwa, wybieg³; za nim wybieg³ Podkomorzy,
+Któremu Tomasz wreszcie przyniós³ karabelê;
+Œpieszy, ³¹czy siê z szlacht¹ i staje na czele.
+Bie¿y, broñ wznios³szy, szlachta rusza jego œladem,
+Jegry, przypuœciwszy ich, sypnêli kul gradem.
+Leg³ Isajewicz, Wilbik, Brzytewka raniony;
+Zaczem wstrzymuj¹ szlachtê, Robak z jednej strony,
+A z drugiej Maciej; szlachta ostyga w zapale,
+Ogl¹da siê, cofa; widz¹ to Moskale;
+Kapitan Ryków myœli ostatni cios zadaæ,
+Spêdziæ szlachtê z dziedziñca i dworem ow³adaæ.
+279
+„Formuj siê do ataku! - zawo³a³ - na sztyki!
+Naprzód!” Wnet szereg, rury wytkn¹wszy jak tyki,
+Schyla g³owy, zrusza siê i przyœpiesza kroku;
+Darmo szlachta wstrzymuje z przodu, strzela z boku,
+Szereg ju¿ pó³ dziedziñca przeszed³ bez oporu;
+Kapitan, pokazuj¹c szpad¹ na drzwi dworu,
+Krzyczy: „Sêdzio! poddaj siê, bo dwór spaliæ ka¿ê!”
+„Pal - wo³a Sêdzia - ja ciê w tym ogniu usma¿ê”.
+O dworze Soplicowski! jeœli dot¹d ca³e
+Œwiec¹ siê pod lipami twoje œciany bia³e
+Jeœli tam dot¹d szlachty s¹siedzkiej gromada
+Za goœcinnemi sto³y Sêdziego zasiada,
+Pewnie tam pij¹ czêsto za Konewki zdrowie;
+Bez niego ju¿ by by³o dziœ po Soplicowie!
+Konewka dot¹d ma³e da³ mêstwa dowody;
+Choæ najpierwszy ze szlachty uwolniony z k³ody,
+Choæ zaraz znalaz³ w wozie sw¹ mi³¹ Konewkê,
+Swój szturmak faworytny i z nim kul sakiewkê,
+Nie chcia³ biæ siê; powiada³, ¿e sobie nie ufa
+Na czczo; szed³ wiêc, gdzie sta³a spirytusu kufa,
+Rêk¹ jak ³y¿k¹ strumieñ do ust sobie chyli³;
+Dopiero gdy siê dobrze rozgrza³ i posili³,
+Poprawi³ czapkê, z kolan wzi¹³ do r¹k Konewkê,
+Zmaca³ sztenflem naboju, podsypa³ panewkê
+I spojrza³ na plac boju; widzi, ¿e b³yszcz¹ca
+Fala bagnetów szlachtê bije i roztr¹ca;
+Przeciw tej fali p³ynie, schyla siê do ziemi
+280
+I nurkuje pomiêdzy trawami gêstemi
+Œrodkiem dziedziñca, a¿ tam, gdzie ros³a pokrzywa,
+Zasadza siê, a Saka gestami przyzywa.
+Sak, broni¹c dworu, stan¹³ z szturmakiem u proga,
+Bo w tym dworze mieszka³a jego Zosia droga,
+Od której choæ w zalotach zosta³ pogardzony,
+Kocha³ j¹ zawsze, zgin¹æ rad dla jej obrony.
+Ju¿ szereg jegrów w marszu na pokrzywê wkracza,
+Gdy Konew ruszy³ cyngla i z paszczy gar³acza
+Tuzin kul rozsiekanych puszcza œród Moskali;
+Sak puszcza drugi tuzin, jegry siê zmiêszali.
+Przera¿ony zasadzk¹ szereg w k³¹b siê zwija,
+Cofa siê, rzuca rannych; Chrzciciel ich dobija.
+Stodo³a ju¿ daleko; boj¹c siê odwodu
+D³ugiego, Ryków skoczy³ pod parkan ogrodu,
+Tam pierzchaj¹c¹ rotê zatrzymuje w biegu,
+Szykuje, lecz szyk zmienia: z jednego szeregu
+Robi trójk¹t, klin ostry wystawuj¹c z przodu,
+A dwa boki opiera o parkan ogrodu.
+Dobrze zrobi³, bo jazda nañ od zamku wali.
+Hrabia, który by³ w zamku pod stra¿¹ Moskali,
+Gdy pierzch³a stra¿ zlêkniona, dworzan na koñ wsadzi³
+I s³ysz¹c strza³y, w ogieñ jazdê sw¹ prowadzi³,
+Sam na czele, z ¿elazem nad g³owê wzniesionem.
+Wtem Ryków krzykn¹³: „Ognia pó³ batalijonem!”
+281
+Przelecia³a po zamkach wzd³u¿ nitka ognista
+I z czarnych rur wytkniêtych œwisnê³o kul trzysta.
+Trzech jezdnych pad³o rannych, jeden trupem le¿y.
+Pad³ koñ Hrabi, spad³ Hrabia; Klucznik krzycz¹c bie¿y
+Na ratunek, bo widzi: jegry na cel wziêli
+Ostatniego z Horeszków, chocia¿ po k¹dzieli.
+Robak by³ bli¿szy, Hrabiê cia³em swym zakrywa,
+Dosta³ za niego postrza³, spod konia dobywa,
+Uprowadza; a szlachcie ka¿e siê rozst¹piæ,
+Lepiej mierzyæ, postrza³ów nadaremnych sk¹piæ,
+Kryæ siê za p³oty, studniê, za œciany obory;
+Hrabia z jazd¹ ma czekaæ sposobniejszej pory.
+Plany Robaka poj¹³ i wykona³ cudnie
+Tadeusz; sta³ ukryty za drewnian¹ studniê;
+A ¿e trzeŸwy i dobrze strzela³ z dubeltówki
+(Móg³ trafiæ do rzuconej w powietrze z³otówki),
+Okropnie razi Moskwê, starszyznê wybiera:
+Za pierwszym zaraz strza³em ubi³ feldfebera.
+Potem z dwóch rur raz po raz dwóch sier¿antów sprz¹ta,
+Mierzy to po galonach, to w œrodek trójk¹ta,
+Gdzie sta³ sztab; zaczem Ryków gniewa siê i d¹sa.
+Tupa nogami, szpady swej rêkojeœæ k¹sa:
+„Majorze P³ucie - wo³a - co to z tego bêdzie?
+Wkrótce tu nie zostanie nikt z nas przy komendzie!”
+Wiêc P³ut na Tadeusza krzykn¹³ z wielkim gniewem:
+„Panie Polak, wstydŸ siê Pan chowaæ siê za drzewem,
+Nie b¹dŸ tchórz, wyjdŸ na œrodek, bij siê honorowie,
+282
+Po ¿o³niersku”. - A na to Tadeusz odpowie:
+„Majorze! Jeœli jesteœ tak œmia³ym rycerzem,
+A czego¿ ty siê chowasz za jegrów ko³nierzem?
+Nie tchórzê ja przed tob¹, wynidŸ no zza p³otów,
+Dosta³eœ w twarz, jam przecie biæ siê z tob¹ gotów!
+Po co krwi rozlew! Miêdzy nami by³a zwada,
+Niechaj¿e j¹ rozstrzygnie pistolet lub szpada.
+Dajê ci broñ na wybor, od dzia³a do szpilki;
+A nie, to was wystrzelam jako w jamie wilki”.
+I to mówi¹c wystrzeli³, a tak dobrze mierzy³,
+¯e porucznika obok Rykowa uderzy³.
+„Majorze - szepn¹³ Ryków - wyjdŸ na pojedynek
+I pomœcij siê za jego raniejszy uczynek.
+Jeœli tego szlachcica kto inny zabije,
+To, Major widzi, Major hañby swej nie zmyje.
+Trzeba tego szlachcica na pole wywabiæ,
+Nie mo¿na z karabina, to choæ szpad¹ zabiæ.
+Co puka, to nie sztuka; to wolê, co kole -
+Mówi³ stary Suworow; wyjdŸ, Majorze, w pole,
+Bo on nas powystrzela; patrz, bierze do celu”.
+Na to rzek³ Major: „Ryków! mi³y przyjacielu!
+Ty jesteœ zuch na szpady, wyjdŸ ty, bracie Ryków,
+Lub wiesz co? wyszlem kogo z naszych poruczników.
+Ja major, ja nie mogê odst¹piæ ¿o³nierzy,
+Do mnie batalijonu komenda nale¿y”.
+S³ysz¹c to Ryków szpadê podniós³, wyszed³ œmia³o,
+Kaza³ ognia zaprzestaæ, machn¹³ chustk¹ bia³¹.
+Pyta siê Tadeusza, jak¹ broñ podoba;
+283
+Po uk³adach - na szpady zgodzili siê oba.
+Tadeusz broni nie mia³; gdy szukano szpady,
+Wyskoczy³ Hrabia zbrojny i zerwa³ uk³ady.
+„Panie Soplico! - wo³a³ - z przeproszeniem Pana,
+Pan wyzwa³eœ Majora! ja do Kapitana
+Mam dawniejsz¹ urazê: on do zamku mego
+(„Mów Pan - przerwa³ Protazy - do zamku naszego”)
+On wpad³ - rzek³ koñcz¹c Hrabia - na czele z³odziejów,
+On, pozna³em Rykowa, wi¹zal mych d¿okejów.
+Skarzê go, jakom zbójców skara³ pod opok¹,
+Któr¹ Sycylijanie zw¹ Birbante-rokko”.
+Uciszyli siê wszyscy, usta³o strzelanie,
+Wojska ciekawe patrz¹ na wodzów spotkanie:
+Hrabia i Ryków id¹, obróceni bokiem,
+Praw¹ rêk¹ i prawym gro¿¹c sobie okiem;
+Wtem lewymi rêkami odkrywaj¹ g³owy
+I k³aniaj¹ siê grzecznie (zwyczaj honorowy:
+Nim przyjdzie do zabójstwa, naprzód siê przywitaæ).
+Ju¿ spotka³y siê szpady i zaczê³y zgrzytaæ;
+Rycerze, wznosz¹c nogi, prawemi kolany
+Przyklêkaj¹, w przód i w ty³ skacz¹c na przemiany.
+Ale P³ut, Tadeusza widz¹c przed swym frontem,
+Naradza³ siê po cichu z gifrejterem Gontem,
+Który w rocie uchodzi³ za pierwszego strzelca.
+„Gonto - rzek³ Major - widzisz ty tego wisielca?
+Jeœli mu wsadzisz kulê, tam pod pi¹tym ¿ebrem,
+284
+To dostaniesz ode mnie cztery ruble srebrem”.
+Gont odwodzi karabin, do zamka siê chyli,
+Wierni go towarzysze p³aszczami okryli;
+Mierzy nie w ¿ebro, ale w g³owê Tadeusza,
+Strzeli³ i trafi³ - blisko, w œrodek kapelusza.
+Okrêci³ siê Tadeusz, a¿ Kropiciel wpada
+Na Rykowa, a za nim szlachta, krzycz¹c: „Zdrada!”
+Tadeusz go zas³ania, ledwie zdo³a³ Ryków
+Zrejterowaæ siê i wpaœæ we œrodek swych szyków.
+Znowu Dobrzyñscy z Litw¹ natarli w zawody
+I pomimo dawniejsze dwóch stronnictw niezgody
+Walcz¹ jak bracia, jeden drugiego zachêca.
+Dobrzyñscy, widz¹c jak siê Podhajski wykrêca
+Tu¿ przed szeregiem jegrów i kos¹ ich kraje,
+Zawo³ali z radoœci¹: „Niech ¿yj¹ Podhaje!
+Naprzód, bracia Litwini! Gór¹, gór¹ Litwa!”
+Sko³ubowie zaœ, widz¹c, jak waleczny Brzytwa,
+Choæ ranny, leci z szabl¹ wzniesion¹ do góry,
+Krzyknêli: „Gór¹ Maæki, niech ¿yj¹ Mazury!”
+Dodawszy wzajem serca, bieg¹ na Moskali;
+Nadaremnie ich Robak z Maækiem wstrzymywali.
+Gdy tak na rotê jegrów uderzano z przodu,
+Wojski rzuca plac boju, idzie do ogrodu;
+Przy boku jego st¹pa³ ostro¿ny Protazy,
+A Wojski mu po cichu wydawa³ rozkazy.
+285
+Sta³a w ogrodzie, prawie pod samym parkanem,
+O który siê opiera³ Ryków swym trójgranem,
+Wielka, stara sernica, budowana w kratki
+Z belek na krzy¿ wi¹zanych, podobna do klatki.
+W niej œwieci³y siê bia³ych serów mnogie kopy;
+Wko³o zaœ waha³y siê susz¹ce siê snopy
+Sza³wiji, benedykty kardy, macierzanki:
+Ca³a zielna domowa apteka Wojszczanki.
+Sernica w górze mia³a wszerz s¹¿ni pó³czwarta.
+A u do³u na jednym wielkim s³upie wsparta,
+Niby gniazdo bocianie. Stary s³up dêbowy
+Pochyli³ siê, bo ju¿ by³ wygni³ do po³owy,
+Grozi³ upadkiem. Nieraz Sêdziemu radzono,
+Aby zruci³ budowê wiekiem nadw¹tlon¹;
+Ale Sêdzia powiada³, ¿e woli poprawiaæ
+Ani¿eli rozrucaæ, albo te¿ przestawiaæ.
+Odk³ada³ budowanie do sposobnej pory,
+Tymczasem pod s³up kaza³ wetkn¹æ dwie podpory.
+Tak pokrzepiona, ale nietrwa³a budowa
+Wygl¹da³a za parkan nad trójk¹t Rykowa.
+Ku tej sernicy Wojski z WoŸnym milczkiem id¹,
+Ka¿dy zbrojny ogromnym dr¹giem jakby dzid¹;
+Za nimi ochmistrzyni d¹¿y przez konopie
+I kuchcik, ma³e, ale bardzo silne ch³opiê.
+Przyszed³szy, dr¹gi wparli w wierzch s³upa nadgni³y,
+Sami, u koñców wisz¹c, pchaj¹ z ca³ej si³y,
+Jako flisy uwiêz³¹ na rapach wicinê
+D³ugimi dr¹gi z brzegu pêdz¹ na g³êbinê.
+286
+Trzasn¹³ s³up: ju¿ sernica chwieje siê i wali
+Z brzemieniem drzew i serów na trójk¹t Moskali,
+Gniecie, rani, zabija; gdzie sta³y szeregi,
+Le¿¹ drwa, trupy, sery bia³e jako œniegi,
+Krwi¹ i mozgiem splamione. Trójk¹t w sztuki pryska,
+A ju¿ w œrodku Kropid³o grzmi, ju¿ Brzytwa b³yska,
+Siecze Rózga, od dworu wpada szlachty t³uszcza,
+A Hrabia od bram jazdê na rozpierzch³ych puszcza.
+Ju¿ tylko oœmiu jegrów z sier¿antem na czele
+Broni¹ siê; bie¿y Klucznik; oni stoj¹ œmiele,
+Dziewiêæ rur wymierzyli prosto w ³eb Klucznika;
+On leci na strza³, krêc¹c ostrze Scyzoryka.
+Widzi to Ksi¹dz, zabiega Klucznikowi drogê.
+Sam pada i podbija Gerwazemu nogê.
+Upadli, w³aœnie kiedy pluton ognia dawa³;
+Ledwie o³ów przeœwisn¹³, ju¿ Gerwazy wstawa³,
+Ju¿ wskoczy³ w dym; dwom jegrom zaraz g³owy zmiata.
+Uciekaj¹ strwo¿eni, Klucznik goni, p³ata;
+Oni biegn¹ dziedziñcem, Gerwazy ich torem;
+Wpadaj¹ we drzwi gumna stoj¹ce otworem,
+I Gerwazy do gumna na ich karkach wjecha³,
+Znikn¹³ w ciemnoœci, ale bitwy nie zaniecha³,
+Bo przeze drzwi jêk s³ychaæ, wrzask i gêste razy.
+Wkrótce ucich³o wszystko; wyszed³ sam Gerwazy
+Z mieczem krwawym.
+Ju¿ szlachta odzier¿y³a pole,
+Porozpêdzanych jegrów œciga, r¹bie, kole;
+287
+Ryków sam zosta³, krzyczy, ¿e broni nie z³o¿y,
+Bije siê, gdy ku niemu podszed³ Podkomorzy
+I wznosz¹c karabelê, rzek³ powa¿nym tonem:
+„Kapitanie! nie splamisz czci twojej pardonem,
+Da³eœ proby, rycerzu nieszczêsny, lecz mê¿ny,
+Twojej odwagi; porzuæ opór niedo³ê¿ny,
+Z³ó¿ broñ, nim ciê naszymi szablami rozbroim;
+Zachowasz ¿ycie i czeœæ, jesteœ wiêŸniem moim!”
+Ryków, Podkomorzego zwalczony powag¹,
+Sk³oni³ siê i odda³ mu swojê szpadê nag¹,
+Skrwawion¹ po rêkojeœæ, i rzek³: „Lachy braty!
+Oj, biada mnie, ¿em nie mia³ choæ jednej armaty!
+Dobrze mówi³ Suworow: <<Pomnij, Ryków kamrat,
+¯ebyœ nigdy na Lachów nie chodzi³ bez armat!>>
+Có¿! jegry byli pjani, Major piæ pozwoli³!
+Och, major P³ut, on dzisiaj bardzo poswawoli³!
+On odpowie przed carem, bo on mia³ komendê,
+Ja, Panie Podkomorzy, wasz przyjaciel bêdê.
+Ruskie przys³owie mówi: Kto siê mocno lubi,
+Ten, Panie Podkomorzy, i mocno siê czubi.
+Wy dobrzy do wypitki, dobrzy do wybitki,
+Ale przestañcie robiæ nad jegrami zbytki”.
+Podkomorzy, s³ysz¹c to, karabelê wznasza
+I przez WoŸnego pardon powszechny og³asza,
+Ka¿e rannych opatrzyæ, z trupów czyœciæ pole,
+A jegrów rozbrojonych prowadziæ w niewolê.
+D³ugo szukano P³uta; on, w krzaku pokrzywy
+288
+Zarywszy siê g³êboko, le¿a³ jak nie¿ywy;
+Wyszed³ wreszcie, ujrzawszy, ¿e by³o po bitwie.
+Taki mia³ koniec zajazd ostatni na Litwie.
+289
+KSIÊGA DZIESI¥TA
+EMIGRACJA. JACEK
+Treœæ:
+Narada tycz¹ca siê zabezpieczenia losu zwyciêzców
+- Uk³ady z Rykowem - Po¿egnanie - Wa¿ne odkrycie - Nadzieja.
+290
+Owe ob³oki ranne, zrazu rozpierzchnione
+Jak czarne ptaki, lec¹c w wy¿sz¹ nieba stronê,
+Coraz siê zgromadza³y; ledwie s³oñce zbieg³o
+Z po³udnia, ju¿ ich stado pó³ niebios obleg³o
+Ogromn¹ chmur¹; wiatr j¹ pêdzi³ coraz chy¿ej,
+Chmura coraz gêstnia³a, zwiesza³a siê ni¿ej,
+A¿ jedn¹ stron¹ na wpó³ od niebios oddarta,
+Ku ziemi wychylona i wszerz rozpostarta,
+Jak wielki ¿agiel, bior¹c wszystkie wiatry w siebie,
+Od po³udnia na zachód lecia³a po niebie.
+I by³a chwila ciszy; i powietrze sta³o
+G³uche, milcz¹ce, jakby z trwogi oniemia³o.
+I ³any zbó¿, co wprzódy, k³ad¹c siê na ziemi
+I znowu w górê trzês¹c k³osami z³otemi,
+Wrza³y jak fale, teraz stoj¹ nieruchome
+I pogl¹daj¹ w niebo naje¿ywszy s³omê.
+I zielone przy drogach wierzby i topole,
+Co pierwej, jako p³aczki przy grobowym dole,
+Bi³y czo³em, d³ugiemi krêci³y ramiony,
+Rozpuszczaj¹c na wiatry warkocz posrebrzony -
+Teraz jak martwe, z niemej wyrazem ¿a³oby,
+Stoj¹ na kszta³t pos¹gów sypilskiej Nioby.
+Jedna osina dr¿¹ca wstrz¹sa liœcie siwe.
+Byd³o, zwykle do domu powracaæ leniwe,
+Teraz zbiega siê t³umnie, pasterzy nie czeka
+I opuszczaj¹c strawê, do domu ucieka.
+Buhaj racic¹ ziemiê kopie, orze rogiem
+291
+I ca³¹ trzodê straszy ryczeniem z³owrogiem;
+Krowa coraz ku niebu wznosi wielkie oko,
+Usta z dziwu otwiera i wzdycha g³êboko;
+A wieprz marudzi w tyle, d¹sa siê i zgrzyta,
+I snopy zbo¿a kradnie, i na zapas chwyta.
+Ptastwo skry³o siê w lasy, pod strzechy, w g³¹b trawy;
+Tylko wrony, stadami obst¹piwszy stawy,
+Przechadzaj¹ siê sobie powa¿nemi kroki,
+Czarne oczy kieruj¹ na czarne ob³oki;
+Wytkn¹wszy jêzyk z suchej, szerokiej gardzieli
+I skrzyd³a roztaczaj¹c, czekaj¹ k¹pieli;
+Lecz i te, przewiduj¹c nazbyt mocn¹ burzê,
+Ju¿ w las ci¹gn¹, podobne wznosz¹cej siê chmurze.
+Ostatnia z ptaków, lotem nieœcig³ym zuchwa³a
+Jaskó³ka, czarny ob³ok przeszywa jak strza³a,
+Wreszcie spada jak kula.
+W³aœnie w owej chwili
+Szlachta z Moskw¹ okropn¹ walkê zakoñczyli
+I chroni¹ siê gromadnie w domy i stodo³y,
+Opuszczaj¹ plac boju, gdzie wkrótce ¿ywio³y
+Stocz¹ walkê.
+Na zachód jeszcze oz³ocona
+Ziemia œwieci ponuro, ¿ó³tawo-czerwona;
+Ju¿ chmura, roztaczaj¹c cienie na kszta³t sieci,
+Wy³awia resztki œwiat³a, a za s³oñcem leci,
+292
+Jak gdyby je pochwyciæ chcia³a przed zachodem.
+Kilka wichrów raz po raz przeœwisnê³o spodem,
+Jeden za drugim lec¹, miec¹c krople d¿d¿yste,
+Wielkie, jasne, okr¹g³e, jak grady ziarniste.
+Nagle wichry zwar³y siê, porwa³y siê wpo³y,
+Borykaj¹ siê, krêc¹, œwiszcz¹cemi ko³y
+Kr¹¿¹ po stawach, m¹c¹ do dna wody w stawach;
+Wpadli na ³¹ki, œwiszcz¹ po ³ozach i trawach,
+Pryskaj¹ ³óz ga³êzie, lec¹ traw przekosy
+Na wiatr, jako garœciami wyrywane w³osy,
+Zmieszane z kêdziorami snopów; wiatry wyj¹,
+Upadaj¹ na rolê, tarzaj¹ siê, ryj¹,
+Rw¹ skiby, robi¹ otwor wichrowi trzeciemu,
+Który wydar³ siê z roli jak s³up czarnoziemu,
+Wznosi siê, jak ruchoma piramida toczy,
+£bem grunt wierci, z nóg piasek sypie gwiazdom w oczy,
+Co krok wszerz wydyma siê, roztwiera ku górze
+I ogromn¹ sw¹ tr¹b¹ otrêbuje burzê.
+A¿ z ca³ym tym chaosem wody i kurzawy,
+S³omy, liœcia, ga³êzi, wydartej murawy,
+Wichry w las uderzy³y i po g³êbiach puszczy
+Ryknê³y jak niedŸwiedzie.
+A ju¿ deszcz wci¹¿ pluszczy,
+Jak z sita, w gêstych kroplach; wtem ryk³y pioruny,
+Krople zla³y siê razem; to jak proste stróny
+D³ugim warkoczem wi¹¿¹ niebiosa do ziemi,
+To jak z wiader buchaj¹ warstami ca³emi.
+293
+Ju¿ zakry³y siê ca³kiem niebiosa i ziemia,
+Noc je z burz¹ od nocy czarniejsz¹ zaciemia.
+Czasem widnokr¹g pêka od koñca do koñca,
+I anio³ burzy na kszta³t niezmiernego s³oñca
+Rozœwieci twarz, i znowu, okryty ca³unem,
+Uciek³ w niebo i drzwi chmur zatrzasn¹³ piorunem.
+Znowu wzmaga siê burza, ulewa nawalna
+I ciemnoœæ gruba, gêsta, prawie dotykalna.
+Znowu deszcz ciszej szumi, grom na chwilê uœnie;
+Znowu wzbudzi siê, ryknie i znów wod¹ chluœnie.
+A¿ siê uspokoi³o wszystko; tylko drzewa
+Szumi¹ oko³o domu i szemrze ulewa.
+W takim dniu po¿¹dany by³ czas najburzliwszy;
+Bo nawalnica, boju plac mrokiem okrywszy,
+Zala³a drogi, mosty zerwa³a na rzece,
+Z folwarku niedostêpn¹ zrobi³a fortecê.
+O tem wiêc, co siê dzia³o w obozie Soplicy,
+Dziœ nie mog³a rozejœæ siê wieœæ po okolicy,
+A w³aœnie zawis³ szlachty los od tajemnicy.
+W izbie Sêdziego wa¿ne tocz¹ siê narady;
+Bernardyn le¿a³ w ³ó¿ku, zmordowany, blady
+I skrwawiony, lecz ca³kiem zdrowy na umyœle,
+Daje rozkazy, Sêdzia wype³nia je œciœle.
+Prosi Podkomorzego, przyzywa Klucznika,
+Ka¿e przywieœæ Rykowa, potem drzwi zamyka.
+Godzinê ca³¹ trwa³y tajemne rozmowy,
+A¿ je przerwa³ kapitan Ryków temi s³owy,
+294
+Rzucaj¹c na stó³ kiesê ciê¿k¹ dukatami:
+„Pañstwo Lachy, ju¿ jest ta gadka miêdzy wami,
+¯e ka¿dy Moskal z³odziej; powiedzcie¿, kto spyta,
+¯e znaliœcie Moskala, który zwan Nikita
+Nikitycz Ryków, rotny kapitan, mia³ osim
+Medalów i trzy krzy¿e - to pamiêtaæ prosim:
+Ten medal za Oczaków, ten za Izmai³ów,
+Ten za bitwê pod Nowi, ten za Prejsi¿-I³ów,
+Tamten za Korsakowa s³awn¹ rejteradê
+Spod Zurich; a mia³ tak¿e i za mêstwo szpadê,
+Tak¿e od Feldmarsza³ka trzy zadowolnienia,
+Dwie pochwa³y cesarskie i cztery wspomnienia,
+Wszystko na piœmie”.
+„Ale, ale, Kapitanie -
+Przerwa³ Robak - i có¿ siê tedy z nami stanie,
+Jeœli nie chcesz zgodziæ siê? Wszak¿e da³eœ s³owo
+Za³atwiæ tê rzecz”.
+„Prawda, s³owo dam na nowo -
+Rzecze Ryków - ot, s³owo! Co po waszej zgubie?
+Ja cz³ek poczciwy, ja was, Pañstwo Lachy, lubiê,
+¯e wy ludzie weseli, dobrzy do wypitki,
+I tak¿e ludzie œmiali, dobrzy do wybitki.
+U nas ruskie przys³owie: Kto na wozie jedzie,
+Bywa czêsto pod wozem; kto dzisiaj na przedzie,
+Jutro w tyle; dziœ bijesz, jutro ciebie bij¹;
+Czy o to gniew? Tak u nas po ¿o³niersku ¿yj¹.
+Sk¹d by siê cz³owiekowi tyle z³oœci wziê³o
+295
+Gniewaæ siê o przegranê! Oczakowskie dzie³o
+By³o krwawe, pod Zurich zbili nam piechotê,
+Pod Austerlicem ca³¹ utraci³em rotê;
+A pierwej wasz Koœciuszko pod Rac³awicami -
+By³em sier¿antem - wysiek³ mój pluton kosami.
+I có¿ st¹d? To ja znowu u Maciejowiców
+Zabi³em w³asnym sztykiem dwóch dzielnych szlachciców:
+Jeden by³ Mokronowski, szed³ z kos¹ przed frontem
+I kanonijerowi uci¹³ rêkê z lontem.
+Oj! wy Lachy! Ojczyzna! ja to wszystko czujê,
+Ja Ryków; car tak ka¿e, a ja was ¿a³ujê;
+Co nam do Lachów? Niechaj Moskwa dla Moskala,
+Polska dla Lacha; ale có¿? Car nie pozwala!”
+Sêdzia mu na to rzecze: „Panie Kapitanie,
+¯eœ cz³ek poczciwy, wiedz¹ to wszyscy ziemianie,
+U których na kwaterach sta³eœ od lat wielu;
+Za ten dar nie gniewaj siê, dobry przyjacielu,
+Nie chcieliœmy ciê skrzywdziæ; te oto dukaty
+Œmieliœmy z³o¿yæ, wiedz¹c, ¿eœ cz³ek niebogaty”.
+„Ach, jegry! - wo³a³ Ryków - ca³a rota sk³uta!
+Moja rota! A wszystko z winy tego P³uta!
+On komendant, on za to przed carem odpowie.
+A wy te grosze sobie zabierzcie, Panowie.
+U mnie jest kapitañski mój ¿o³d lada jaki,
+A dosyæ mnie na ponczyk i lulkê tabaki.
+A was lubiê, ¿e z wami sobie zjem, popijê,
+Pohulam, pogawêdzê, i tak sobie ¿yjê;
+296
+Otó¿ ja was obroniê i, jak bêdzie œledztwo,
+S³owo uczciwe, ¿e dam za wami œwiadectwo.
+Powiemy, ¿e my przyszli tu z wizyt¹, pili
+Sobie, tañczyli, trochê sobie podchmielili,
+A P³ut przypadkiem ognia zakomenderowa³,
+Bitwa! i batalijon tak jakoœ zmarnowa³.
+Wy, Pany, tylko œledztwo pomazujcie z³otem,
+Bêdzie krêciæ siê. Ale teraz powiem o tem,
+Co ju¿ mówi³em temu szlachcicu, co d³ugi
+Ma rapier, ¿e P³ut pierwszy komendant, ja drugi:
+P³ut zosta³ ¿ywy, mo¿e on wam zagi¹æ kruczka
+Takiego, ¿e zginiecie, bo to chytra sztuczka;
+Trzeba mu gêbê zatkaæ bankowym papierem.
+No i có¿, Panie szlachcic, ty z d³ugim rapierem,
+Czy ju¿ by³eœ u P³uta, czyœ siê z nim naradzi³?”
+Gerwazy obejrza³ siê, ³ysinê pog³adzi³,
+Kiwn¹³ niedbale rêk¹, jak gdyby znaæ dawa³,
+¯e ju¿ wszystko za³atwi³. - Lecz Ryków nastawa³:
+„Có¿, czy P³ut bêdzie milczeæ, czy s³owem zarêczy³?”
+Klucznik z³y, ¿e go Ryków pytaniami drêczy³,
+Powa¿nie palec wielki ku ziemi nagina³,
+A potem machn¹³ rêk¹, jak gdyby przecina³
+Dalsz¹ rozmowê, i rzek³: „Klnê siê Scyzorykiem,
+¯e P³ut nie wyda! gadaæ ju¿ nie bêdzie z nikim!”
+Potem d³onie opuœci³ i palcami chrz¹sn¹³,
+Jak gdyby tajemnicê ca³¹ z r¹k wytrz¹sn¹³.
+297
+Ten ciemny gest pojêli s³uchacze i stali,
+Patrz¹c z dziwem na siebie, wzajem siê badali.
+I posêpne milczenie trwa³o minut kilka,
+A¿ Ryków rzek³: „Nosi³ wilk, ponieœli i wilka!”
+„Requiescat in pace” - doda³ Podkomorzy.
+„Ju¿ci - zakoñczy³ Sêdzia - by³ w tem palec Bo¿y!
+Lecz ja tej krwi nie winien, jam o tym nie wiedzia³”.
+Ksi¹dz porwa³ siê z poduszek i posêpny siedzia³.
+Na koniec rzek³, spójrzawszy bystro na Klucznika:
+„Wielki grzech bezbronnego zabiæ niewolnika!
+Chrystus zabrania mœciæ siê nawet i nad wrogiem!
+Oj, Kluczniku! odpowiesz ty ciê¿ko przed Bogiem.
+Jedna jest restrykcyja: jeœli pope³niono
+Nie z zemsty g³upiej, ale pro publico bono”.
+Klucznik g³ow¹ i rêk¹ kiwa³ wyci¹gnion¹
+I mrugaj¹c powtarza³: Pro publico bono!
+Wiêcej nie by³o mowy o P³ucie majorze;
+Nazajutrz daremnie go szukano we dworze,
+Daremnie wyznaczono za trupa nagrodê,
+Major zgin¹³ bez œladu, jak gdyby wpad³ w wodê.
+Co siê z nim sta³o, ró¿nie powiadano o tem,
+Lecz nikt pewnie nie wiedzia³ ni wtenczas, ni potem.
+Daremnie pytaniami Klucznika drêczono;
+Nic nie wyrzek³ prócz tych s³ów: Pro publico bono.
+Wojski by³ w tajemnicy, lecz s³owem ujêty
+Honorowym, staruszek milcza³ jak zaklêty.
+298
+Po zawarciu uk³adów wyszed³ z izby Ryków,
+A Robak kaza³ wezwaæ szlachtê wojowników,
+Do których Podkomorzy z powag¹ tak mówi:
+„Bracia! Bóg dziœ naszemu szczêœci³ orê¿owi,
+Ale muszê Waæpañstwu wyznaæ bez ogródki,
+¯e z tych niewczesnych bojów z³e wynikn¹ skutki;
+Zb³¹dziliœmy i nikt tu z nas nie jest bez winy:
+Ksi¹dz Robak, ¿e zbyt czynnie rozszerza³ nowiny,
+Klucznik i szlachta, ¿e je pojê³a opacznie.
+Wojna z Rosyj¹ jeszcze nieprêdko siê zacznie,
+Tymczasem, kto mia³ udzia³ najczynniejszy w bitwie,
+Ten nie mo¿e bezpieczny zostaæ siê na Litwie;
+Musicie wiêc do Ksiêstwa uciekaæ, Panowie,
+A mianowicie Maciej, co siê Chrzciciel zowie,
+Tadeusz, Konew, Brzytew - niech unosz¹ g³owy
+Za Niemen, gdzie ich czeka zastêp narodowy;
+My na was nieobecnych ca³¹ winê zwalim
+I na P³uta; tak resztê rodzeñstwa ocalim.
+¯egnam was nie na d³ugo; s¹ pewne nadzieje,
+¯e nam z wiosn¹ swobody zorza zajaœnieje
+I Litwa, co was teraz ¿egna jak tu³aczy,
+Wkrótce jako zwyciêskich swych zbawców zobaczy.
+Sêdzia wszystko, co trzeba, zgotuje na drogê
+I ja pieniêdzmi, ile zdo³am, dopomogê”.
+Czu³a szlachta, ¿e m¹drze Podkomorzy radzi³;
+Wiadomo, ¿e kto z ruskim carem raz siê zwadzi³,
+Ten ju¿ z nim na tej ziemi nie zgodzi siê szczérze
+I musi albo biæ siê, albo gniæ w Sybirze.
+299
+Wiêc nic nie mówi¹c, smutnie po sobie spójrzeli,
+Westchnêli; na znak zgody g³owami skinêli.
+Polak, chocia¿ st¹d miêdzy narodami s³ynny,
+¯e bardziej niŸli ¿ycie kocha kraj rodzinny,
+Gotów zaw¿dy rzuciæ go, puœciæ siê w kraj œwiata,
+W nêdzy i poniewierce prze¿yæ d³ugie lata,
+Walcz¹c z ludŸmi i z losem, póki mu œród burzy
+Przyœwieca ta nadzieja, ¿e OjczyŸnie s³u¿y.
+Oœwiadczyli, ¿e zaraz wyje¿d¿aæ gotowi.
+Tylko siê to nie zda³o panu Buchmanowi:
+Buchman, cz³owiek rozs¹dny, w bitwê siê nie wmiesza³,
+Ale s³ysz¹c, ¿e radz¹, g³osowaæ poœpiesza³.
+Znajdowa³ projekt dobrym, lecz chcia³ przeinaczyæ,
+Dok³adniej go rozwin¹æ, jaœniej wyt³umaczyæ,
+A naprzód komisyj¹ legalnie wyznaczyæ,
+Która by rozwa¿y³a emigracji cele,
+Œrodki, sposoby tudzie¿ innych wzglêdów wiele;
+Nieszczêœciem, krótkoœæ czasu by³a na zawadzie,
+¯e siê nie sta³o zadoœæ Buchmanowej radzie.
+Szlachta ¿egna siê œpiesznie i ju¿ w drogê rusza.
+Ale Sêdzia zatrzyma³ w izbie Tadeusza
+I rzek³ do Ksiêdza: „Czas ju¿, ¿ebym ci powiedzia³
+To, o czem-em z pewnoœci¹ wczoraj siê dowiedzia³,
+¯e nasz Tadeusz szczerze zakochany w Zosi;
+Niechaj¿e przed odjazdem o rêkê jej prosi;
+Mówi³em z Telimen¹; ju¿ nam nie przeszkadza.
+300
+Zosia tak¿e siê z wol¹ opiekunów zgadza.
+Jeœli dziœ œlubem pary nie mo¿em uwieñczyæ,
+Toæby ich, Panie Bracie, przynajmniej zarêczyæ
+Przed odjazdem; bo serce m³ode i podró¿ne,
+Wiesz dobrze, jako miewa tentacyje ró¿ne;
+A wszak¿e kiedy okiem rzuci na pierœcionek
+I przypomni m³odzieniec, ¿e ju¿ jest ma³¿onek,
+Zaraz w nim obcych pokus ostyga gor¹czka.
+Wierzaj mi, wielk¹ si³ê ma œlubna obr¹czka.
+Ja sam przed lat trzydziestu wielki afekt mia³em
+Ku pannie Marcie, której serce pozyska³em;
+Byliœmy zarêczeni; Bóg nie b³ogos³awi³
+Zwi¹zkowi temu i mnie sierot¹ zostawi³,
+Wzi¹wszy do chwa³y swojej nadobn¹ Wojszczankê,
+Przyjaciela mojego córê, Hreczeszankê.
+Pozosta³a mi tylko pami¹tka jej cnoty,
+Jej wdziêków i ten oto œlubny pierœcieñ z³oty.
+Ilekroæ nañ spójrza³em, zawsze ma nieboga
+Stawa³a przed oczyma; i tak z ³aski Boga
+Dot¹d mej narzeczonej dochowa³em wiary,
+I nie bywszy ma³¿onkiem, jestem wdowiec stary,
+Chocia¿ Wojski ma drug¹ córê, doœæ nadobn¹
+I do mojej kochanej Marty doœæ podobn¹!”
+To mówi¹c, na pierœcionek z czu³oœci¹ spoziera³
+I odwrócon¹ rêk¹ ³zy z oczu ociera³.
+„Bracie - koñczy³ - co myœlisz? Zrobim zarêczyny?
+On kocha, a mam s³owo ciotki i dziewczyny”.
+301
+Lecz Tadeusz podbiega i z ¿ywoœci¹ mówi:
+„Czym¿e zdo³am odwdziêczyæ dobremu Stryjowi,
+Który tak o me szczêœcie ustawnie siê trudzi!
+Ach, dobry Stryju! By³bym najszczêœliwszy z ludzi,
+Gdyby mi Zosia by³a dzisiaj zarêczona,
+Gdybym wiedzia³, ¿e to jest moja przysz³a ¿ona.
+Przecie¿ powiem otwarcie: dziœ te zarêczyny
+Do skutku przyjœæ nie mog¹; s¹ ró¿ne przyczyny...
+Nie pytaj wiêcej. Jeœli Zosia czekaæ raczy,
+Mo¿e mnie wkrótce lepszym, godniejszym obaczy,
+Mo¿e sta³oœci¹ na jej wzajemnoœæ zarobiê,
+Mo¿e troszeczk¹ s³awy me imiê ozdobiê,
+Mo¿e wkrótce w ojczyste wrócim okolice;
+Wtenczas, Stryju, wspomnê ci twoje obietnice,
+Wtenczas na klêczkach drog¹ powitam Zosienkê
+I jeœli bêdzie wolna, poproszê o rêkê;
+Teraz porzucam Litwê mo¿e na czas d³ugi,
+Mo¿e Zosi tymczasem podobaæ siê drugi;
+Wiêziæ jej woli nie chcê; prosiæ o wzajemnoœæ,
+Na któr¹m nie zas³u¿y³, by³aby nikczemnoœæ”.
+Gdy te s³owa z uczuciem mówi³ ch³opiec m³ody,
+Zaœwieci³y mu, jako dwie wielkie jagody
+Pere³, dwie ³zy na wielkich b³êkitnych Ÿrenicach
+I stoczy³y siê szybko po rumianych licach.
+Ale Zosia ciekawa z g³êbiny alkowy
+Œledzi³a przez szczelinê tajemne rozmowy;
+S³ysza³a, jak Tadeusz po prostu i œmia³o
+302
+Opowiedzia³ sw¹ mi³oœæ, serce w niej zadr¿a³o,
+I widzia³a tych wielkich dwoje ³ez w Ÿrenicach.
+Choæ dojœæ nie mog³a w¹tku w jego tajemnicach:
+Dlaczego j¹ pokocha³? dlaczego porzuca?
+Gdzie odje¿d¿a? przecie¿ j¹ ten odjazd zasmuca.
+Pierwszy raz pos³ysza³a w ¿yciu z ust m³odziana
+Dziwn¹ i wielk¹ nowoœæ, ¿e by³a kochana.
+Bieg³a wiêc, gdzie sta³ ma³y domowy o³tarzyk,
+Wyjê³a zeñ obrazek i relikwijarzyk:
+Na obrazku tym by³a œwiêta Genowefa,
+A w relikwiji suknia œwiêtego Józefa
+Oblubieñca, patrona zarêczonej m³odzi;
+I z temi œwiêtoœciami do pokoju wchodzi.
+„Pan odje¿d¿asz tak prêdko? Ja Panu na drogê
+Dam podarunek ma³y i tak¿e przestrogê:
+Niechaj Pan zawsze z sob¹ relikwije nosi
+I ten obrazek, a niech pamiêta o Zosi.
+Niech Pana Pan Bóg w zdrowiu i szczêœciu prowadzi
+I niech prêdko szczêœliwie do nas odprowadzi”.
+Umilk³a i spuœci³a g³owê; oczki modre
+Ledwie stuli³a, z rzêsów pobieg³y ³zy szczodre,
+A Zosia z zamkniêtymi stoj¹c powiekami,
+Milcza³a, sypi¹c ³zami jako brylantami.
+Tadeusz, bior¹c dary i ca³uj¹c rêkê,
+Rzek³: „Pani! Ju¿ ja muszê po¿egnaæ Panienkê;
+B¹dŸ zdrowa, wspomnij o mnie i racz czasem zmówiæ
+Pacierz za mnie! Zofijo!...” Wiêcej nie móg³ mówiæ.
+303
+Lecz Hrabia, z Telimen¹ wszed³szy niespodzianie,
+Uwa¿a³ m³odej pary czu³e po¿egnanie,
+Wzruszy³ siê i rzuciwszy wzrok ku Telimenie:
+„Ile¿ - rzek³ - jest piêknoœci choæ w tak prostej scenie!
+Kiedy dusza pasterki z wojownika dusz¹,
+Jak ³ódŸ z okrêtem w burzy, roz³¹czyæ siê musz¹!
+Zaiste! nic tak uczuæ w sercu nie rozpala,
+Jako kiedy siê serce od serca oddala.
+Czas jest to wiatr: on tylko ma³¹ œwiecê zdmuchnie,
+Wielki po¿ar od wiatru tem mocniej wybuchnie.
+I moje serce zdolne mocniej kochaæ z dala.
+Panie Soplico! Mia³em ciebie za rywala;
+Ten b³¹d by³ jedn¹ z przyczyn naszej smutnej zwady,
+Która miê przymusi³a dostaæ na was szpady.
+Postrzegam b³¹d mój, boœ ty wzdycha³ ku pasterce,
+Ja zaœ tej piêknej Nimfie odda³em me serce.
+Niech we krwi wrogów nasze uton¹ urazy,
+Nie bêdziem siê zbójczemi rozpieraæ ¿elazy.
+Niech siê inaczej spór nasz zalotny rozstrzygnie:
+Walczmy, kto kogo czuciem mi³oœci wyœcignie!
+Zostawim oba drogie serc naszych przedmioty,
+Poœpieszymy obadwa na miecze, na groty;
+Walczmy z sob¹ sta³oœci¹, ¿alem i cierpieniem,
+A wrogów naszych mê¿nym œcigajmy ramieniem”.
+Rzek³ i na Telimenê spójrza³, ale ona
+Nic nie odpowiada³a, strasznie zadziwiona.
+„Mój Hrabio - przerwa³ Sêdzia -
+po co chcesz koniecznie
+304
+Wyje¿d¿aæ? Wierz mi, w twoich dobrach siedŸ bezpiecznie.
+Szlachtê biedn¹ rz¹d móg³by odrzeæ i przech³ostaæ,
+Ale ty, Hrabio, pewien jesteœ ca³y zostaæ;
+Wiesz, w jakim rz¹dzie ¿yjesz, jesteœ doœæ bogaty,
+Wykupisz siê od wiêzieñ po³ow¹ intraty”.
+„To niezgodna - rzek³ Hrabia - z moim charakterem;
+Nie mogê byæ kochankiem, bêdê bohaterem;
+W mi³oœci troskach - s³awy zwê pocieszycielki;
+Gdy jestem nêdzarz sercem, bêdê rêk¹ wielki”.
+Telimena pyta³a: „Któ¿ Panu przeszkadza
+Kochaæ i byæ szczêœliwym!” -
+„Mych przeznaczeñ w³adza -
+Rzek³ Hrabia - ciemnoœæ przeczuæ, które ruchem tajnym
+Rw¹ siê ku stronom obcym, dzie³om nadzwyczajnym.
+Wyznajê, ¿e dziœ chcia³em na czeœæ Telimenie
+U o³tarzów Hymena zapaliæ p³omienie,
+Ale mi da³ zbyt piêkny przyk³ad ten m³odzieniec,
+Sam dobrowolnie œlubny swój zrywaj¹c wieniec
+I bieg¹c serca swego doœwiadczaæ w przeszkodach
+Zmiennych losów i w krwawych wojennych przygodach.
+Dziœ otwiera siê nowa i dla mnie epoka!
+Brzmia³a odg³osem broni mej Birbante-rokka,
+Oby ten odg³os równie w Polszcze siê rozszerzy³!”
+Skoñczy³ i dumnie szpady rêkojeœæ uderzy³.
+„Ju¿ci - rzek³ Robak - trudno ganiæ tê ochotê;
+JedŸ, weŸ pieni¹dze, mo¿esz usztyftowaæ rotê,
+305
+Jak W³odzimierz Potocki, co Francuzów zdziwi³
+Daj¹c na skarb milijon; jak ksi¹¿ê Radziwi³³
+Dominik, co zastawi³ dobra swe i sprzêty
+I dwa uzbroi³ nowe konne regimenty.
+JedŸ, jedŸ, a weŸ pieni¹dze; r¹k tam dosyæ mamy,
+Ale grosza brak w Ksiêstwie; jedŸ Wasze, ¿egnamy”.
+Telimena, smutnemi rzuciwszy oczyma:
+„Niestety - rzek³a - widzê, ¿e ciê nic nie wstrzyma!
+Rycerzu mój, w wojenne kiedy wst¹pisz szranki,
+Obróæ czu³e spójrzenie na kolor kochanki!
+(Tu wst¹¿kê oderwawszy od sukni, zrobi³a
+Kokardê i na piersiach Hrabi przyszpili³a).
+Niech ciê ten kolor wiedzie na dzia³a ogniste,
+Na kopije b³yszcz¹ce i deszcze siarczyste,
+A kiedy siê rozs³awisz walecznemi czyny
+I gdy nieœmiertelnemi przes³onisz wawrzyny
+Skrwawiony szyszak i he³m twój zwyciêstwem hardy,
+I wtenczas jeszcze oko zwróæ do tej kokardy.
+Wspomnij, czyja ten kolor przyszpili³a rêka!”
+Tu mu poda³a rêkê.
+Pan Hrabia przyklêka,
+Ca³uje; Telimena zbli¿y³a do oka
+Chustkê, a drugiem okiem pogl¹da z wysoka
+Na Hrabiê, który ¿egna³ j¹ mocno wzruszony.
+Ona wzdycha³a, ale ruszy³a ramiony.
+Lecz Sêdzia rzek³:
+„Mój Hrabio, œpiesz siê, bo ju¿ póŸno”.
+306
+A ksi¹dz Robak: „Doœæ tego! - wo³a³ z min¹ groŸn¹. -
+Spiesz siê, Wasze!” - Tak rozkaz Sêdziego i Ksiêdza
+Rozdziela czu³¹ parê i z izby wypêdza.
+Tymczasem pan Tadeusz stryja obejmowa³
+Ze ³zami i Robaka w rêkê poca³owa³;
+Robak, ku piersiom ch³opca przycisn¹wszy skronie
+I na g³owie mu na krzy¿ po³o¿ywszy d³onie,
+Spójrza³ ku niebu i rzek³: „Synu! z Panem Bogiem!”
+I zap³aka³... A ju¿ by³ Tadeusz za progiem.
+„Jak to? - zapyta³ Sêdzia - nic mu brat nie powie
+I teraz? Biedny ch³opiec, jeszcze siê nie dowie
+O niczem! przed odjazdem?” -
+„Nie - rzek³ Ksi¹dz - o niczem
+(P³acz¹c d³ugo z zakrytem rêkami obliczem).
+I po có¿ by mia³ wiedzieæ biedny, ¿e ma ojca,
+Który siê skry³ przed œwiatem jak ³otr, jak zabojca?
+Bóg widzi, jak pragn¹³bym, ale z tej pociechy
+Zrobiê Bogu ofiarê za me dawne grzechy”.
+„Wiêc - rzecze Sêdzia - teraz czas myœleæ o sobie;
+Uwa¿, ¿e cz³owiek w twoim wieku i chorobie
+Nie zdo³a³by z innymi razem emigrowaæ;
+Mówi³eœ, ¿e wiesz domek, gdzie siê masz przechowaæ;
+Powiedz, gdzie? Spieszmy, czeka zaprzê¿ona bryka.
+Czy nie najlepiej w puszczê, do chaty leœnika?”
+307
+Robak, kiwaj¹c g³ow¹, rzek³: „Do jutra rana
+Mam czas; teraz, mój bracie, poœlij do plebana,
+Aby tu jak najrychlej przyby³ z wijatykiem.
+Oddal st¹d wszystkich, zostañ tyko sam z Klucznikiem.
+Zamknij drzwi”.
+Sêdzia spe³ni³ Robaka rozkazy
+I usiada na ³ó¿ku przy nim; a Gerwazy
+Stoi, ³okieæ przytwierdza na g³ówni rapiera,
+A czo³o pochylone na d³oniach opiera.
+Robak, nim zacz¹³ mówiæ, w Klucznika oblicze
+Wzrok utkwi³ i milczenie chowa³ tajemnicze.
+A jako chirurg naprzód miêkk¹ rêkê sk³ada
+Na ciele choruj¹cem, nim ostrzem raz zada,
+Tak Robak wyraz bystrych oczu swych z³agodzi³,
+D³ugo niemi po oczach Gerwazego wodzi³,
+Na koniec, jakby œlepym chcia³ uderzyæ ciosem,
+Zas³oni³ oczy rêk¹ i rzek³ mocnym g³osem:
+„Jam jest Jacek Soplica...”
+Klucznik na to s³owo
+Pobladn¹³, pochyli³ siê, i cia³a po³ow¹
+Wygiêty naprzód, stan¹³, zwis³ na jednej nodze,
+Jak g³az lec¹cy z góry, zatrzymany w drodze.
+Oczy roztwiera³, usta szeroko rozszerza³,
+Gro¿¹c bia³emi zêby, a w¹sy naje¿a³;
+Rapier z r¹k upuszczony przy ziemi zatrzyma³
+Kolanami i g³owniê praw¹ rêk¹ ima³,
+308
+Cisn¹c j¹; rapier, z ty³u za nim wyci¹gniony,
+D³ugim, czarnym swym koñcem chwia³ siê w ró¿ne strony.
+I Klucznik by³ podobny rysiowi rannemu,
+Który z drzewa ma skoczyæ w oczy myœliwemu,
+Wydyma siê k³êbuszkiem, mruczy, krwawe œlepie
+Wyiskrza, w¹sy rusza i ogonem trzepie.
+„Panie Rêbaj³o - rzek³ Ksi¹dz - ju¿ miê nie zatrwo¿¹
+Gniewy ludzkie, bo jestem ju¿ pod rêk¹ Bo¿¹;
+Zaklinam ciê na imiê Tego, co œwiat zbawi³
+I na krzy¿u zabójcom swoim b³ogos³awi³,
+I przyj¹³ proœbê ³otra, byœ siê udobrucha³
+I to, co mam powiedzieæ, cierpliwie wys³ucha³;
+Sam przyzna³em siê; muszê dla ulgi sumnienia
+Pozyskaæ, a przynajmniej prosiæ przebaczenia.
+Pos³uchaj mej spowiedzi; potem zrobisz sobie
+Ze mn¹, co zechcesz”. I tu z³o¿y³ rêce obie
+Jak do pacierza; Klucznik cofn¹³ siê zdumiony,
+Uderza³ rêk¹ w czo³o i rusza³ ramiony.
+A Ksi¹dz zacz¹³ sw¹ dawn¹ z Horeszk¹ za¿y³oœæ
+Opowiadaæ i swoj¹ z jego córk¹ mi³oœæ,
+I swe z tego powodu z Stolnikiem zatargi.
+Lecz mówi³ nieporz¹dnie, czêsto miêsza³ skargi
+I ¿ale we sw¹ spowiedŸ, czêsto rzecz przecina³,
+Jak gdyby ju¿ j¹ koñczy³, i znowu zaczyna³.
+Klucznik, dzieje Horeszków znaj¹cy dok³adnie,
+Ca³¹ tê powieœæ, chocia¿ spl¹tan¹ bez³adnie,
+309
+Porz¹dkowa³ w pamiêci i dope³niaæ umia³;
+Lecz Sêdzia wielu rzeczy zgo³a nie rozumia³.
+Oba pilnie s³uchali, pochyliwszy g³owy,
+A Jacek mówi³ coraz wolniejszemi s³owy
+I czêsto zarywa³ siê.
+*
+„Wszak sam wiesz, Gerwazeñku, jak Stolnik zaprasza³
+Czêsto mnie na biesiady; zdrowie moje wnasza³,
+Krzycza³ nieraz, do góry podniós³szy szklenicê,
+¯e nie mia³ przyjaciela nad Jacka Soplicê;
+Jak on mnie œciska³! Wszyscy, którzy to widzieli,
+Myœlili, ¿e on ze mn¹ dusz¹ siê podzieli.
+On przyjaciel? on wiedzia³, co siê wtenczas dzia³o
+W duszy mojej!
+*
+Tymczasem ju¿ szepta³a o tem okolica,
+Jaki taki gada³ mi: <<Ej, panie Soplica!
+Daremnie konkurujesz; dygnitarskie progi
+Za wysokie na Jacka podczaszyca nogi>>.
+Ja œmia³em siê, udaj¹c, ¿e drwi³em z magnatów
+I z córek ich, i nie dbam o arystokratów;
+¯e jeœli bywam u nich, z przyjaŸni to robiê,
+A za ¿onê nie pojmê, tylko równ¹ sobie.
+Przecie bod³y mi duszê do ¿ywca te ¿arty;
+By³em m³ody, odwa¿ny, œwiat by³ mnie otwarty
+310
+W kraju, gdzie, jako wiecie, szlachcic urodzony
+Jest zarówno z panami kandydat korony!
+Wszak¿e Têczyñski niegdyœ z królewskiego domu
+¯¹da³ córy, a król mu odda³ j¹ bez sromu.
+Sopliców czy¿ nie równe Têczyñskim zaszczyty
+Krwi¹, herbem, wiern¹ s³u¿b¹ Rzeczypospolitéj!
+*
+Jak ³atwo mo¿e cz³owiek popsuæ szczêœcie drugim
+W jednej chwili, a ¿yciem nie naprawi d³ugiém!
+Jedno s³owo Stolnika, jak¿ebyœmy byli
+Szczêœliwi! Kto wie, mo¿e dot¹d byœmy ¿yli,
+Mo¿e i on przy swojem kochanem dzieciêciu,
+Przy swojej piêknej Ewie, przy swym wdziêcznym ziêciu
+Zestarza³by spokojny! mo¿e wnuki swoje
+Ko³ysa³by! Teraz co? nas zgubi³ oboje,
+I sam... i to zabójstwo... i wszystkie nastêpstwa
+Tej zbrodni, wszystkie moje biedy i przestêpstwa!...
+Ja skar¿yæ nie mam prawa, ja jego morderca,
+Ja skar¿yæ nie mam prawa, przebaczam mu z serca,
+Ale i on...
+¯eby ju¿ raz otwarcie by³ mnie zrekuzowa³,
+Bo zna³ nasze uczucia; gdyby nie przyjmowa³
+Mych odwiedzin; to kto wie? mo¿e bym odjecha³,
+Pogniewa³ siê, po³aja³, w koñcu go zaniecha³.
+Ale on, chytrze dumny, wpad³ na koncept nowy:
+Udawa³, ¿e mu nawet nie przysz³o do g³owy,
+311
+¯eby ja móg³ siê staraæ o zwi¹zek takowy.
+A by³em mu potrzebnym, mia³em zachowanie
+U szlachty i lubili mnie wszyscy ziemianie.
+Wiêc on niby mi³oœci mojej nie dostrzega³,
+Przyjmowa³ mnie jak dawniej, a nawet nalega³,
+Abym czêœciej przyje¿d¿a³; a ilekroæ sami
+Byliœmy, widz¹c oczy me przyæmione ³zami
+I pierœ zbyt pe³n¹ i ju¿ wybuchn¹æ gotow¹,
+Chytry starzec, wnet wrzuci³ obojêtne s³owo
+O procesach, sejmikach, ³owach...
+*
+Ach, nieraz przy kieliszkach, gdy siê tak rozrzewnia³,
+Gdy miê tak œciska³ i o przyjaŸni zapewnia³,
+Potrzebuj¹c mej szabli lub kreski na sejmie,
+Gdy musia³em nawzajem œciskaæ go uprzejmie,
+To tak we mnie z³oœæ wrza³a, ¿e ja obraca³em
+Œlinê w gêbie, a d³oni¹ rêkojeœæ œciska³em,
+Chc¹c plun¹æ na tê przyjaŸñ i wnet szabli dostaæ;
+Ale Ewa, zwa¿aj¹c mój wzrok i m¹ postaæ,
+Zgadywa³a, nie wiem jak, co siê we mnie dzia³o,
+Patrzy³a b³agaj¹ca, lice jej blednia³o;
+A by³ to taki piêkny go³¹bek, ³agodny,
+I wzrok mia³a uprzejmy taki! tak pogodny!
+Taki anielski, ¿e ju¿ nie wiem, ju¿ nie mia³em
+Odwagi zagniewaæ j¹, zatrwo¿yæ - milcza³em.
+I ja, zawadyjaka s³awny w Litwie ca³éj,
+Co przede mn¹ najwiêksze pany nieraz dr¿a³y,
+312
+Com nie ¿y³ dnia bez bitki, co nie Stolnikowi,
+Alebym siê pokrzywdziæ nie da³ i królowi,
+Co we wœciek³oœæ najmniejsza wprawia³a miê sprzeczka,
+Ja wtenczas, z³y i pjany, milcza³ jak owieczka!
+Jak gdybym Sanctissimum ujrza³!
+*
+Ile¿ to razy chcia³em serce me otworzyæ
+I ju¿ siê nawet przed nim do proœb upokorzyæ,
+Lecz spójrzawszy mu w oczy, spotkawszy wejrzenia
+Zimne jak lód, wstyd mi by³o mojego wzruszenia;
+Spieszy³em znowu jak najzimniej dyskurowaæ
+O sprawach, o sejmikach, a nawet ¿artowaæ.
+Wszystko to, prawda, z pychy, ¿eby nie ubli¿yæ
+Imieniowi Sopliców, ¿eby siê nie zni¿yæ
+Przed panem proœb¹ pró¿n¹, nie dostaæ odmowy,
+Bo jakie¿ by to by³y miêdzy szlacht¹ mowy,
+Gdyby wiedziano, ¿e ja, Jacek...
+Soplicy Horeszkowie odmówili dziewkê!
+¯e mnie, Jackowi, czarn¹ podano polewkê!
+*
+„W koñcu, sam ju¿ nie wiedz¹c, jak sobie poradziæ,
+Umyœli³em ze szlachty ma³y pu³k zgromadziæ
+I opuœciæ na zawsze powiat i Ojczyznê,
+Wynieœæ siê gdzie na Moskwê lub na Tatarszczyznê
+313
+I zacz¹æ wojnê. Jadê po¿egnaæ Stolnika,
+W nadziei, ¿e gdy ujrzy wiernego stronnika,
+Dawnego przyjaciela, prawie domownika,
+Z którym pi³ i wojowa³ przez tak d³ugie lata,
+Teraz ¿egnaj¹cego i kêdyœ w kraj œwiata
+Jad¹cego - ¿e mo¿e starzec siê poruszy
+I poka¿e mi przecie¿ trochê ludzkiej duszy,
+Jak œlimak rogów!
+Ach! kto choæ na dnie serca ma dla przyjaciela
+Choæby iskierkê czucia, gdy siê z nim rozdziela,
+Dobêdzie siê iskierka ta przy po¿egnaniu,
+Jako ostatni p³omyk ¿ycia przy skonaniu!
+Raz ostatni dotkn¹wszy przyjaciela skroni,
+Czêstokroæ najzimniejsze oko ³zê uroni!
+*
+„Biedna, s³ysz¹c o moim odjeŸdzie, poblad³a,
+Bez przytomnoœci, ledwie ¿e trupem nie pad³a,
+Nie mog³a nic przemówiæ, a¿ siê jej rzuci³y
+Strumieniem ³zy - pozna³em, jak jej by³em mi³y!
+*
+Pomnê, pierwszy raz w ¿yciu jam siê ³zami zala³
+Z radoœci i z rozpaczy, zapomnia³ siê, szala³.
+Ju¿ chcia³em znowu upaœæ ojcu jej pod nogi,
+Wiæ siê jak w¹¿ u kolan, wo³aæ: <<Ojcze drogi,
+314
+WeŸ za syna lub zabij!>> Wtem Stolnik posêpny,
+Zimny jako s³up soli, grzeczny, obojêtny,
+Wszcz¹³ dyskurs, o czem? o czem? O córki weselu!
+W tej chwili! O Gerwazy! uwa¿, przyjacielu,
+Masz ludzkie serce! ...
+Stolnik rzek³: <<Panie Soplica,
+W³aœnie przyjecha³ do mnie swat Kasztelanica;
+Ty jesteœ mój przyjaciel, có¿ ty mówisz na to?
+Wiesz Wasze, ¿e mam córkê piêkn¹ i bogat¹,
+A kasztelan witebski! wszak¿e to w senacie
+Niskie, dr¹¿kowe krzes³o. Có¿ mi radzisz, bracie?>>
+Nie pamiêtam ju¿ zgo³a, co mu na to rzek³em,
+Podobno nic - na konia wsiad³em i uciek³em!”
+*
+„Jacku! - zawo³a³ Klucznik. - M¹dre ty przyczyny
+Wynajdujesz; có¿? one nie zmniejsz¹ twej winy!
+Bo wszak¿e zdarza³o siê ju¿ nieraz na œwiecie,
+¯e kto pokocha³ pañskie lub królewskie dzieciê,
+Stara³ siê gwa³tem zdobyæ, przemyœla³ wykradaæ,
+Mœci³ siê otwarcie - ale tak chytrze œmieræ zadaæ!
+Panu polskiemu! w Polszcze, i w zmowie z Moskalem!”
+„Nie by³em w zmowie! -
+Jacek odpowiedzia³ z ¿alem. -
+Gwa³tem porwaæ? wszak móg³bym, zza krat i zza klamek
+Wydar³bym j¹, rozbi³bym w puch ten jego zamek!
+315
+Mia³em za sob¹ Dobrzyn i cztery zaœcianki.
+Ach, gdyby ona by³a jak nasze szlachcianki,
+Silna i zdrowa! gdyby ucieczki, pogoni
+Nie zlêk³a siê i mog³a s³uchaæ szczêku broni!
+Lecz ona biedna! tak j¹ rodzice pieœcili,
+S³aba, lêkliwa! by³ to robaczek motyli,
+Wiosenna g¹sieniczka! I tak j¹ zagrabiæ,
+Dotkn¹æ j¹ zbrojn¹ rêk¹ - by³oby j¹ zabiæ.
+Nie mog³em! Nie.
+Mœciæ siê otwarcie, szturmem zamek zwaliæ w gruzy,
+Wstyd, boby powiedziano, ¿em mœci³ siê rekuzy!
+Kluczniku, twoje serce poczciwe nie umie
+Uczuæ, ile jest piek³a w obra¿onej dumie.
+Szatan dumy zacz¹³ mi lepsze plany raiæ:
+Zemœciæ siê krwawo, ale powód zemsty taiæ,
+Nie bywaæ w zamku, mi³oœæ z serca wykorzeniæ,
+Puœciæ w niepamiêæ Ewê, z inn¹ siê o¿eniæ,
+A potem, potem jak¹ wynaleŸæ zaczepkê,
+Pomœciæ siê.
+I zda³o mi siê zrazu, ¿em ju¿ serce zmieni³,
+I rad by³em z wymys³u, i - jam siê o¿eni³
+Z pierwsz¹, któr¹m napotka³ dziewczyn¹ ubog¹!
+•lem zrobi³ - jak¿e by³em ukarany srogo!
+Nie kocha³em jej. Biedna matka Tadeusza,
+Najprzywi¹zañsza do mnie, najpoczciwsza dusza -
+Ale ja dawn¹ mi³oœæ i z³oœæ w sercu dusi³,
+316
+By³em jakby szalony, darmom siebie musi³
+Zaj¹æ siê gospodarstwem albo interesem;
+Wszystko na pró¿no! Zemsty opêtany biesem,
+Z³y, opryskliwy, znaleŸæ nie mog³em pociechy
+W niczem na œwiecie -
+i tak z grzechów w nowe grzechy...
+Zacz¹³em piæ.
+I tak nied³ugo ¿ona ma z ¿alu umar³a
+Zostawiwszy to dzieciê, a mnie rozpacz ¿ar³a!
+*
+Jak¿e mocno musia³em kochaæ tê niebogê,
+Tyle lat! gdziem ja nie by³! a dot¹d nie mogê
+Jej zapomnieæ i zaw¿dy jej postaæ kochana
+Stoi mi przed oczyma jakby malowana!
+Pi³em, nie mog³em zapiæ pamiêci na chwilê
+Ani pozbyæ siê, chocia¿ przebieg³em ziem tyle!
+Teraz oto w habicie jestem Bo¿ym s³ug¹,
+Na ³o¿u, we krwi... O niej mówi³em tak d³ugo! -
+W tej chwili, o tych rzeczach mówiæ? Bóg wybaczy!
+Musicie wiedzieæ, w jakim ¿alu i rozpaczy
+Pope³ni³em...
+By³o to w³aœnie wkrótce po jej zarêczynach;
+Wszêdzie gadano tylko o jej zarêczynach:
+317
+Powiadano, ¿e Ewa, gdy bra³a obr¹czkê
+Z r¹k Wojewody, mdla³a, ¿e wpad³a w gor¹czkê,
+¯e ma pocz¹tki suchot, ¿e ustawnie szlocha;
+Zgadywano, ¿e kogoœ potajemnie kocha...
+Ale Stolnik, jak zawsze, spokojny, weso³y,
+Dawa³ na zamku bale, zbiera³ przyjacio³y,
+Mnie ju¿ nie prosi³ - na có¿ by³em mu potrzebny?
+Mój bez³ad w domu, bieda, mój na³óg haniebny
+Poda³y mnie na wzgardê i na œmiech przed œwiatem!
+Mnie, com niegdyœ, rzec mogê, trz¹s³ ca³ym powiatem!
+Mnie, którego Radziwi³³ nazywa³: kochanku!
+Mnie, com kiedy wyje¿d¿a³ z mojego zaœcianku,
+To liczniejszy dwór mia³em ni¿eli ksi¹¿êcy!
+Kiedym szablê dostawa³, to kilka tysiêcy
+Szabel b³yszcza³o wko³o, strasz¹c zamki pañskie!
+A potem ze mnie dzieci œmia³y siê w³oœciañskie!
+Tak zrobi³em siê nagle w oczach ludzkich lichy!
+Jacek Soplica! - Kto zna, co jest czucie pychy...”
+Tu Bernardyn os³abia³ i upad³ na ³o¿e,
+A Klucznik rzek³ wzruszony: „Wielkie s¹dy Bo¿e!
+Prawda! prawda! wiêc to ty? i ty¿eœ to, Jacku
+Soplico? pod kapturem? ¿y³eœ po ¿ebracku!
+Ty, którego pamiêtam, gdy zdrowy, rumiany,
+Piêkny szlachcic, gdy tobie pochlebia³y pany,
+Gdy za tob¹ kobiety szala³y! W¹salu!
+Nie tak to dawno. takeœ zestarza³ siê z ¿alu!
+Jak¿em ciebie nie pozna³ po owym wystrzale,
+Kiedyœ tak do niedŸwiedzia trafi³ doskonale?
+318
+Bo nad ciebie nie mia³a strzelca Litwa nasza,
+By³eœ tak¿e po Maæku pierwszy do pa³asza!
+Prawda! o tobie niegdyœ œpiewa³y szlachcianki:
+<<Oto Jacek w¹s krêci, trzês¹ siê zaœcianki,
+A komu na swym w¹sie wêze³ek zawi¹¿e,
+Ten zadr¿y, choæby to by³ sam Radziwi³³ ksi¹¿ê>>.
+Zawi¹za³eœ ty wêze³ i mojemu panu!
+Nieszczêœniku! i ty¿eœ? do takiego stanu?
+Jacek W¹sal kwestarzem! wielkie s¹dy bo¿e!
+I teraz! ha! bezkarnie ujœæ tobie nie mo¿e,
+Przysi¹g³em: kto Horeszków krwi kroplê wys¹czy³...”
+Tymczasem Ksi¹dz na ³o¿u usiad³ i tak koñczy³:
+„JeŸdzi³em ko³o zamku; ile biesów w g³owie
+I w sercu mia³em, kto ich imiona wypowie!
+Stolnik! zabija dzieciê w³asne, mnie ju¿ zabi³,
+Zniszczy³ - Jadê pod bramê, szatan miê tam wabi³.
+Patrz, jak on hula! co dzieñ w zamku pijatyka,
+Ile œwiec w oknach, jaka brzmi w salach muzyka!
+I ten zamek na ³ys¹ g³owê mu nie runie...
+Pomyœl o zemœcie, to wnet szatan broñ podsunie.
+Ledwiem pomyœli³, szatan nasy³a Moskali.
+Sta³em patrz¹c; wiesz, jak wasz zamek szturmowali.
+*
+Bo fa³sz, ¿ebym by³ w jakiej z Moskalami zmowie.
+319
+*
+„Patrzy³em; ró¿ne myœli snu³y siê po g³owie,
+Zrazu z uœmiechem g³upim, jak na po¿ar dziecko,
+Patrzy³em, potem radoœæ uczu³em zbojeck¹,
+Czekaj¹c, rych³o zacznie paliæ siê i waliæ;
+Czasem myœl przychodzi³a: skoczyæ, j¹ ocaliæ,
+Nawet Stolnika...
+*
+Broniliœcie siê, ty wiesz, dzielnie i przytomnie.
+Zdziwi³em siê; Moskale padali wko³o mnie,
+Bydlêta, Ÿle strzelaj¹! - Na widok ich klêski
+Z³oœæ miê znowu porwa³a. - Ten Stolnik zwyciêski!
+I tak-¿e mu na œwiecie wszystko siê powodzi?
+I z tej strasznej napaœci z tryumfem wychodzi?
+Odje¿d¿a³em ze wstydem - w³aœnie by³ poranek,
+Wtem ujrza³em, pozna³em: wyst¹pi³ na ganek
+I brylantow¹ szpink¹ ku s³oñcu migota³,
+I w¹s pokrêca³ dumnie i wzrok dumny miota³,
+I zda³o mi siê, ¿e mnie szczególniej ur¹ga³,
+¯e mnie pozna³ i ku mnie rêkê t a k wyci¹ga³,
+Szydz¹c i gro¿¹c. - Chwytam karabin Moskala;
+Ledwiem przy³o¿y³, prawie nie mierzy³ - wypala!
+Wiesz!...
+*
+320
+Przeklêta broñ ognista! Kto mieczem zabija,
+Musi sk³adaæ siê, natrzeæ, odbija, wywija,
+Mo¿e rozbroiæ wroga, miecz w pó³ drogi wstrzymaæ;
+Ale ta broñ ognista, dosyæ zamek imaæ,
+Chwila, jedna iskierka...
+*
+Czy¿ ucieka³em, kiedyœ mierzy³ do mnie z góry?
+Utkwi³em oczy we dwie twojej broni rury,
+Rozpacz jakaœ! ¿al dziwny do ziemi mnie przybi³!
+Czemu¿, ach, mój Gerwazy, czemuœ wtenczas chybi³?
+£askê byœ zrobi³! Widaæ, za pokutê grzechu
+Trzeba by³o...”
+Tu znowu brak³o mu oddechu.
+„Bóg widzi - rzecze Klucznik -
+szczerze trafiæ chcia³em!
+Ile¿ ty krwi wyla³eœ twoim jednym strza³em,
+Ile¿ klêsk spad³o na nas i na tw¹ rodzinê,
+A wszystko to przez Wasz¹, Panie Jacku, winê!
+A wszak¿e gdy dziœ jegry Hrabiê na cel wziêli,
+Ostatniego z Horeszków, chocia¿ po k¹dzieli,
+Tyœ go zas³oni³, i gdy Moskal do mnie pali³,
+Tyœ miê rzuci³ o ziemiê, tak nas dwóch ocali³.
+Jeœli prawda, ¿e jesteœ ksiêdzem zakonnikiem,
+Ju¿ci sukienka broni ciê przed Scyzorykiem.
+B¹dŸ zdrów, wiêcej na Waszym nie postanê progu,
+321
+Z nami kwita - zostawmy resztê Panu Bogu”.
+Jacek rêkê wyci¹gn¹³ - cofn¹³ siê Gerwazy:
+„Nie mogê - rzek³ - bez mego szlachectwa obrazy
+Dotykaæ rêkê, takiem morderstwem skrwawion¹
+Z prywatnej zemsty, nie zaœ pro publico bono”.
+Ale Jacek, z poduszek na ³o¿e upad³szy,
+Zwróci³ siê ku Sêdziemu, a by³ coraz bladszy
+I niespokojnie pyta³ o ksiêdza plebana,
+I wo³a³ na Klucznika: „Zaklinam Waæpana,
+Abyœ zosta³; wnet skoñczê, ledwie mam doœæ mocy
+Zakoñczyæ... Panie Klucznik!... ja umrê tej nocy!”
+„Co, bracie? - krzykn¹³ Sêdzia - widzia³em, wszak rana
+Niewielka, co ty mówisz? po ksiêdza plebana?
+Mo¿e Ÿle opatrzono - zaraz po doktora,
+W apteczce jest...”
+Ksi¹dz przerwa³: „Bracie, ju¿ nie pora.
+Mia³em tam strza³ dawniejszy, dosta³em pod Jena,
+•le zgojony, a teraz draœniono - gangrena
+Ju¿ tu - znam siê na ranach, patrz, jaka krew czarna
+Jak sadza; co tu doktor? Ale to rzecz marna;
+Raz umieramy, jutro czy dziœ oddaæ duszê... -
+Panie Klucznik, przebaczysz mnie, ja skoñczyæ muszê!
+*
+322
+Jest w tem zas³uga: nie chcieæ zostaæ winowajc¹
+Narodowym, choæ naród okrzyczy ciê zdrajc¹!
+Zw³aszcza w kim taka, jaka by³a we mnie duma!
+*
+Imiê zdrajcy przylgnê³o do mnie jako d¿uma.
+Odwracali ode mnie twarz obywatele,
+Uciekali ode mnie dawni przyjaciele;
+Kto by³ lêkliwy, z dala wita³ siê i stroni³;
+Nawet lada ch³op, lada ¯yd, choæ siê pok³oni³,
+To miê z boku szyderskim przebija³ uœmiechem;
+Wyraz <<zdrajca>> brzmia³ w uszach, odbija³ siê echem
+W domie, w polu; ten wyraz od rana do zmroku
+Wi³ siê przede mn¹, jako plama w chorym oku.
+Przecie¿ nie by³em zdrajc¹ kraju!...
+Moskwa mnie uwa¿a³a gwa³tem za stronnika,
+Dano Soplicom znaczn¹ czêœæ dóbr nieboszczyka,
+Targowiczanie potem chcieli mnie zaszczyciæ
+Urzêdem. Gdybym wtenczas chcia³ siê przemoskwiciæ!
+Szatan radzi³ - ju¿ by³em mo¿ny i bogaty;
+Gdybym zosta³ Moskalem? Najpierwsze magnaty
+Szuka³yby mych wzglêdów; nawet szlachta braty,
+Nawet gmin, który swoim tak ³acnie uw³acza,
+Tym, którzy Moskwie s³u¿¹, szczêœliwszym - przebacza!
+Wiedzia³em to, a przecie¿ - nie mog³em.
+*
+323
+Uciek³em z kraju!
+Gdziem nie by³! com nie cierpia³!
+A¿ Bóg raczy³ lekarstwo jedyne objawiæ.
+Poprawiæ siê potrzeba by³o i naprawiæ,
+Ile mo¿noœci to...
+*
+„Córka Stolnika, ze swym mê¿em Wojewod¹
+Gdzieœ w Sybir wywieziona, tam umar³a m³odo;
+Zostawi³a tê w kraju córkê, ma³¹ Zosiê,
+Kaza³em j¹ hodowaæ.
+*
+„Bardziej niŸli z mi³oœci, mo¿e z g³upiej pychy
+Zabi³em; wiêc pokora... wszed³em miêdzy mnichy,
+Ja, niegdyœ dumny z rodu, ja, com by³ junakiem,
+Spuœci³em g³owê, kwestarz, zwa³em siê Robakiem,
+¯e jako robak w prochu...
+„Z³y przyk³ad dla Ojczyzny, zachêtê do zdrady,
+Trzeba by³o okupiæ dobremi przyk³ady,
+Krwi¹, poœwiêceniem siê...
+Bi³em siê za kraj; gdzie? jak? zmilczê; nie dla chwa³y
+Ziemskiej bieg³em tylekroæ na miecze, na strza³y.
+324
+Milej sobie wspominam nie dzie³a waleczne
+I g³oœne, ale czyny ciche, u¿yteczne,
+I cierpienia, których nikt...
+Uda³o mi siê nieraz do kraju przedzieraæ,
+Rozkazy wodzów nosiæ, wiadomoœci Ÿbieraæ,
+Uk³adaæ zmowy... Znaj¹ i Galicyjanie
+Ten kaptur mnisi - znaj¹ i Wielkopolanie!
+Pracowa³em przy taczkach rok w pruskiej fortecy,
+Trzy razy Moskwa kijmi zrani³a me plecy,
+Raz ju¿ wiedli na Sybir; potem Austryjacy
+W Szpilbergu zakopali mnie w lochach do pracy,
+W carcer durum - a Pan Bóg wybawi³ miê cudem
+I pozwoli³ umieraæ miêdzy swoim ludem,
+Z Sakramentami.
+Mo¿e i teraz, kto wie? mo¿em znowu zgrzeszy³!
+Mo¿em nad rozkaz wodzów powstanie przyœpieszy³!
+Ta myœl, ¿e dóm Sopliców pierwszy siê uzbroi,
+¯e pierwsz¹ Pogoñ w Litwie zatkn¹ krewni moi!...
+Ta myœl... zdaje siê czysta...
+Chcia³eœ zemsty? masz! boœ ty by³ narzêdziem kary
+Bo¿ej! twoim Bóg mieczem rozci¹³ me zamiary.
+Tyœ w¹tek spisku, tyle lat snowany, spl¹ta³!
+Cel wielki, który ca³e ¿ycie me zaprz¹ta³,
+Ostatnie moje ziemskie uczucie na œwiecie,
+Którem tuli³, hodowa³, jak najmilsze dzieciê,
+Tyœ zabi³ w oczach ojca, a jam ci przebaczy³!
+Ty!...”
+325
+„Oby tylko równie Bóg przebaczyæ raczy³! -
+Przerwa³ Klucznik. - Je¿eli masz przyj¹æ wijatyk,
+Ksiê¿e Jacku, toæ ja nie luter, nie syzmatyk!
+Kto umieraj¹cego smuci, wiem, ¿e grzeszy.
+Powiem tobie coœ, pewnie to ciebie pocieszy:
+Kiedy nieboszczyk pan mój upada³ zraniony,
+A ja, klêcz¹c nad jego piersi¹ pochylony
+I miecz maczaj¹c w ranê, zemstê zaprzysi¹gn¹³,
+Pan g³owê wstrz¹sn¹³, rêkê ku bramie wyci¹gn¹³
+W stronê, gdzie sta³eœ, i krzy¿ w powietrzu naznaczy³;
+Mówiæ nie móg³, lecz da³ znak, ¿e zbójcy przebaczy³.
+Ja te¿ poj¹³em, ale tak siê z gniewu wœciek³em,
+¯e o tym krzy¿u nigdy i s³owa nie rzek³em”.
+Tu rozmowê przerwa³y chorego cierpienia
+I nast¹pi³a d³uga godzina milczenia.
+Oczekuj¹ plebana.
+Podkowy zagrzmia³y,
+Zastuka³ do komnaty arendarz zdysza³y:
+List ma wa¿ny, samemu Jackowi poka¿e.
+Jacek bratu oddaje, g³oœno czytaæ ka¿e.
+List od Fiszera, który by³ natenczas szefem
+Sztabu armiji polskiej pod ksiêciem Józefem.
+Donosi, ¿e w cesarskim tajnym gabinecie
+Stanê³a wojna; Cesarz ju¿ po ca³ym œwiecie
+Og³asza j¹; sejm walny w Warszawie zwo³any,
+I skonfederowane Mazowieckie Stany
+Wyrzek¹ uroczyœcie przy³¹czenie Litwy.
+326
+Jacek, s³uchaj¹c, cicho odmówi³ modlitwy,
+Przycisn¹wszy do piersi œwiêcon¹ gromnicê,
+Podnios³ w niebo zatlone nadziej¹ Ÿrenice
+I zala³ siê ostatnich ³ez rozkosznych zdrojem:
+„Teraz - rzek³ - Panie, s³ugê Twego puœæ z pokojem!”
+Wszyscy uklêkli; a wtem ozwa³ siê pod progiem
+Dzwonek: znak, ¿e przyjecha³ pleban z Panem Bogiem.
+W³aœnie ju¿ noc schodzi³a i przez niebo mleczne,
+Ró¿owe, bieg¹ pierwsze promyki s³oneczne;
+Wpad³y przez szyby jako strza³y brylantowe,
+Odbi³y siê na ³o¿u o chorego g³owê
+I ubra³y mu z³otem oblicze i skronie,
+¯e b³yszcza³ jako œwiêty w ognistej koronie.
+327
+KSIÊGA JEDENASTA
+ROK 1812
+Treœæ:
+Wró¿by wiosenne - Wkroczenie wojsk - Nabo¿eñstwo - Rehabilitacja
+urzêdowa œp. Jacka Soplicy - Z rozmów Gerwazego i Protazego wnosiæ
+mo¿na bliski koniec procesu - Umizgi u³ana z dziewczyn¹ - Rozstrzyga siê
+spór o Kusego i Soko³a - Zaczem goœcie zgromadzaj¹ siê na biesiadê -
+Przedstawienie wodzom par narzeczonych.
+328
+O roku ów! kto ciebie widzia³ w naszym kraju!
+Ciebie lud zowie dot¹d rokiem urodzaju,
+A ¿o³nierz rokiem wojny; dot¹d lubi¹ starzy
+O tobie bajaæ, dot¹d pieœñ o tobie marzy.
+Z dawna by³eœ niebieskim oznajmiony cudem
+I poprzedzony g³uch¹ wieœci¹ miêdzy ludem;
+Ogarnê³o Litwinów serca z wiosny s³oñcem
+Jakieœ dziwne przeczucie, jak przed œwiata koñcem,
+Jakieœ oczekiwanie têskne i radoœne.
+Kiedy pierwszy raz byd³o wygnano na wiosnê,
+Uwa¿ano, ¿e chocia¿ zg³odnia³e i chude,
+Nie bieg³o na ruñ, co ju¿ umai³a grudê,
+Lecz k³ad³o siê na rolê i schyliwszy g³owy,
+Rycza³o albo ¿u³o swój pokarm zimowy.
+I wieœniacy ci¹gn¹cy na jarzynê p³ugi
+Nie ciesz¹ siê, jak zwykle, z koñca zimy d³ugiéj,
+Nie œpiewaj¹ piosenek, pracuj¹ leniwo,
+Jakby nie pamiêtali na zasiew i ¿niwo.
+Co krok wstrzymuj¹ wo³y i podjezdki w bronie
+I pogl¹daj¹ z trwog¹ ku zachodniej stronie,
+Jakby z tej strony mia³ siê objawiæ cud jaki,
+I uwa¿aj¹ z trwog¹ wracaj¹ce ptaki.
+Bo ju¿ bocian przylecia³ do rodzinnej sosny
+I rozpi¹³ skrzyd³a bia³e, wczesny sztandar wiosny;
+A za nim, krzykliwemi nadci¹gn¹wszy pu³ki,
+Gromadzi³y siê ponad wodami jasku³ki
+I z ziemi zmarz³ej bra³y b³oto na swe domki.
+329
+W wieczór s³ychaæ w zaroœlach szept ci¹gn¹cej s³omki,
+I stada dzikich gêsi szumi¹ ponad lasem,
+I znu¿one na popas spadaj¹ z ha³asem,
+A w g³êbi ciemnej nieba wci¹¿ jêcz¹ ¿urawie.
+S³ysz¹c to nocni stró¿e pytaj¹ w obawie,
+Sk¹d w królestwie skrzydlatem tyle zamieszania,
+Jaka burza te ptaki tak wczeœnie wygania.
+A¿ oto nowe stada, jakby gilów, siewek
+I szpaków, stada jasnych kit i chor¹giewek
+Zajaœnia³y na wzgórkach, spadaj¹ na b³onie:
+Konnica! dziwne stroje, niewidziane bronie,
+Pó³k za pó³kiem, a œrodkiem, jak stopione œniegi,
+P³yn¹ drogami kute ¿elazem szeregi;
+Z lasów czerni¹ siê czapki, rzêd bagnetów b³yska,
+Roj¹ siê niezliczone piechoty mrowiska.
+Wszyscy na pó³noc! Rzek³byœ, ¿e wonczas z wyraju
+Za ptastwem i lud ruszy³ do naszego kraju,
+Pêdzony niepojêt¹, instynktow¹ moc¹.
+Konie, ludzie, armaty, or³y dniem i noc¹
+P³yn¹; na niebie gór¹ tu i ówdzie ³uny,
+Ziemia dr¿y, s³ychaæ, bij¹ stronami pioruny. -
+Wojna! wojna! Nie by³o w Litwie k¹ta ziemi,
+Gdzie by jej huk nie doszed³; pomiêdzy ciemnemi
+Puszczami ch³op, którego dziady i rodzice
+Pomarli nie wyjrzawszy za lasu granice,
+330
+Który innych na niebie nie rozumia³ krzyków
+Prócz wichrów, a na ziemi prócz bestyi ryków,
+Goœci innych nie widzia³ oprócz spó³leœników -
+Teraz widzi: na niebie dziwna ³una pa³a,
+W puszczy ³oskot, to kula od jakiegoœ dzia³a,
+Zb³¹dziwszy z pola bitwy, dróg w lesie szuka³a,
+Rw¹c pnie, siek¹c ga³êzie. ¯ubr, brodacz sêdziwy,
+Zadr¿a³ we mchu, naje¿y³ d³ugie w³osy grzywy,
+Wstaje na wpó³, na przednich nogach siê opiera
+I potrz¹saj¹c brod¹, zdziwiony spoziera
+Na b³yskaj¹ce nagle miêdzy ³omem zgliszcze:
+By³ to zb³¹kany granat, krêci siê, wre, œwiszcze,
+Pêk³ z hukiem jakby piorun; ¿ubr pierwszy raz w ¿yciu
+Zl¹k³ siê i uciek³ w g³êbszem schowaæ siê ukryciu.
+Bitwa! gdzie? w której stronie? - pytaj¹ m³odzieñce,
+Chwytaj¹ broñ; kobiety wznosz¹ w niebo rêce;
+Wszyscy, pewni zwyciêstwa, wo³aj¹ ze ³zami:
+„Bóg jest z Napoleonem, Napoleon z nami!”
+O wiosno! kto ciê widzia³ wtenczas w naszym kraju,
+Pamiêtna wiosno wojny, wiosno urodzaju!
+O wiosno! kto ciê widzia³, jak by³aœ kwitn¹ca
+Zbo¿ami i trawami, a ludŸmi b³yszcz¹ca,
+Obfita we zdarzenia, nadziej¹ brzemienna!
+Ja ciebie dot¹d widzê, piêkna maro senna!
+Urodzony w niewoli, okuty w powiciu,
+Ja tylko jedn¹ tak¹ wiosnê mia³em w ¿yciu.
+331
+Soplicowo le¿a³o tu¿ przy wielkiej drodze,
+Któr¹ od strony Niemna ci¹gnêli dwaj wodze:
+Nasz Ksi¹¿ê Józef i król westfalski Hieronim.
+Ju¿ zajêli czêœæ Litwy od Grodna po S³onim,
+Gdy król rozkaza³ wojsku daæ trzy dni wytchnienia.
+Ale polscy ¿o³nierze mimo utrudzenia
+Skar¿yli siê, ¿e król im marszu nie dozwala;
+Tak radzi by co prêdzej doœcign¹æ Moskala.
+W mieœcie pobliskim stan¹³ g³ówny sztab ksi¹¿êcy,
+A w Soplicowie oboz czterdziestu tysiêcy
+I ze sztabami swemi jenera³ D¹browski,
+Kniaziewicz, Ma³achowski, Giedrojæ i Grabowski.
+PóŸno by³o, gdy weszli; wiêc ka¿dy, gdzie mo¿e,
+Zabieraj¹ kwatery w zamczysku, we dworze;
+Skoro dano rozkazy, rozstawiono czaty,
+Ka¿dy strudzony poszed³ spaæ do swej komnaty.
+Z noc¹ wszystko ucich³o: oboz, dwór i pole;
+Widaæ tylko, jak cienie, b³¹dz¹ce patrole
+I gdzieniegdzie b³yskania ognisk obozowych,
+S³ychaæ kolejne has³a stanowisk wojskowych.
+Spali: gospodarz domu, wodze i ¿o³nierze;
+Oczu tylko Wojskiego sen s³odki nie bierze ;
+Bo Wojski ma na jutro biesiadê wyprawiæ,
+Któr¹ chce dom Sopliców na wiek wieków ws³awiæ:
+Biesiadê godn¹ mi³ych sercom polskim goœci
+I odpowiedni¹ wielkiej dnia uroczystoœci,
+332
+Co jest œwiêtem koœcielnem i œwiêtem rodziny;
+Jutro odbyæ siê maj¹ trzech par zarêczyny,
+Zaœ jenera³ D¹browski oœwiadczy³ z wieczora,
+¯e chce mieæ obiad polski.
+Choæ spóŸniona pora,
+Wojski zebra³ co prêdzej z s¹siedztwa kucharzy;
+Piêciu ich by³o; s³u¿¹, on sam gospodarzy.
+Jako kuchmistrz bia³ym siê fartuchem opasa³,
+Wdzia³ szlafmycê, a rêce do ³okciów zakasa³;
+W rêku ma plackê musz¹, owad lada jaki
+Odpêdza wpadaj¹cy chciwie na przysmaki;
+Drug¹ rêk¹ przetarte okulary w³o¿y³,
+Doby³ z zanadrza ksiêgê, odwin¹³, otworzy³.
+Ksiêga ta mia³a tytu³: Kucharz doskona³y.
+W niej spisane dok³adnie wszystkie specyja³y
+Sto³ów polskich; pod³ug niej Hrabia na Têczynie
+Dawa³ owe biesiady we w³oskiej krainie,
+Którym siê Ojciec Œwiêty Urban Ósmy dziwi³;
+Pod³ug niej póŸniej Karol Kochanku-Radziwi³³,
+Gdy przyjmowa³ w Nieœwi¿u króla Stanis³awa,
+Sprawi³ pamiêtn¹ ow¹ ucztê, której s³awa
+Dot¹d ¿yje na Litwie we gminnej powieœci.
+Co Wojski wyczytawszy pojmie i obwieœci,
+To natychmiast kucharze robi¹ umiejêtni.
+Wre robota, piêædziesi¹t no¿ów w sto³y têtni,
+Zwijaj¹ siê kuchciki czarne jak szatany:
+333
+Ci nios¹ drwa, ci z mlekiem i z winem sagany,
+Lej¹ w kot³y, skowrody, w r¹dle, dym wybucha;
+Dwóch kuchcików przy piecu siedzi, w mieszki dmucha.
+Wojski, a¿eby ogieñ tem ³acniej rozpalaæ,
+Rozkaza³ stopionego mas³a na drwa nalaæ
+(Zbytek ten dozwolony jest w dostatnim domu).
+Kuchciki sypi¹ w ogieñ suche pêki ³omu.
+Inni na ro¿ny sadz¹ ogromne pieczenie
+Wo³owe, sarnie, c¹bry dzicze i jelenie;
+Ci skubi¹ stosy ptastwa; lec¹ puchów chmury,
+Obna¿aj¹ siê g³uszce, cietrzewie i kury.
+Lecz kur niewiele by³o; od owej wyprawy,
+Któr¹ w czasie zajazdu Dobrzyñski Sak krwawy
+Zrobi³ na kurnik, kêdy Zosi gospodarstwo
+Zniszczy³, nie zostawiwszy sztuki na lekarstwo -
+Jeszcze nie mog³o ptastwem zakwitn¹æ na nowo
+S³awne niegdyœ ze drobiu swego Soplicowo.
+Zreszt¹ zaœ miês wszelkich by³ wielki dostatek,
+Co siê zgromadziæ da³o i z domu, i z jatek,
+I z lasów, i z s¹siedztwa, z bliska i z daleka:
+Rzek³byœ, ptasiego tylko niedostaje mleka.
+Dwie rzeczy, których hojny pan uczty szuka,
+£¹cz¹ siê w Soplicowie: dostatek i sztuka.
+Ju¿ wschodzi³ uroczysty
+dzieñ N a j œ w i ê t s z e j P a n n y
+K w i e t n e j. Pogoda by³a przeœliczna, czas ranny,
+Niebo czyste, woko³o ziemi obci¹gniête,
+Jako morze wisz¹ce, ciche, wklês³o-wgiête;
+334
+Kilka gwiazd œwieci z g³êbi, jako per³y ze dna
+Przez fale; z boku chmurka bia³a, sama jedna,
+Podlatuje i skrzyd³a w b³êkicie zanurza,
+Podobne do nikn¹cych piór Anio³a Stró¿a,
+Który nocn¹ modlitw¹ ludzi przytrzymany
+SpóŸni³ siê, œpieszy wracaæ miêdzy spó³niebiany.
+Ju¿ ostatnie per³y gwiazd zamierzch³y i na dnie
+Niebios zgas³y, i niebo œrodkiem czo³a bladnie,
+Praw¹ skroni¹ z³o¿one na wezg³owiu cieni,
+Jeszcze smag³awe, lew¹ coraz siê rumieni;
+A dalej okr¹g, jakby powieka szeroka,
+Rozsuwa siê i w œrodku widaæ bia³ek oka,
+Widaæ têczê, Ÿrenicê - ju¿ promieñ wytrysn¹³,
+Po okr¹g³ych niebiosach wygiêty przeb³ysn¹³
+I w bia³ej chmurce jako z³oty grot zawisn¹³.
+Na ten strza³, na dnia has³o, pêk ogniów wylata,
+Tysi¹c rac krzy¿uje siê po okrêgu œwiata,
+A oko s³oñca wesz³o. Jeszcze nieco senne
+Przymru¿a siê, dr¿¹c wstrz¹sa swe rzêsy promienne,
+Siedmi¹ barw b³yszczy razem: szafirowe razem,
+Razem krwawi siê w rubin i ¿ó³knie topazem,
+A¿ rozlœni³o siê jako kryszta³ przezroczyste,
+Potem jak brylant œwiat³e, na koniec ogniste,
+Jak ksiê¿yc wielkie, jako gwiazda migaj¹ce:
+Tak po nieŸmiernem niebie sz³o samotne s³oñce.
+Dziœ pospólstwo litewskie z ca³ej okolicy
+Zebra³o siê przed wschodem woko³o kaplicy,
+335
+Jak gdyby na nowego og³oszenie cudu.
+Zbiór ten pochodzi³ w czêœci z pobo¿noœci ludu,
+A w czêœci z ciekawoœci: bo dziœ w Soplicowie
+Na nabo¿eñstwie maj¹ byæ jenera³owie,
+S³awni dowódcy owi naszych legijonów,
+Których lud zna³ imiona i czci³ jak patronów,
+Których wszystkie tu³actwa, wyprawy i bitwy
+By³y ewangelij¹ narodow¹ Litwy.
+Ju¿ przysz³o oficerów kilku, t³um ¿o³nierzy;
+Lud ich otacza, patrzy, ledwie oczom wierzy,
+Ogl¹daj¹c rodaków mundury nosz¹cych,
+Zbrojnych, wolnych i polskim jêzykiem mówi¹cych.
+Wysz³a msza. Nie obejmie œwi¹tynia maleñka
+Ca³ego zgromadzenia; lud na trawie klêka,
+Patrz¹c we drzwi kaplicy, odkrywaj¹ g³owy:
+W³os litewskiego ludu, bia³y albo p³owy,
+Poz³aca³ siê jako ³an dojrza³ego ¿yta;
+Gdzieniegdzie kraœna g³ówka dziewicza wykwita,
+Ubrana w œwie¿e kwiaty albo w pawie oczy
+I wstêgi rozplecione, ozdoby warkoczy,
+Œród g³ów mêskich, jak w zbo¿u b³awat i k¹kole.
+Klêcz¹cy ró¿nobarwny t³um okrywa pole,
+A na g³os dzwonka, niby na wiatru powianie,
+Chyl¹ siê wszystkie g³owy jak k³osy na ³anie.
+Wieœniaczki dziœ na o³tarz Matki Zbawiciela
+Nios¹ pierwszy dar wiosny, œwie¿e snopki ziela;
+336
+Wszystko wko³o ubrane w bukiety i w wianki:
+O³tarz, obraz, a nawet dzwonnica i ganki.
+Czasem poranny wietrzyk, gdy ze wschodu wionie,
+Zrywa wianki i rzuca na klêcz¹cych skronie,
+I rozlewa jak z mszalnej kadzielnicy wonie.
+A gdy w koœciele by³o po mszy i kazaniu,
+Wyszed³ przewodnicz¹cy ca³emu zebraniu
+Podkomorzy, niedawno przez powiatu stany
+Zgodnie konfederackim marsza³kiem obrany.
+Mia³ mundur województwa: ¿upan z³otem szyty,
+Kontusz gredyturowy z frêdzl¹ i pas lity,
+Przy którym karabela z g³owni¹ jaszczurow¹;
+Na szyi œwieci³ wielk¹ szpink¹ brylantow¹;
+Konfederatka bia³a, a na niej pêk gruby
+Drogich piórek; by³y to bia³ych czapel czuby
+(Na fest k³adnie siê tylko kitka tak bogata,
+Której ka¿de pióreczko kosztuje dukata).
+Tak ubrany, na wzgórek wst¹pi³ przed koœcio³em,
+Wieœniacy i ¿o³nierstwo œcisnê³o siê ko³em.
+On rzek³ :
+„Bracia! Og³osi³ wam ksi¹dz na ambonie
+Wolnoœæ, któr¹ Cesarz-Król przywróci³ Koronie,
+A teraz Litewskiemu Ksiêstwu, Polszcze ca³éj
+Przywraca; s³yszeliœcie rz¹dowe uchwa³y
+I zwo³uj¹ce walny sejm uniwersa³y.
+Ja tylko mam s³ów parê przemówiæ do gminy
+W rzeczy, która siê tycze Sopliców rodziny,
+Tutejszych panów.
+337
+Ca³a pomni okolica,
+Co tu zbroi³ nieboszczyk - pan Jacek Soplica;
+Ale kiedy o grzechach jego wszyscy wiecie,
+Czas i zas³ugi jego og³osiæ na œwiecie:
+Obecni tu s¹ naszych wojsk jenera³owie,
+Od których us³ysza³em wszystko, co wam mowiê.
+Ten Jacek nie by³ umar³ (jak g³oszono) w Rzymie,
+Tylko odmieni³ ¿ycie dawne, stan i imiê;
+A wszystkie przeciw Bogu i OjczyŸnie winy
+Zg³adzi³ przez ¿ywot œwiêty i przez wielkie czyny.
+On to pod Hohenlinden, gdy Ryszpans jenera³
+Na pó³ pobity ju¿ siê do odwrotu zbiera³,
+Nie wiedz¹c, ¿e Kniaziewicz ci¹gnie ku odsieczy,
+On to Jacek, zwan Robak, œród grotów i mieczy
+Przenios³ od Kniaziewicza listy Ryszpansowi,
+Donosz¹ce, ¿e nasi bior¹ ty³ wrogowi.
+On potem w Hiszpaniji, gdy nasze u³any
+Zdoby³y Samosiery grzbiet oszañcowany,
+Obok Kozietulskiego by³ ranny dwa razy!
+Nastêpnie, jak wys³aniec, z tajnemi rozkazy
+Biega³ po ró¿nych stronach ducha ludzi badaæ,
+Towarzystwa tajemne wi¹zaæ i zak³adaæ;
+Na koniec w Soplicowie, w swem ojczystym gnieŸdzie,
+Gdy gotowa³ powstanie, zgin¹³ na zajeŸdzie.
+W³aœnie o jego œmierci nadesz³a wiadomoœæ
+Do Warszawy w tê chwilê, gdy Cesarz Jegomoœæ
+Raczy³ mu daæ za dawne czyny bohaterskie
+Legiji Honorowej znaki kawalerskie.
+338
+Owo¿ te wszystkie rzeczy maj¹c na uwadze,
+Ja, reprezentuj¹cy województwa w³adzê,
+Moj¹ konfederack¹ og³aszam wam lask¹:
+¯e Jacek wiern¹ s³u¿b¹ i cesarsk¹ ³ask¹
+Zniós³ infamiji plamê, powraca do czeœci
+I znowu siê w rzêd prawych patryjotów mieœci;
+Wiêc kto bêdzie œmia³ Jacka zmar³ego rodzinie
+Wspomnieæ kiedy o dawnej, zag³adzonej winie,
+Ten podpadnie za karê takiego wyrzutu
+Gravis notae maculae, wedle s³ów Statutu
+Karz¹cych tak militem, jak i skartabela,
+Co by sia³ infamij¹ na obywatela;
+A ¿e teraz jest równoœæ, wiêc artyku³ trzeci
+Obowi¹zuje równie i mieszczan, i kmieci.
+Ten wyrok marsza³kowski pan pisarz umieœci
+W aktach jeneralnoœci, a woŸny obwieœci.
+Co siê tycze Legiji Honorowej krzy¿a,
+¯e póŸno przyszed³, nic to s³awie nie ubli¿a;
+Jeœli Jackowi nie móg³ s³u¿yæ ku ozdobie,
+Niech s³u¿y ku pami¹tce, wieszam go na grobie.
+Trzy dni tu bêdzie wisia³, potem do kaplicy
+Z³o¿y siê jako wotum dla Boga Rodzicy”.
+To powiedziawszy, order wydoby³ z pokrowca
+I zawiesi³ na skromnym krzy¿yku grobowca
+Uwi¹zan¹ w kokardê wst¹¿eczkê czerwon¹
+I krzy¿ bia³y gwiaŸdzisty ze z³ot¹ koron¹;
+Przeciw s³oñcu promienie gwiazdy zajaœnia³y
+339
+Jako ostatni odb³ysk ziemskiej Jacka chwa³y.
+Tymczasem lud na klêczkach Anio³ Pañski mowi,
+Upraszaj¹c o wieczny pokój grzesznikowi;
+Sêdzia obchodzi goœci i wiejsk¹ gromadê,
+Wszystkich do Soplicowa wzywa na biesiadê.
+Ale na przyŸbie domu usiedli dwaj starce,
+Maj¹c u kolan pe³ne miodu dwa pó³garce;
+Patrz¹ w sad, gdzie wœród p¹czków barwistego maku
+Sta³ u³an jak s³onecznik w b³yszcz¹cym ko³paku
+Strojnym blach¹ z³ocist¹ i piórem koguta;
+Przy nim dziewczê, w zielonej sukience jak ruta
+Pozioma, wznosi oczki b³êkitne jak bratki
+Ku oczom ch³opca; dalej panny rwa³y kwiatki
+Po ogrodzie, umyœlnie odwracaj¹c g³owy
+Od kochanków, ¿eby im nie miêszaæ rozmowy.
+Ale starce miód pij¹, tabakierk¹ z kory
+Czêstuj¹c siê nawzajem, tocz¹ rozhowory.
+„Tak, tak, mój Protazeñku” - rzek³ klucznik Gerwazy.
+„Tak, tak, mój Gerwazeñku” - rzek³ woŸny Protazy.
+„Tak to, tak!” - powtórzyli zgodnie kilka razy,
+Kiwaj¹c w takt g³owami; wreszcie WoŸny rzecze:
+„I¿ proces nasz skoñczy siê dziwnie, ja nie przeczê;
+Wszak¿e by³y przyk³ady; pamiêtam procesy,
+W których siê dzia³y gorsze ni¿ u nas ekscesy,
+A intercyza ca³y zakoñczy³a k³opot:
+Tak z Borzdobohatymi pogodzi³ siê £opot,
+340
+Krepsztulowie z Kupœciami, Putrament z Pikturn¹,
+Z Odyñcami Mackiewicz, z Kwileckimi Turno.
+Co mówiê! wszak Polacy miewali zamieszki
+Z Litw¹ gorsze ni¿eli z Soplic¹ Horeszki,
+A gdy na rozum wziê³a królowa Jadwiga,
+To siê bez s¹dów owa skoñczy³a intryga.
+Dobrze, gdy strony maj¹ panny albo wdowy
+Na wydaniu: to zawsze kompromis gotowy.
+Najd³u¿szy proces zwykle bywa z duchowieñstwem
+Katolickiem albo te¿ z bliskiem pokrewieñstwem,
+Bo wtenczas sprawy skoñczyæ nie mo¿na ma³¿eñstwem.
+St¹d to Lachy z Rusami w sporach nieskoñczonych,
+Id¹c z Lecha i Rusa, dwu braci rodzonych;
+St¹d siê tyle procesów litewskich ci¹gnê³o
+D³ugo z ksiê¿mi Krzy¿aki, a¿ wygra³ Jagie³³o.
+St¹d na koniec pendebat d³ugo przed aktami
+S³awny ów proces Rymszów z dominikanami,
+A¿ wygra³ wreszcie syndyk klasztorny ksi¹dz Dymsza,
+Sk¹d jest przys³owie: Wiêkszy Pan Bóg ni¿ pan Rymsza;
+Ja zaœ do³o¿ê: lepszy miód od Scyzoryka”.
+To mówi¹c, pó³garcówk¹ przepi³ do Klucznika.
+„Prawda! prawda! - rzek³ na to Gerwazy wzruszony. -
+Dziwneæ to by³y losy tej naszej Korony
+I naszej Litwy! wszak to jak ma³¿onków dwoje!
+Bóg z³¹czy³, a czart dzieli, Bóg swoje, czart swoje!
+Ach, bracie Protazeñku! ¿e to oczy nasze
+Widz¹! ¿e znowu do nas ci Koronijasze
+341
+Zawitali! S³u¿y³em ja z nimi przed laty,
+Pamiêtam, dzielne by³y z nich konfederaty!
+Gdyby nieboszczyk pan mój Stolnik do¿y³ chwili!
+O Jacku! Jacku! - lecz có¿ bêdziemy kwilili?
+Skoro dziœ znowu Litwa ³¹czy siê z Koron¹,
+Toæ tem samym ju¿ wszystko zgodzono, zg³adzono”.
+„I to dziw - rzek³ Protazy - ¿e o tej to Zosi,
+O której rêkê teraz nasz Tadeusz prosi,
+By³o przed rokiem omen, jakoby znak z nieba!”
+„Pann¹ Zofij¹ - przerwa³ Klucznik - zwaæ j¹ trzeba,
+Bo ju¿ doros³a, nie jest dziewczyn¹ maluczk¹,
+Przy tym z krwi dygnitarskiej, jest Stolnika wnuczk¹”.
+„Owo¿ - koñczy³ Protazy - by³ to znak proroczy
+O jej losie, widzia³em znak na w³asne oczy.
+Przed rokiem tu siedzia³a w œwiêto czeladŸ nasza
+Pij¹c miód, aliæ patrzym: pêc, pada z poddasza
+Dwóch wroblów bij¹cych siê, oba samcy stare,
+Jeden, m³odszy cokolwiek, mia³ podgarle szare,
+Drugi czarne; dalej¿e t³uc siê po podwórzu,
+Przewracaæ kulki, ¿e a¿ zaryli siê w kurzu;
+My patrzym, a tymczasem szepc¹ sobie s³ugi,
+¯e ten czarny niech bêdzie Horeszko, a drugi
+Soplica; wiêc ilekroæ szary by³ na górze,
+Krzycz¹: <<Wiwat Soplica! pfe, Horeszki tchórze!>>
+A gdy spada³, wo³ali: <<Popraw siê, Soplica!
+Nie daj siê magnatowi, to wstyd na szlachcica!>>
+Tak œmiej¹c siê czekamy, kto kogo pokona;
+342
+Wtem Zosieñka, nad ptastwem litoœci¹ wzruszona,
+Podbieg³a i nakry³a r¹czk¹ te rycerze;
+Jeszcze siê w rêku bili, a¿ lecia³o pierze,
+Taka by³a zawziêtoœæ w tem maleñkiem lichu.
+Baby, patrz¹c na Zosiê, gada³y po cichu,
+¯e pewnie przeznaczeniem bêdzie tej dziewczyny
+Pogodziæ dwie od dawna zwaœnione rodziny.
+A widzê, ¿e siê dzisiaj ziœci³ omen babi.
+Prawdaæ to, ¿e naonczas myœlano o Hrabi,
+Nie zaœ o Tadeuszu”.
+Na to Klucznik rzecze:
+„Dziwne s¹ sprawy w œwiecie; kto wszystko dociecze!
+Ja te¿ powiem Waszeci rzecz, choæ nie tak cudn¹
+Jak ów omen, a przecie¿ do pojêcia trudn¹.
+Wiesz, i¿ dawniej rad bym by³ Sopliców rodzinê
+W ³y¿ce wody utopiæ; a tego ch³opczynê,
+Tadeusza, od dziecka nieŸmierniem polubi³.
+Uwa¿a³em, ¿e gdy siê z ch³opiêtami czubi³,
+Zawsze ich zbi³; wiêc ilekroæ do zamku biega³,
+Jam go zawsze do trudnych imprezów pod¿ega³.
+Wszystko mu siê uda³o; czy wydrzeæ go³êbie
+Na wie¿y, czy jemio³ê oberwaæ na dêbie,
+Czyli z najwy¿szej sosny z³upiæ wronie gniazdo,
+Wszystko umia³; myœli³em: pod szczêœliw¹ gwiazd¹
+Urodzi³ siê ten ch³opiec; szkoda, ¿e Soplica!
+Któ¿ by zgad³, ¿e w nim zamku powitam dziedzica,
+Mê¿a panny Zofiji, mej Wielmo¿nej Pani!”
+343
+Tu skoñczyli rozmowê, pij¹ zadumani,
+S³ychaæ tylko niekiedy te krótkie wyrazy:
+„Tak, tak, Panie Gerwazy”. - „Tak, Panie Protazy”.
+Przyzba tyka³a kuchni, której okna sta³y
+Otworem i dym jako z po¿aru bucha³y,
+A¿ z k³êbów dymu, niby bia³a go³êbica,
+Mignê³a œwiec¹ca siê kuchmistrza szlafmyca.
+Wojski przez okno kuchni, ponad starców g³owy
+Wytkn¹wszy g³owê, milczkiem s³ucha³ ich rozmowy
+I poda³ im nareszcie fili¿anki spodek
+Pe³en biszkoktów, mówi¹c: „Zak¹œcie wasz miodek.
+A ja wam te¿ opowiem histori¹ ciekaw¹
+Sporu, który mia³ bitw¹ zakoñczyæ siê krwaw¹,
+Gdy poluj¹cy w g³êbi nalibockich lasów
+Rejtan wyp³ata³ sztukê ksi¹¿êciu Denassów.
+Tej sztuki omal w³asnem nie przyp³aci³ zdrowiem;
+Jam k³ótniê panów zgodzi³, jak to wam opowiem”.
+Ale Wojskiego powieœæ przerwali kucharze
+Pytaj¹c, komu serwis ustawiaæ rozka¿e.
+Wojski odszed³, a starcy, zaczerpn¹wszy miodu,
+Zadumani zwrócili oczy w g³¹b ogrodu,
+Gdzie ów dorodny u³an rozmawia³ z panienk¹.
+W³aœnie u³an uj¹wszy jej d³oñ lew¹ rêk¹
+(Praw¹ mia³ na temlaku, widaæ, ¿e by³ ranny),
+Z takiemi odezwa³ siê s³owami do panny:
+344
+„Zofijo, musisz to mnie koniecznie powiedzieæ,
+Nim zamienim pierœcionki, muszê o tem wiedzieæ.
+I có¿, ¿e przesz³ej zimy by³aœ ju¿ gotowa
+Daæ s³owo mnie? Ja wtenczas nie przyj¹³em s³owa:
+Bo i có¿ mi po takiem wymuszonem s³owie?
+Wtenczas bawi³em bardzo krótko w Soplicowie;
+Nie by³em taki pró¿ny, a¿ebym siê ³udzi³,
+¯em jednem mem spójrzeniem mi³oœæ w tobie wzbudzi³.
+Ja nie fanfaron; chcia³em m¹ w³asn¹ zas³ug¹
+Zyskaæ twe wzglêdy, choæby przysz³o czekaæ d³ugo.
+Teraz jesteœ ³askawa twe s³owo powtórzyæ;
+Czym¿e na tyle ³aski umia³em zas³u¿yæ?
+Mo¿e mnie bierzesz, Zosiu, nie tak z przywi¹zania,
+Tylko ¿e stryj i ciotka do tego ciê sk³ania;
+Ale ma³¿eñstwo, Zosiu, jest rzecz wielkiej wagi;
+RadŸ siê serca w³asnego, niczyjej powagi
+Tu nie s³uchaj, ni stryja groŸb, ni namów cioci;
+Jeœli nie czujesz dla mnie nic oprócz dobroci,
+Mo¿em te zarêczyny czas jakiœ odwlekaæ;
+Wiêziæ twej woli nie chcê, bêdziem, Zosiu, czekaæ.
+Nic nas nie nagli, zw³aszcza ¿e wczora wieczorem
+Dano mi rozkaz zostaæ w Litwie instruktorem
+W pu³ku tutejszym, nim siê z mych ran nie wyleczê.
+I có¿, kochana Zosiu?”
+Na to Zosia rzecze,
+Wznosz¹c g³owê i patrz¹c w oczy mu nieœmia³o:
+„Nie pamiêtam ju¿ dobrze, co siê dawniej dzia³o;
+Wiem, ¿e wszyscy mówili, i¿ za m¹¿ iœæ trzeba
+345
+Za Pana; ja siê zawsze zgadzam z wol¹ Nieba
+I z wol¹ starszych”. Potem, spuœciwszy oczêta,
+Doda³a: „Przed odjazdem, jeœli Pan pamiêta,
+Kiedy umar³ ksi¹dz Robak, w ow¹ burzê nocn¹,
+Widzia³am, ¿e Pan jad¹c ¿a³owa³ nas mocno:
+Pan ³zy mia³ w oczach; te ³zy, powiem Panu szczerze,
+Wpad³y mnie a¿ do serca; odt¹d Panu wierzê,
+¯e mnie lubisz; ilekroæ mówi³am pacierze
+Za Pana powodzenie, zawsze przed oczami
+Sta³ Pan z temi du¿emi, b³yszcz¹cemi ³zami.
+Potem Podkomorzyna do Wilna jeŸdzi³a,
+Wziê³a miê tam na zimê, alem ja têskni³a
+Do Soplicowa i do tego pokoiku,
+Gdzie mnie Pan naprzód w wieczór spotka³ przy stoliku,
+Potem po¿egna³; nie wiem, sk¹d pami¹tka Pana,
+Coœ niby jak rozsada w jesieni zasiana,
+Przez ca³¹ zimê w mojem sercu siê krzewi³a,
+¯e jako mówiê Panu - ustawniem têskni³a
+Do tego pokoiku i cóœ mi szepta³o,
+¯e tam znów Pana znajdê, i tak siê te¿ sta³o.
+Maj¹c to w g³owie, czêsto te¿ mia³am na ustach
+Imiê Pana - by³o to w Wilnie za zapustach;
+Panny mówi³y, ¿e ja jestem zakochana:
+Ju¿ci, je¿eli kocham, to ju¿ chyba Pana”.
+Tadeusz, rad z takiego mi³oœci dowodu,
+Wzi¹³ j¹ pod rêkê, œcisn¹³ i wyszli z ogrodu
+Do pokoju damskiego, do owej komnaty,
+Kêdy Tadeusz mieszka³ przed dziesiêci¹ laty.
+346
+Teraz bawi³ tam Rejent, cudnie wystrojony
+I us³ugiwa³ damie, swojej narzeczonéj,
+Biegaj¹c i podaj¹c sygnety, ³añcuszki,
+S³oiki i flaszeczki, i proszki, i muszki;
+Weso³, na pannê m³od¹ patrzy³ tryumfalnie.
+Panna m³oda koñczy³a robiæ gotowalniê;
+Siedzia³a przed Ÿwierciad³em, radz¹c siê bóstw wdziêku;
+Pokojowe zaœ - jedne z ¿elazkami w rêku
+Odœwie¿aj¹ nadstyg³e warkoczów pierœcionki,
+Drugie klêcz¹c pracuj¹ oko³o falbonki.
+Gdy siê tak Rejent bawi ze sw¹ narzeczon¹,
+Kuchcik stukn¹³ doñ w okno: kota postrze¿ono!
+Kot, wykrad³szy siê z ³ozy, przeœmign¹³ po ³¹ce
+I wskoczy³ w sad pomiêdzy jarzyny wschodz¹ce;
+Tam siedzi, wystraszyæ go ³acno z rozsadniku
+I uszczuæ, postawiwszy charty na przesmyku.
+Bie¿y Asesor, ci¹gn¹c za obró¿ Soko³a,
+Poœpiesza za nim Rejent i Kusego wo³a.
+Wojski obu z chartami przy p³ocie ustawi³,
+A sam siê z plack¹ musz¹ do sadu wyprawi³.
+Depc¹c, œwiszcz¹c i klaszcz¹c, bardzo Ÿwierza trwo¿y:
+Szczwacze, trzymaj¹c ka¿dy charta na obro¿y,
+Ukazuj¹ palcami, sk¹d zaj¹c wyruszy,
+Cmokaj¹ z cicha; charty nadstawi³y uszy,
+Wytknê³y pyski na wiatr i dr¿¹ niecierpliwie,
+Jak dwie strza³y z³o¿one na jednej ciêciwie.
+Wtem Wojski krzykn¹³: „Wycz-ha!”
+Zaj¹c smyk zza p³otu
+347
+Na ³¹kê, charty za nim, i wnet bez obrotu
+Sokó³ i Kusy razem spadli na szaraka
+Ze dwóch stron w jednej chwili, jak dwa skrzyd³a ptaka.
+I zêby mu jak szpony zatopili w grzbiecie.
+Kot jêkn¹³ raz, jak nowo narodzone dzieciê.
+¯a³oœnie! Bieg¹ szczwacze: ju¿ le¿y bez ducha,
+A charty mu sieræ bia³¹ targaj¹ spod brzucha.
+Szczwacze pog³askali psy, a Wojski tymczasem
+Doby³ no¿yk strzelecki wisz¹cy za pasem,
+Oderzn¹³ skoki i rzek³: „Dziœ równ¹ odprawê
+Wezm¹ pieski, bo równ¹ pozyskali s³awê;
+Równa ich by³a r¹czoœæ, równa by³a praca;
+Godzien jest pa³ac Paca, godzien Pac pa³aca,
+Godni s¹ szczwacze chartów, godne szczwaczów charty;
+Oto¿ skoñczony spór wasz d³ugi i za¿arty;
+Ja, któregoœcie sêdzi¹ zak³adu obrali,
+Wydajê wreszcie wyrok: obaœcie wygrali.
+Wracam fanty, niech ka¿dy przy swoim zostanie,
+A wy podpiszcie zgodê”.
+Na starca wezwanie
+Szczwacze zwrócili na siê rozjaœnione lice
+I d³ugo rozdzielone z³¹czyli prawice.
+Wtem rzek³ Rejent:
+„Stawi³em niegdyœ konia z rzêdem,
+Opisa³em siê tak¿e przed ziemskim urzêdem,
+I¿ pierœcieñ mój sêdziemu w salaryjum z³o¿ê;
+Fant postawiony w zak³ad wracaæ siê nie mo¿e.
+348
+Pierœcieñ niechaj Pan Wojski na pami¹tkê przymie
+I ka¿e na nim wyryæ albo swoje imiê,
+Lub, gdy zechce, herbowne Hreczechów ozdoby;
+Krwawnik jest g³adki, z³oto jedenastej proby.
+Konia teraz u³ani pod jazdê zabrali,
+Rzêd zosta³ przy mnie; ka¿dy znawca ten rzêd chwali,
+I¿ jest wygodny, trwa³y, a piêkny jak cacko:
+Kulbaczka w¹ska, mod¹ z turecka kozack¹,
+Kula na przodzie, w kuli s¹ drogie kamienie,
+Poduszeczka z rubrontu wyœcie³a siedzenie,
+A kiedy na ³êk wskoczysz, na tym miêkkim puszku
+Miêdzy kulami siedzisz wygodnie jak w ³ó¿ku;
+A gdy w galop puœcisz siê (tu rejent Bolesta,
+Który, jako wiadomo, bardzo lubi³ gesta,
+Rozstawi³ nogi, jakby na konia wskakiwa³,
+Potem galop udaj¹c powoli siê kiwa³),
+A gdy w galop puœcisz siê, natenczas z czapraka
+Blask bije, jakby z³oto kapa³o z rumaka,
+Bo tabenki s¹ gêsto z³otem nakrapiane
+I szerokie strzemiona srebrne poz³acane;
+Na rzemieniach munsztuka i na uŸdzienicy
+Po³yskaj¹ guziki per³owej macicy,
+U napierœnika wisi ksiê¿yc w kszta³t Leliwy,
+To jest w kszta³t nowiu. Ca³y ten sprzêt osobliwy,
+Zdobyty (jak wieœæ niesie) w boju podhajeckim
+Na jakimœ bardzo znacznym szlachcicu tureckim,
+Przyjm, Asesorze, w dowód mojego szacunku”.
+349
+A na to rzek³ Asesor, weso³ z podarunku:
+„Ja niegdyœ darowane od ksiêcia Sanguszki
+Stawi³em w zak³ad moje przeœliczne obró¿ki,
+Jaszczurem wyk³adane, z kolcami ze z³ota,
+I utkan¹ z jedwabiu smycz, której robota
+Równie droga jak kamieñ, co siê na niej œwieci.
+Chcia³em sprzêt ten zostawiæ w dziedzictwie dla dzieci;
+Dzieci pewnie mieæ bêdê, wiesz, ¿e siê dziœ ¿eniê;
+Ale ten sprzêt, Rejencie, proszê uni¿enie,
+B¹dŸ ³askaw przyj¹æ w zamian za twój rzêd bogaty
+I na pami¹tkê sporu, co d³ugiemi laty
+Toczy³ siê i nareszcie zakoñczy³ zaszczytnie
+Dla nas obu. - Niech zgoda miêdzy nami kwitnie!”
+Wiêc wracali do domu oznajmiæ za sto³em,
+¯e siê skoñczy³ spór miêdzy Kusym i Soko³em.
+By³a wieœæ, ¿e zaj¹ca tego Wojski w domu
+Wyhodowa³ i w ogród puœci³ po kryjomu,
+A¿eby szczwaczów zgodziæ zbyt ³atw¹ zdobycz¹.
+Staruszek tak sw¹ sztukê zrobi³ tajemniczo,
+¯e oszuka³ zupe³nie ca³e Soplicowo.
+Kuchcik w lat kilka póŸniej szepn¹³ o tem s³owo,
+Chc¹c Asesora sk³óciæ z Rejentem na nowo;
+Ale pró¿no krzywdz¹ce chartów wieœci szerzy³:
+Wojski zaprzeczy³ i nikt kuchcie nie uwierzy³.
+Ju¿ goœcie, zgromadzeni w wielkiej zamku sali,
+Czekaj¹c uczty, wko³o sto³u rozmawiali,
+350
+Gdy pan Sêdzia w mundurze wojewódzkim wchodzi
+I pana Tadeusza z Zofij¹ przywodzi.
+Tadeusz, lew¹ d³oni¹ dotykaj¹c g³owy,
+Pozdrowi³ swych dowódców przez uk³on wojskowy.
+Zofija z opuszczonem ku ziemi wejrzeniem,
+Zap³oniwszy siê, goœci wita³a dygnieniem
+(Od Telimeny piêknie dygaæ wyuczona).
+Mia³a wianek na g³owie jako narzeczona,
+Zreszt¹ ubior ten samy, w jakim dziœ w kaplicy
+Sk³ada³a snop wiosenny dla Boga Rodzicy.
+U¿ê³a znów dla goœci nowy snopek ziela;
+Jedn¹ rêk¹ zeñ kwiaty i trawy rozdziela,
+Drug¹ swój sierp b³yszcz¹cy poprawia na g³owie.
+Brali zió³ka, ca³uj¹c jej rêce, wodzowie.
+Zosia znowu dyga³a w kolej, zap³oniona.
+Wtem jenera³ Kniaziewicz wzi¹³ j¹ za ramiona
+I z³o¿ywszy ojcowski ca³us na jej czole,
+Podnios³ w górê dziewczynê, postawi³ na stole,
+A wszyscy, klaszcz¹c w d³onie zawo³ali: „Brawo!” -
+Zachwyceni dziewczyny urod¹, postaw¹,
+A szczególniej jej strojem litewskim prostaczym;
+Bo dla tych wodzów, którzy w swem ¿yciu tu³aczém
+Tak d³ugo b³¹kali siê w obcych stronach œwiata,
+Dziwne mia³a powaby narodowa szata,
+Która im wspomina³a i m³ode ich lata,
+I dawne ich mi³ostki; wiêc ze ³zami prawie
+Skupili siê do sto³u, patrzyli ciekawie.
+Ci prosz¹, aby Zosia wznios³a nieco czo³o
+351
+I oczy pokaza³a; ci, a¿eby wko³o
+Raczy³a siê obróciæ; dziewczyna wstydliwa
+Obraca siê, lecz oczy rêkami zakrywa.
+Tadeusz patrzy³ weso³ i zaciera³ rêce.
+Czy ktoœ Zosi poradzi³ wyjœæ w takiej sukience,
+Czy instynktem wiedzia³a (bo dziewczyna zgadnie
+Zawsze instynktem, co jej do twarzy przypadnie),
+Dosyæ, ¿e Zosia pierwszy raz w ¿yciu dziœ z rana
+By³a od Telimeny za upor ³ajana,
+Nie chc¹c modnego stroju, a¿ wymog³a p³aczem,
+¯e j¹ tak zostawiono, w ubraniu prostaczem.
+Spodniczkê mia³a d³ug¹, bia³¹; sukniê krótk¹
+Z zielonego kamlotu, z ró¿ow¹ obwódk¹;
+Gorset tak¿e zielony, ró¿owemi wstêgi
+Od ³ona a¿ do szyi sznurowany w prêgi;
+Pod nim pierœ jako p¹czek pod listkiem siê tuli.
+Od ramion œwiec¹ bia³e rêkawy koszuli,
+Jako skrzyd³a motyle do lotu wydête,
+U d³oni skarbowane i wst¹¿k¹ opiête;
+Szyja tak¿e koszulk¹ obciœniona w¹sk¹,
+Ko³nierzyk zadzierzgniony ró¿ow¹ zawi¹zk¹;
+Zauszniczki wyrzniête sztucznie z pestek wiszni,
+Których siê wyrobieniem Sak Dobrzyñski pyszni
+(By³y tam dwa serduszka z grotem i p³omykiem,
+Dane dla Zosi, gdy Sak by³ jej zalotnikiem);
+Na ko³nierzyku wisz¹ dwa sznurki bursztynu,
+Na skroniach zielonego wianek rozmarynu.
+352
+Wst¹¿ki warkoczów Zosia rzuci³a na barki,
+A na czo³o w³o¿y³a zwyczajem ¿niwiarki
+Sierp krzywy, œwie¿em ¿êciem traw oszlifowany,
+Jasny jak nów miesiêczny nad czo³em Dyjany.
+Wszyscy chwal¹, klaskaj¹. Jeden z oficerów
+Doby³ z kieszeni portefeuille z plikami papierów,
+Roz³o¿y³ je, o³ówek przyci¹³, w ustach zmoczy³,
+Patrzy w Zosiê, rysuje. Ledwie Sêdzia zoczy³
+Papiery i o³ówki, pozna³ rysownika,
+Choæ go bardzo odmieni³ mundur pu³kownika,
+Bogate szlify, mina prawdziwie u³añska
+I w¹sik poczerniony, i bródka hiszpañska.
+Sêdzia pozna³: „Jak siê masz, mój Jaœnie Wielmo¿ny
+Hrabio? I w ³adownicy masz twój sprzêt podró¿ny
+Do malarstwa!” - W istocie by³ to Hrabia m³ody,
+Niedawny ¿o³nierz, lecz ¿e wielkie mia³ dochody
+I swoim kosztem ca³y pu³k jazdy wystawi³,
+I w pierwszej zaraz bitwie wybornie siê sprawi³,
+Cesarz go pó³kownikiem dziœ w³aœnie mianowa³:
+Wiêc Sêdzia wita³ Hrabiê i rangi winszowa³,
+Ale Hrabia nie s³ucha³, a pilnie rysowa³.
+Tymczasem wesz³a druga para narzeczona:
+Asesor, niegdyœ cara, dziœ Napoleona
+Wierny s³uga; ¿andarmów oddzia³ mia³ w komendzie,
+A choæ ledwie dwadzieœcia godzin by³ w urzêdzie,
+Ju¿ w³o¿y³ mundur siny z polskiemi wy³ogi
+I ci¹gn¹³ krzyw¹ szablê, i dzwoni³ w ostrogi.
+353
+Obok powa¿nym krokiem sz³a jego kochanka,
+Ubrana bardzo strojnie, Tekla Hreczeszanka;
+Bo Asesor ju¿ dawno Telimenê rzuci³
+I aby tê kokietkê tym mocniej zasmuci³,
+Ku Wojszczance afekty serdeczne obróci³.
+Panna nie nadto m³oda, ju¿ pono pó³wieczna,
+Lecz gospodyni dobra, osoba stateczna
+I posa¿na, bo oprócz swej dziedzicznej wioski
+Sumk¹ z daru Sêdziego powiêksza³a wnioski.
+Trzeciej pary daremnie czekaj¹ czas d³ugi.
+Sêdzia niecierpliwi siê i wysy³a s³ugi;
+Wracaj¹: powiadaj¹, ¿e trzeci ma³¿onek,
+Pan Rejent, szczuj¹c kota, zgubi³ swój pierœcionek
+Œlubny, szuka na ³¹ce; a Rejenta dama
+Jeszcze u gotowalni, choæ œpieszy siê sama
+I choæ jej pomagaj¹ s³u¿ebne kobiety,
+Nie mog³a w ¿aden sposób skoñczyæ toalety;
+Ledwie bêdzie gotowa na godzinê czwart¹.
+354
+KSIÊGA DWUNASTA
+KOCHAJMY SIÊ
+Treœæ:
+Ostatnia uczta staropolska - Arcyserwis - Objaœnienie jego figur - Jego
+ruchy - D¹browski udarowany - Jeszcze o Scyzoryku. - Kniaziewicz
+udarowany. - Pierwszy akt urzêdowy Tadeusza przy objêciu dziedzictwa -
+Uwagi Gerwazego - Koncert nad koncertami - Polonez - Kochajmy siê!
+355
+Na koniec z trzaskiem sali drzwi na wœci¹¿ otwarto.
+Wchodzi pan Wojski w czapce i z g³ow¹ zadart¹,
+Nie wita siê i miejsca za sto³em nie bierze,
+Bo Wojski wystêpuje w nowym charakterze,
+Marsza³ka dworu; laskê ma na znak urzêdu
+I t¹ lask¹ z kolei, jako mistrz obrzêdu,
+Wskazuje wszystkim miejsca i goœci usadza.
+Naprzód, jako najpierwsza województwa w³adza,
+Podkomorzy-Marsza³ek wzi¹³ miejsce zaszczytne:
+Ze s³oniowym porêczem krzes³o aksamitne;
+Obok na prawej stronie jenera³ D¹browski,
+Na lewej siad³ Kniaziewicz, Pac i Ma³achowski.
+Œród nich Podkomorzyna, dalej inne panie,
+Oficerowie, pany, szlachta i ziemianie,
+Mê¿czyŸni i kobiety, na przemian po parze
+Usiadaj¹ porz¹dkiem, gdzie Wojski uka¿e.
+Pan Sêdzia sk³oniwszy siê opuœci³ biesiadê;
+On na dziedziñcu w³oœcian traktowa³ gromadê;
+Zebrawszy ich za sto³em na dwa staje d³ugim,
+Sam siad³ na jednym koñcu, a pleban na drugim.
+Tadeusz i Zofija do sto³u nie siedli;
+Zajêci czêstowaniem w³oœcian, chodz¹c jedli.
+Staro¿ytny by³ zwyczaj, i¿ dziedzice nowi
+Na pierwszej uczcie sami s³u¿yli ludowi.
+Tymczasem goœcie, potraw czekaj¹cy w sali,
+Z zadziwieniem na wielki serwis pogl¹dali,
+Którego równie drogi kruszec jak robota.
+356
+Jest podanie, ¿e ksi¹¿ê Radziwi³³-Sierota
+Kaza³ ten sprzêt na urz¹d w Wenecyi zrobiæ
+I wedle w³asnych planów po polsku ozdobiæ.
+Serwis, potem zabrany czasu wojny szwedzkiéj,
+Przeszed³, nie wiedzieæ jak¹ drog¹, w dom szlachecki.
+Dziœ ze skarbca dobyty zaj¹³ œrodek sto³a
+Ogromnym krêgiem na kszta³t karetnego ko³a.
+Serwis ten by³ nalany ode dna po brzegi
+Piankami i cukrami bia³emi jak œniegi:
+Udawa³ przewybornie krajobraz zimowy;
+W œrodku czernia³ ogromny bór konfiturowy:
+Stronami domy, niby wioski i zaœcianki,
+Okryte zamiast œronu cukrowwemi pianki;
+Na krawêdziach naczynia, stoj¹ dla ozdoby
+Niewielkie, z porcelany wydête osoby
+W polskich strojach; jakoby aktory na scenie,
+Zdawa³y siê przedstawiaæ jakoweœ zdarzenie;
+Gest ich sztucznie wydany, farby osobliwe,
+Tylko g³osu im braknie, zreszt¹ gdyby ¿ywe.
+Có¿ przedstawiaj¹? - goœcie pytali ciekawi,
+Zaczem Wojski podnosi laskê i tak prawi
+(Tymczasem podawano wódkê przed jedzeniem):
+„Za mych Wielce Moœciwych Panów pozwoleniem:
+Te persony, których tu widzicie bez liku,
+Przedstawiaj¹ polskiego histori¹ sejmiku,
+Narady, wotowanie, tryumfy i waœnie;
+Sam tê scenê odgad³em i Pañstwu objaœniê.
+357
+„Oto na prawo widaæ liczne szlachty grono:
+Pewnie ich przed sejmikiem na ucztê sproszono.
+Czeka nakryty stolik; nikt goœci nie sadza,
+Stoj¹ kupkami, ka¿da kupka siê naradza.
+Patrzcie, i¿ w ka¿dej kupce stoi w œrodku cz³owiek,
+Z którego ust otwartych, z podniesionych powiek,
+R¹k niespokojnych, widaæ - mówca; cóœ t³omaczy,
+I palcem eksplikuje, i na d³oni znaczy.
+Ci mowcy zalecaj¹ swoich kandydatów
+Z ró¿nym skutkiem, jak widaæ z miny szlachty bratów.
+Wprawdzie tam w drugiej kupie szlachta pilnie s³ucha,
+Ten rêce za pas zatkn¹³ i przy³o¿y³ ucha,
+Ów d³oñ przy uchu trzyma i milczkiem w¹s krêci,
+Zapewne s³owa zbiera i ni¿e w pamiêci;
+Cieszy siê mowca, widz¹c, ¿e s¹ nawróceni,
+G³adzi kieszeñ, bo kreski ich ju¿ ma w kieszeni.
+Lecz za to w trzeciem gronie dzieje siê inaczéj;
+Tu mówca musi ³owiæ za pasy s³uchaczy.
+Patrzcie! wyrywaj¹ siê i cofaj¹ uszy;
+Patrzcie, jako ten s³uchacz od gniewu siê puszy,
+Wznios³ rêce, grozi mówcy, usta mu zatyka,
+Pewnie s³ysza³ pochwa³y swego przeciwnika;
+Ten drugi, pochyliwszy czo³o na kszta³t byka,
+Powiedzia³byœ, ¿e mówcê pochwyci na rogi;
+Ci bior¹ siê do szabel, tamci poszli w nogi.
+358
+Jeden miêdzy kupkami szlachcic cichy stoi,
+Widaæ, ¿e cz³ek bezstronny, waha siê i boi;
+Za kim daæ kreskê? nie wie i sam z sob¹ w walce,
+Pyta losu, wznios³ rêce, wytkn¹³ wielkie palce,
+Zmru¿y³ oczy, paznokciem do paznokcia mierzy,
+Widaæ, ¿e kreskê swojê kabale powierzy:
+Jeœli palce trafi¹ siê, da afirmatywê,
+A je¿eli siê chybi¹, rzuci negatywê.
+Na lewej druga scena: refektarz klasztoru,
+Obrócony na salê szlacheckiego zboru.
+Starsi rzêdem na ³awach siedz¹, m³odsi staj¹
+I ciekawi przez g³owy w œrodek zagl¹daj¹;
+W œrodku marsza³ek stoi, wazon w rêku trzyma,
+Liczy ga³ki, szlachta je po¿era oczyma.
+W³aœnie wytrz¹s³ ostatni¹; woŸni rêce wznosz¹
+I imiê obranego urzêdnika g³osz¹.
+Jeden szlachcic na zgodê powszechn¹ nie zwa¿a.
+Patrz, wytkn¹³ g³owê oknem z kuchni refektarza,
+Patrz, jak oczy wytrzeszczy³, jak pogl¹da œmia³o,
+Usta otworzy³, jakby chcia³ zjeœæ izbê ca³¹:
+£atwo zgadn¹æ, ¿e szlachcic ten zawo³a³: <<Veto!>>
+Patrzcie, jak za t¹ nag³¹ do k³ótni podniet¹
+T³oczy siê do drzwi ci¿ba, pewnie id¹ w kuchniê;
+Dostali szable, pewnie krwawy bój wybuchnie.
+Lecz tam, na korytarzu, Pañstwo uwa¿acie
+Tego starego ksiêdza, co idzie w ornacie -
+359
+To przeor; Sanctissimum z o³tarza wynosi,
+A ch³opiec w kom¿y dzwoni i na ust¹p prosi;
+Szlachta wnet szable chowa, ¿egna siê i klêka,
+A ksi¹dz tam siê obraca, gdzie jeszcze broñ szczêka;
+Skoro przyjdzie, wnet wszystkich uciszy i zgodzi.
+Ach! wy nie pamiêtacie tego, Pañstwo m³odzi,
+Jak wœród naszej burzliwej szlachty samow³adnej,
+Zbrojnej, nie trzeba by³o policyi ¿adnej;
+Dopóki wiara kwit³a, szanowano prawa,
+By³a wolnoœæ z porz¹dkiem i z dostatkiem s³awa!
+W innych krajach, jak s³yszê, trzyma urz¹d drabów,
+Policyjantów ró¿nych, ¿andarmów, konstabów;
+Ale jeœli miecz tylko bezpieczeñstwa strze¿e,
+¯eby w tych krajach by³a wolnoœæ - nie uwierzê”.
+Wtem dzwoni¹c w tabakierê rzek³ pan Podkomorzy:
+„Panie Wojski, niech Wasze na potem od³o¿y
+Te historyje; prawda, ¿e sejmik ciekawy,
+Ale my g³odni, ka¿ Waæ przynosiæ potrawy”.
+Na to Wojski, sk³aniaj¹c a¿ do ziemi laskê:
+„Jaœnie Wielmo¿ny Panie, zrób¿e mi tê ³askê,
+Zaraz dokoñczê scenê ostatni¹ sejmików:
+Oto nowy marsza³ek na rêku stronników
+Wyniesion z refektarza; patrz, jak szlachta braty
+Rzucaj¹ czapki, usta otwarli - wiwaty!
+A tam po drugiej stronie pan przekreskowany,
+Sam jeden, czapkê wcisn¹³ na ³eb zadumany,
+360
+¯ona przed domem czeka, zgad³a, co siê dzieje,
+Biedna! oto na rêku pokojowej mdleje.
+Biedna! Jaœnie Wielmo¿nej tytu³ przybraæ mia³a,
+A znów tylko Wielmo¿n¹ na lat trzy zosta³a!”
+Tu Wojski skoñczy³ opis i lask¹ znak daje,
+I wnet zaczêli wchodziæ parami lokaje
+Roznosz¹cy potrawy: barszcz królewskim zwany
+I roso³ staropolski sztucznie gotowany,
+Do którego pan Wojski z dziwnemi sekrety
+Wrzuci³ kilka pere³ek i sztukê monety
+(Taki roso³ krew czyœci i pokrzepia zdrowie).
+Dalej inne potrawy, a któ¿ je wypowie!
+Kto zrozumie nie znane ju¿ za naszych czasów
+Te pó³miski kontuzów, arkasów, blemasów,
+Z ingredyjencyjami pomuchl, figatelów,
+Cybetów, pi¿m, dragantów, pinelów, brunelów;
+Owe ryby! ³ososie suche, dunajeckie,
+Wyzyny, kawijary weneckie, tureckie,
+Szczuki g³ówne i szczuki podg³ówne, ³okietne,
+Fl¹dry i karpie æwiki, i karpie szlachetne!
+W koñcu sekret kucharski: ryba nie krojona,
+U g³owy przysma¿ona, we œrodku pieczona,
+A maj¹ca potrawkê z sosem u ogona.
+Goœcie ani pytali nazwiska potrawy,
+Ani ich zastanowi³ ów sekret ciekawy;
+Wszystko prêdko z ¿o³nierskim jedli apetytem,
+Kieliszki nape³niaj¹c wêgrzynem obfitym.
+361
+Ale tymczasem wielki serwis barwê zmieni³
+I odarty ze œniegu ju¿ siê zazieleni³,
+Bo lekka, ciep³em letnim powoli rozgrzana,
+Roztopi³a siê lodu cukrowego piana
+I dno odkry³a, dot¹d zatajone oku;
+Wiêc krajobraz przedstawi³ now¹ porê roku,
+Zab³ysn¹wszy zielon¹, ró¿nofarbn¹ wiosn¹.
+Wychodz¹ ró¿ne zbo¿a, jak na dro¿d¿ach rosn¹,
+Pszenicy szafranowej buja k³os z³ocisty,
+¯yto ubrane w srebra malarskiego listy
+I gryka wyrabiana sztucznie z czokolady,
+I kwitn¹ce gruszkami i jab³kami sady.
+Ledwie maj¹ czas goœcie darów lata u¿yæ.
+Darmo prosz¹ Wojskiego, ¿eby je przed³u¿yæ:
+Ju¿ serwis, jak planeta koniecznym obrotem,
+Zmienia porê, ju¿ zbo¿a malowane z³otem,
+Nabrawszy ciep³a w izbie powoli topniej¹,
+Ju¿ trawy po¿ó³knia³y, liœcia czerwieniej¹,
+Sypi¹ siê, rzek³byœ, i¿ wiatr jesienny powiewa;
+Na koniec owe chwilê przedtem strojne drzewa -
+Teraz, jakby odarte od wichrów i œronu,
+Stoj¹ nagie; by³y to laski cynamonu
+Lub udaj¹ce sosnê ga³¹zki wawrzynu,
+Odziane zamiast kolców ziarenkami kminu.
+Goœcie pij¹cy wino zaczêli ga³¹zki,
+Pnie i korzenie zrywaæ i gryŸæ dla zak¹ski.
+Wojski obchodzi³ serwis i, pe³en radoœci,
+Tryumfuj¹ce oczy obraca³ na goœci.
+362
+Henryk D¹browski uda³ wielkie zadziwienie
+I rzek³: „Mój Panie Wojski, czy to chiñskie cienie?
+Czy to Pinety Panu da³ w s³u¿bê swe bisy?
+Czy dot¹d u was w Litwie s¹ takie serwisy
+I wszyscy takim starym ucztuj¹ zwyczajem?
+Powiedz mi, bo ja ¿ycie strawi³em za krajem”.
+Wojski rzek³, k³aniaj¹c siê: „Nie, Jaœnie Wielmo¿ny
+Jenerale, nie jest to ¿aden kunszt bezbo¿ny!
+Jest to pami¹tka tylko owych biesiad s³awnych,
+Które dawano w domach panów starodawnych,
+Gdy Polska u¿ywa³a szczêœcia i potêgi!
+Com zrobi³, tom wyczyta³ z tej tu oto ksiêgi.
+Pytasz, czy wszêdzie w Litwie ten siê zwyczaj chowa?
+Niestety! Ju¿ i do nas w³azi moda nowa.
+Niejeden panicz krzyczy, ¿e nie cierpi zbytków,
+Je jak ¯yd, sk¹pi goœciom potraw i napitków,
+Wêgrzyna po¿a³uje, a pije szatañskie
+Fa³szywe wino modne, moskiewskie, szampañskie;
+Potem w wieczor na karty tyle z³ota straci,
+¯e za nie da³byœ ucztê na stu szlachty braci.
+Nawet (bo co na sercu mam, dziœ powiem szczerze,
+Niech tego Podkomorzy za z³e mi nie bierze)
+Kiedym ten serwis cudny ze skarbca dobywa³,
+To nawet Podkomorzy, i on mnie przedrwiwa³,
+Mówi¹c, ¿e to machina zmudna, staroœwiecka,
+¯e to ma pozor niby zabawki dla dziecka,
+Nieprzyzwoitej dla tak znakomitych ludzi!
+363
+Sêdzio! i Sêdzia mówi³, ¿e to goœci znudzi!
+A przecie¿, ile wnoszê z Panów zadziwienia,
+Widzê, i¿ ten kunszt piêkny godzien by³ widzenia!
+Nie wiem, czy siê podobna okazyja zdarzy
+Czêstowaæ w Soplicowie takich dygnitarzy.
+Widzê, ¿e Pan Jenera³ na biesiadach zna siê.
+Niechaj przyjmie tê ksi¹¿kê, ona Panu zda siê,
+Gdy bêdziesz dla monarchów zagranicznych grona
+Dawa³ ucztê, ba, nawet dla Napoleona.
+Ale pozwól, nim ksiêgê tê Panu poœwiêcê,
+Niech powiem, jakim trafem wpad³a w moje rêce”.
+Wtem szmer powsta³ za drzwiami; razem g³osów wiele
+Zawo³a³o: „Niech ¿yje Kurek na koœciele!”
+Ci¿ba t³oczy siê w salê, a Maciej na czele.
+Sêdzia goœcia za rêkê do sto³u prowadzi³
+I wysoko pomiêdzy wodzami posadzi³,
+Mówi¹c: „Panie Macieju, niedobry s¹siedzie,
+Przyje¿d¿asz bardzo póŸno, prawie po obiedzie”.
+„Jem wczeœnie - rzek³ Dobrzyñski - ja tu nie dla jad³a
+Przyby³em, tylko ¿e mnie ciekawoœæ napad³a
+Obejrzeæ z bliska nasz¹ armiê narodow¹.
+Wiele by gadaæ - jest to ani to, ni owo!
+Szlachta mnie obaczy³a i gwa³tem tu wiedzie,
+A Waszeæ za stó³ sadzasz - dziêkujê, s¹siedzie”.
+To wyrzek³szy, przewróci³ talerz dnem do góry
+Na znak, ¿e jeœæ nie bêdzie, i milcza³ ponury.
+364
+„Panie Dobrzyñski - rzek³ mu jenera³ D¹browski -
+Ty¿ to jesteœ ów s³awny rêbacz Koœciuszkowski,
+Ów Maciej, zwany Rózga! Znam ciebie ze s³awy.
+I proszê, takiœ dot¹d czerstwy, taki ¿wawy!
+Ile¿ to lat minê³o! Patrz, jam siê podstarza³,
+Patrz, i Kniaziewiczowi ju¿ siê w³os poszarza³,
+A ty jeszcze z m³odszymi móg³byœ pójœæ w zapasy,
+I Rózga twoja kwitnie pono jak przed czasy;
+S³ysza³em, ¿eœ niedawno Moskalów oæwiczy³.
+Lecz gdzie s¹ bracia twoi? Niezmiernie bym ¿yczy³
+Widzieæ te Scyzoryki i te wasze Brzytwy,
+Ostatnie egzemplarze starodawnej Litwy”.
+„Jenerale - rzek³ Sêdzia - po owem zwyciêstwie
+Prawie wszyscy Dobrzyñscy schronili siê w Ksiêstwie;
+Zapewne do którego weszli legijonu!”
+„W istocie - odpowiedzia³ m³ody szef szwadronu -
+Mam w drugiej kompaniji w¹sate straszyd³o,
+Wachmistrza Dobrzyñskiego, co siê zwie Kropid³o,
+A Mazury zowi¹ go litewskim niedŸwiedziem.
+Jeœli Jenera³ ka¿e, to go tu przywiedziem”.
+„Jest - rzek³ porucznik - kilku innych rodem z Litwy,
+Jeden ¿o³nierz znajomy pod imieniem Brzytwy
+I drugi, co z tromblonem jeŸdzi na flankiery;
+S¹ tak¿e w pu³ku strzelców dwa grenadyjery
+Dobrzyñscy”.
+„Ale, ale, o ich naczelniku -
+Rzek³ Jenera³ - chcê wiedzieæ, o tym Scyzoryku,
+365
+O którym mnie Pan Wojski tyle prawi³ cudów,
+Jakby o jednym z owych dawnych wielkoludów”.
+„Scyzoryk - rzecze Wojski - choæ nie egzulowa³,
+Ale boj¹c siê œledztwa, przed Moskw¹ siê schowa³;
+Ca³¹ zimê nieborak tu³a³ siê po lasach,
+Teraz dopiero wyszed³; w tych wojennych czasach
+Móg³by siê na co przydaæ, jest rycerskim cz³ekiem,
+Szkoda tylko, ¿e trochê przyciœniony wiekiem.
+Lecz owó¿ on!...”
+Tu Wojski palcem wskaza³ w sieni,
+Gdzie czeladŸ i wieœniacy stali nat³oczeni,
+A nad wszystkich g³owami ³ysina b³yszcz¹ca
+Ukaza³a siê nagle jak pe³nia miesi¹ca,
+Trzykroæ wesz³a i trzykroæ znik³a w g³ów ob³oku;
+Klucznik id¹c k³ania³ siê, a¿ doby³ siê z t³oku
+I rzek³ :
+„Jaœnie Wielmo¿ny Koronny Hetmanie
+Czy Jenerale, mniejsza o tytu³owanie,
+Jam jest Rêbaj³o, stajê na twe zawo³anie
+Z tym moim Scyzorykiem, który nie z oprawy
+Ani z napisów, ale z hartu naby³ s³awy,
+¯e nawet o nim Jaœnie Wielmo¿ny Pan wiedzia³.
+Gdyby on gadaæ umia³, mo¿e by powiedzia³
+Cokolwiek na pochwa³ê i tej starej rêki,
+Która s³u¿y³a d³ugo, wiernie, Bogu dziêki,
+OjczyŸnie tudzie¿ panów Horeszków rodzinie,
+366
+Czego pamiêæ dotychczas miêdzy ludŸmi s³ynie.
+Mopanku! rzadko który pisarz prowentowy
+Tak zrêcznie temperuje pióra, jak on g³owy.
+D³ugo liczyæ! A nosów i uszu bez liku!
+A nie ma ¿adnej szczerby na tym Scyzoryku
+I ¿aden go nie splami³ zbojecki uczynek,
+Tylko otwarta wojna albo pojedynek.
+Raz tylko! Panie, daj mu wieczny odpoczynek,
+Bezbronnego cz³owieka, niestety, sprz¹tniono!
+A i to, Bóg mi œwiadkiem, pro publico bono”.
+„Poka¿ no - rzek³ œmiej¹c siê jenera³ D¹browski -
+A to piêkny scyzoryk, istny miecz katowski!”
+I z zadziwieniem wielki rapier opatrywa³,
+I innym oficerom w kolej pokazywa³;
+Probowali go wszyscy, ale ledwie który
+Z oficerów móg³ podnieœæ ten rapier do góry.
+Mówiono, ¿e Dembiñski, s³awny rêki si³¹,
+PodŸwign¹³by szablicê, lecz go tam nie by³o.
+Z obecnych zaœ tylko szef szwadronu, Dwernicki,
+I dowódca plutonu, porucznik Ró¿ycki,
+Potrafili obracaæ tym ¿elaznym dr¹giem;
+I tak rapier na probê szed³ z r¹k do r¹k ci¹giem.
+Lecz jenera³ Kniaziewicz, wzrostem najs³uszniejszy,
+Pokaza³o siê, i¿ by³ w rêku najsilniejszy.
+Uj¹wszy rapier, lekko jakby szpadê dŸwign¹³
+I nad g³owami goœci b³yskawic¹ mign¹³,
+Przypominaj¹c polskie fechtarskie wykrêty:
+367
+K r z y ¿ o w ¹ s z t u k ê, m ³ y ñ c a,
+c i o s k r z y w y, r a z c i ê t y,
+C i o s k r a d z i o n y i t e m p y
+k o n t r p u n k t ó w, t e r c e t ó w,
+Które te¿ umia³, bo by³ ze Szko³y Kadetów.
+Gdy œmiej¹c siê fechtowa³, Rêbaj³o ju¿ klêcza³,
+Obj¹³ go za kolana i ze ³zami jêcza³
+Za ka¿dym zwrotem miecza: „Piêknie! Jenerale,
+Czyœ by³ konfederatem? Piêknie, doskonale!
+To sztych Pu³awskich! Tak siê Dzier¿anowski sk³ada³!
+To sztych Sawy! Któ¿ Panu tak rêkê uk³ada³?
+Chyba Maciej Dobrzyñski! A to, Jenerale,
+Mój wynalazek, dalbóg mój, ja siê nie chwalê,
+To ciêcie znane tylko w Rêbaj³ów zaœcianku,
+Od mojego imienia zwane c i o s m o p a n k u.
+Któ¿ to Pana nauczy³? To jest moje ciêcie,
+Moje!”
+Wsta³, Jenera³a porwawszy w objêcie.
+„Teraz umrê spokojnie! Jest przecie na œwiecie
+Cz³owiek, który przytuli moje drogie dzieciê;
+Bo wszak nad tem od dawna dzieñ i noc bolejê,
+Czy po œmierci ten rapier mój nie zerdzewieje!
+Otó¿ nie zerdzewieje! Mój Jaœnie Wielmo¿ny
+Jenerale, wybacz mi, porzuæcie te ro¿ny,
+Niemieckie szpadki, to wstyd szlacheckiemu dziecku
+Nosiæ ten kijek; weŸmij szablê po szlachecku!
+Oto ten mój Scyzoryk u nóg Twoich sk³adam,
+To jest, co najdro¿szego na œwiecie posiadam.
+368
+Nie mia³em nigdy ¿ony, nie mia³em dzieciêcia,
+On by³ ¿on¹ i dzieckiem; z mojego objêcia
+Nigdy on nie wychodzi³; od rana do mroku
+Pieœci³em go, on w nocy sypia³ przy mym boku!
+A kiedym siê zestarza³, nad ³ó¿kiem na œcianie
+Wisia³, jako nad ¯ydem Bo¿e przykazanie!
+Myœli³em zakopaæ go razem z rêk¹ w grobie,
+Lecz znalaz³em dziedzica! - Niechaj s³u¿y Tobie!”
+Jenera³ wpó³ œmiej¹c siê, a na wpó³ wzruszony:
+„Kolego - rzek³ - je¿eli ust¹pisz mnie ¿ony
+I dziecka, to zostaniesz przez resztê ¿ywota
+Bardzo samotny, stary, wdowiec i sierota!
+Powiedz, czem ci ten drogi dar mam wynagrodziæ
+I czem twoje sieroctwo i wdowstwo os³odziæ?”
+„Czy ja Cybulski? - rzecze na to Klucznik z ¿alem -
+Co ¿onê przegra³, graj¹c w mariasza z Moskalem,
+Jak o tem pieœñ powiada? - Ja mam dosyæ na tem,
+¯e mój Scyzoryk jeszcze zab³yœnie przed œwiatem
+W takim rêku! - Niech tylko Jenera³ pamiêta,
+Aby tasiemka by³a d³uga, rozci¹gniêta,
+Bo to d³ugie; a zawsze od lewego ucha
+Ci¹æ obur¹cz, to przetniesz od g³owy do brzucha”.
+Jenera³ wzi¹³ Scyzoryk, lecz ¿e bardzo d³ugi,
+Nie móg³ nosiæ, w furgonie schowa³y go s³ugi.
+Co siê z nim sta³o, ró¿nie powiadaj¹ o tem,
+Lecz nikt pewnie nie wiedzia³ ni wtenczas, ni potem.
+369
+D¹browski rzek³ do Maæka: „A ty co, Kolego?
+Zdaje siê, ¿eœ ty nierad z przybycia naszego?
+Milczysz kwaœny? I jak¿e, serce ci nie skacze,
+Gdy widzisz or³y z³ote, srebrne? gdy trêbacze
+Pobudkê Koœciuszkowsk¹ tr¹bi¹ ci nad uchem?
+Maæku, myœli³em, ¿e ty wiêkszym jesteœ zuchem;
+Jeœli szabli nie weŸmiesz i na koñ nie siêdziesz,
+Przynajmniej z kolegami weso³o piæ bêdziesz
+Zdrowie Napoleona i Polski nadzieje!”
+„Ha! - rzek³ Maciej - s³ysza³em, widzê, co siê dzieje!
+Ale, Panie, dwóch or³ów razem siê nie gnieŸdzi!
+£aska pañska, Hetmanie, na pstrym koniu jeŸdzi³
+Cesarz wielki bohater! gadaæ o tem wiele!
+Pamiêtam, ¿e Pu³awscy, moi przyjaciele,
+Mawiali, pogl¹daj¹c na Dymuryjera,
+¯e dla Polski polskiego trzeba bohatera,
+Nie Francuza, ani te¿ W³ocha, ale Piasta,
+Jana albo Józefa, lub Maæka - i basta.
+Wojsko! Mówi¹, ¿e polskie! Lecz te fizyliery,
+Sapery, grenadiery i kanonijery!
+Wiêcej s³ychaæ niemieckich tytu³ów w tym t³umie
+Ni¿eli narodowych! Kto to ju¿ zrozumie!
+A musz¹ te¿ byæ z wami Turki czy Tartary,
+Czy syzmatyki, co ni Boga, ani wiary!
+Sam widzia³em: kobiety w wioskach napastuj¹,
+Przechodniów odzieraj¹, koœcio³y rabuj¹!
+Cesarz idzie do Moskwy! daleka to droga,
+370
+Jeœli Cesarz Jegomoœæ wybra³ siê bez Boga!
+S³ysza³em, ¿e ju¿ podpad³ pod kl¹twy biskupie;
+Wszystko to jest...” Tu Maciej chleb umoczy³ w supie
+I jedz¹c nie dokoñczy³ ostatniego s³owa.
+Nie w smak Podkomorzemu posz³a Maæka mowa.
+M³odzie¿ zaczê³a szemraæ; Sêdzia przerwa³ swary,
+G³osz¹c przybycie trzeciej narzeczonej pary.
+By³ to Rejent; sam siebie Rejentem og³osi³;
+Nikt go nie pozna³; dot¹d polskie suknie nosi³,
+Lecz teraz Telimena, przysz³a ¿ona, zmusza
+Warunkiem intercyzy wyrzec siê kontusza;
+Wiêc siê Rejent rad nierad po francusku przebra³.
+Widno, ¿e mu frak duszy po³owê odebra³.
+St¹pa, jakby kij po³kn¹³, prosto, nieruchawo,
+Jak ¿óraw; nie œmie spójrzeæ ni w lewo, ni w prawo;
+Mina gêsta, lecz z miny widaæ, ¿e jest w mêce,
+Nie wie, jak siê pok³oniæ, gdzie ma podziaæ rêce,
+On, co tak gesty lubi³! rêce za pas sadzi³ -
+Nie masz pasa - tylko siê po ¿o³¹dku g³adzi³;
+Postrzeg³ omy³kê; bardzo zmiêsza³ siê, spiek³ raka
+I rêce obie schowa³ w jedn¹ kieszeñ fraka.
+Idzie jakby przez rózgi œród szeptów i drwinek,
+Wstydz¹c siê za frak, jakby za niecny uczynek;
+A¿ spotka³ oczy Maæka i zadr¿a³ z bojaŸni.
+Maciej dot¹d z Rejentem ¿y³ w wielkiej przyjaŸni.
+Teraz wzrok nañ obróci³ tak ostry i dziki,
+371
+¯e Rejent zbladn¹³, zacz¹³ zapinaæ guziki,
+Myœl¹c, ¿e Maciej wzrokiem suknie z niego z³upi;
+Dobrzyñski tylko dwakroæ wyrzek³ g³oœno: „G³upi!” -
+I tak strasznie zgorszy³ siê z Rejenta przebrania,
+¯e zaraz wsta³ od sto³u i bez po¿egnania
+Wymkn¹wszy siê, wsiad³ na koñ, wróci³ do zaœcianka.
+A tymczasem Rejenta nadobna kochanka,
+Telimena, roztacza blaski swej urody
+I ubior od stóp do g³ów co najœwie¿szej mody.
+Jak¹ mia³a sukienkê, jaki strój na g³owie,
+Daremnie pisaæ, pióro tego nie wypowie,
+Chyba pêdzel by skreœli³ te tiule, ptyfenie,
+Blondyny, kaszemiry, per³y i kamienie,
+I oblicze ró¿ane, i ¿ywe wejrzenie.
+Pozna³ j¹ zaraz Hrabia, z zadziwienia blady,
+Wsta³ od sto³u i szuka³ ko³o siebie szpady:
+„I ty¿eœ to! - zawo³a³ - czy mnie oczy ³udz¹?
+Ty? w obecnoœci mojej? œciskasz rêkê cudz¹?
+O, niewierna istoto, o, duszo zmiennicza!
+I nie skryjesz ze wstydu pod ziemiê oblicza?
+Takeœ twojej tak œwie¿ej niepomna przysiêgi?
+O ³atwowierny! Po có¿ nosi³em te wstêgi!
+Lecz biada rywalowi, co miê tak zniewa¿a!
+Po moim chyba trupie pójdzie do o³tarza!”
+Goœcie powstali, Rejent okropnie siê zmiesza³,
+Podkomorzy rywalów zagodziæ poœpiesza³;
+372
+Lecz Telimena wzi¹wszy Hrabiego na stronê:
+„Jeszcze - szepnê³a - Rejent nie wzi¹³ miê za ¿onê;
+Je¿eli Pan przeszkadzasz, odpowiedz¿e na to,
+A odpowiedz mi zaraz, krótko, wêz³owato:
+Czy mnie kochasz, czyœ dot¹d serca nie odmieni³,
+Czyœ gotów, ¿ebyœ ze mn¹ zaraz siê o¿eni³?
+Zaraz, dziœ? - Jeœli zechcesz, odst¹piê Rejenta”.
+Hrabia rzek³: „O, kobieto, dla mnie niepojêta!
+Dawniej w uczuciach twoich by³aœ poetyczn¹,
+A teraz mi siê zdajesz ca³kiem prozaiczn¹;
+Có¿ s¹ wasze ma³¿eñstwa, jeœli nie ³añcuchy,
+Które zwi¹zuj¹ tylko rêce, a nie duchy?
+Wierzaj, s¹ oœwiadczenia, nawet bez wyznania,
+S¹ obowi¹zki nawet bez obowi¹zania!
+Dwa serca, pa³aj¹ce na dwóch koñcach ziemi,
+Rozmawiaj¹ jak gwiazdy promieñmi dr¿¹cemi:
+Kto wie! mo¿e dlatego ziemia tak do s³oñca
+D¹¿y i tak jest zawsze mi³¹ dla miesi¹ca,
+¯e wiecznie patrz¹ na siê i najkrótsz¹ drog¹
+Bieg¹ do siebie - ale zbli¿yæ siê nie mog¹!”
+„Doœæ ju¿ tego - przerwa³a - nie jestem planet¹
+Z ³aski Bo¿ej! Doœæ, Hrabio, ja jestem kobiet¹;
+Ju¿ wiem resztê, przestañ mi pleœæ ni to, ni owo.
+Teraz ostrzegam: jeœli piœniesz jedno s³owo,
+A¿eby œlub mój zerwaæ, to jak Bóg na niebie,
+¯e z temi paznokciami przyskoczê do ciebie
+I...”
+373
+„Nie bêdê - rzek³ Hrabia - szczêœcia Pani k³óci³!”
+I oczy pe³ne smutku i wzgardy odwróci³,
+I a¿eby ukaraæ niewiern¹ kochankê,
+Za przedmiot sta³ych ogniów wzi¹³ Podkomorzankê.
+Wojski pragn¹³ m³odzieñców poró¿nionych zgodziæ
+Przyk³adami m¹dremi, wiêc zacz¹³ wywodziæ
+Historyjê o dziku nalibockich lasów
+I o k³ótni Rejtana z ksi¹¿êciem Denassów,
+Ale goœcie tymczasem skoñczyli jeœæ lody
+I z zamku na dziedziniec wyszli dla och³ody.
+Tam w³oœæ ju¿ koñczy ucztê, kr¹¿¹ miodu dzbany,
+Muzyka ju¿ siê stroi i wzywa na tany;
+Szukaj¹ Tadeusza, który sta³ na stronie
+I coœ pilnego szepta³ swojej przysz³ej ¿onie.
+„Zofijo! muszê ciebie w bardzo wa¿nej rzeczy
+Radziæ siê; ju¿ pyta³em stryja, on nie przeczy.
+Wiesz, i¿ znaczna czêœæ wiosek, które mam posiadaæ,
+Wedle prawa na ciebie powinna by spadaæ.
+A ch³opi nie s¹ moi, lecz twoi poddani,
+Nie œmia³bym ich urz¹dziæ bez woli ich pani.
+Teraz, kiedy ju¿ mamy Ojczyznê kochan¹,
+Czyli¿ wieœniacy zyszcz¹ z t¹ szczêœliw¹ zmian¹
+Tyle tylko, ¿e pana innego dostan¹?
+Prawda, ¿e byli dot¹d rz¹dzeni ³askawie,
+Lecz po mej œmierci Bóg wie komu ich zostawiê;
+Jestem ¿o³nierz, jesteœmy œmiertelni oboje,
+374
+Jestem cz³owiek, sam w³asnych kaprysów siê bojê;
+Bezpieczniej zrobiê, kiedy w³adzy siê wyrzekê
+I oddam los w³oœcianów pod prawa opiekê.
+Sami wolni, uczyñmy i w³oœcian wolnemi,
+Oddajmy im w dziedzictwo posiadanie ziemi,
+Na której siê zrodzili, któr¹ krwaw¹ prac¹
+Zdobyli, z której wszystkich ¿ywi¹ i bogac¹.
+Lecz muszê ciebie ostrzec, ¿e tych ziem nadanie
+Zmniejszy nasz dochod; w miernym musimy ¿yæ stanie.
+Ja przywyk³em do ¿ycia oszczêdnego z m³odu;
+Lecz ty, Zofijo, jesteœ z wysokiego rodu,
+W stolicy przepêdzi³aœ twoje m³ode lata;
+Czy¿ zgodzisz siê ¿yæ na wsi? z daleka od œwiata!
+Jak ziemianka!”
+A na to Zosia rzek³a skromnie:
+„Jestem kobiet¹, rz¹dy nie nale¿¹ do mnie.
+Wszak¿e Pan bêdziesz mê¿em; ja do rady m³oda.
+Co Pan urz¹dzisz, na to ca³ym sercem zgoda!
+Jeœli w³oœæ uwalniaj¹c, zostaniesz ubo¿szy,
+To, Tadeuszu, bêdziesz sercu memu dro¿szy.
+O moim rodzie ma³o wiem i nie dbam o to;
+Tyle pomnê, ¿e by³am ubog¹, sierot¹,
+¯e od Sopliców by³am za córkê przybrana,
+W ich domu hodowana i za m¹¿ wydana.
+Wsi nie lêkam siê; jeœli w wielkim mieœcie ¿y³am,
+To dawno; zapomnia³am, wieœ zawsze lubi³am;
+I wierz mi, ¿e mnie moje kogutki i kurki
+Wiêcej bawi³y ni¿li owe Peterburki;
+Jeœli czasem têskni³am do zabaw, do ludzi,
+375
+To z dzieciñstwa; wiem teraz, ¿e mnie miasto nudzi;
+Przekona³am siê zim¹ po krótkim pobycie
+W Wilnie, ¿e ja na wiejskie urodzona ¿ycie;
+Poœród zabaw têskni³am znów do Soplicowa.
+Pracy te¿ nie lêkam siê, bom m³oda i zdrowa,
+Umiem chodziæ oko³o domu, nosiæ klucze;
+Gospodarstwa, obaczysz, jak ja siê wyuczê!”
+Gdy Zosia domawia³a ostatnie wyrazy,
+Podszed³ ku niej zdziwiony i kwaœny Gerwazy:
+„Ju¿ wiem! - rzek³. - Sêdzia mówi³ ju¿ o tej wolnoœci!
+Lecz nie pojmujê, co to œci¹ga siê do w³oœci!
+Bojê siê, ¿eby to coœ nie by³o z niemiecka!
+Wszak wolnoœæ nie jest ch³opska rzecz, ale szlachecka!
+Prawda, ¿e siê wywodzim wszyscy od Adama,
+Alem s³ysza³, ¿e ch³opi pochodz¹ od Chama,
+¯ydowie od Jafeta, my szlachta od Sema,
+A wiêc panujem jako starsi nad obiema.
+Ju¿ci pleban inaczej uczy na ambonie...
+Powiada, ¿e to by³o tak w Starym Zakonie,
+Ale skoro Chrystus Pan, choæ z krolów pochodzi³,
+Miêdzy ¯ydami w ch³opskiej stajni siê urodzi³,
+Odt¹d wiêc wszystkie stany porówna³ i zgodzi³.
+Niech i tak bêdzie, kiedy inaczej nie mo¿na!
+Zw³aszcza ¿e, jako s³yszê, i Jaœnie Wielmo¿na
+Pani moja, Zofija, na wszystko siê zgadza;
+Jej rozkazaæ, mnie s³uchaæ; ju¿ci przy niej w³adza.
+Tylko ostrzegam, byœmy wolnoœci nie dali
+Pustej i s³ownej tylko, jako za Moskali,
+376
+Kiedy pan Karp nieboszczyk w³oœcian wyswobodzi³,
+A Moskal ich podatkiem potrójnym og³odzi³.
+Radzê wiêc, aby ch³opów starym obyczajem
+Uszlachciæ i og³osiæ, ¿e im herb nasz dajem,
+Pani udzieli jednym wioskom Pó³kozica,
+Drugim niech sw¹ Leliwê nada Pan Soplica.
+Natenczas i Rêbaj³o uzna ch³opa rownym,
+Gdy go ujrzy szlachcicem wielmo¿nym, herbownym,
+Sejm potwierdzi.
+A niech siê m¹¿ Pani nie trwo¿y,
+I¿ oddanie ziem Pañstwo tak bardzo zubo¿y;
+Nie da Bóg, abym r¹czki córy dygnitarskiej
+Widzia³ umozolone w pracy gospodarskiej.
+Jest na to sposób. - W zamku wiem ja pewn¹ skrzyniê,
+W której jest Horeszkowskie sto³owe naczynie,
+Przytem ró¿ne sygnety, kanaki, manele,
+Kity bogate, rzêdy, cudne karabele,
+Skarbczyk Stolnika, w ziemi skryty od grabie¿y;
+Pani Zofiji jako dziedziczce nale¿y;
+Pilnowa³em go w zamku jako oka w g³owie
+Od Moskalów i od was, Pañstwo Soplicowie.
+Mam tak¿e spory worek mych w³asnych talarów,
+Uzbieranych z wys³ugi tudzie¿ z pañskich darów.
+Myœli³em, gdy nam zamek wróconym zostanie,
+Obróciæ grosz na murów wyreperowanie;
+Nowemu gospodarstwu dziœ zda siê w potrzebie;
+A wiêc, Panie Soplico, wnoszê siê do ciebie,
+Bêdê ¿y³ u mej Pani na ³askawym chlebie
+I ko³ysz¹c Horeszków pokolenie trzecie,
+377
+Wprawiaæ do Scyzoryka Pani mojej dzieciê,
+Jeœli syn - a syn bêdzie, bo wojny nadchodz¹,
+A w czasie wojny zaw¿dy synowie siê rodz¹”.
+Ledwie ostatnie s³owa domówi³ Gerwazy,
+Gdy powa¿nemi kroki przyst¹pi³ Protazy,
+Sk³oni³ siê i wydoby³ z zanadrza kontusza
+Panegiryk ogromny w pó³trzecia arkusza.
+Skomponowa³ go rymem podoficer m³ody,
+Który niegdyœ w stolicy s³awne pisa³ ody,
+Potem wdzia³ mundur, lecz i w wojsku beletrysta,
+Wiersze rabia³. - Ju¿ WoŸny przeczyta³ ich trzysta,
+A¿ gdy przyszed³ do miejsca: „O ty, której wdziêki
+Budz¹ bolesn¹ radoœæ i rozkoszne mêki!
+Która na szyk Bellony gdy zwrócisz twarz piêkn¹,
+Z³ami¹ siê wnet oszczepy i tarcze rozpêkn¹,
+Zwalcz dziœ Marsa Hymenem; srogiej niezgod hydrze
+Niech d³oñ twoja sycz¹ce z czo³a zmije wydrze!” -
+Tadeusz i Zofija ustawnie klaskali,
+Niby chwal¹c, w istocie nie chc¹c s³uchaæ daléj.
+Ju¿ z rozkazu Sêdziego pleban sta³ na stole
+I og³asza³ w³oœcianom Tadeusza wolê.
+Zaledwie us³yszeli nowinê poddani,
+Skoczyli do panicza, padli do nóg pani,
+„Zdrowie Pañstwu naszemu!” - ze ³zami krzyknêli;
+Tadeusz krzykn¹³: „Zdrowie Spó³obywateli,
+Wolnych, równych, Polaków!”
+378
+„Wnoszê Ludu zdrowie!” -
+Rzek³ D¹browski; lud krzykn¹³: „Niech ¿yj¹ Wodzowie,
+Wiwat Wojsko!” „Wiwat Lud, wiwat wszystkie Stany!”
+Tysi¹cem g³osów zdrowia grzmia³y na przemiany.
+Tylko Buchman radoœci podzielaæ nie raczy³,
+Pochwala³ projekt, lecz go rad by przeinaczy³,
+A naprzód komisyj¹ legaln¹ wyznaczy³,
+Która by... Krótkoœæ czasu by³a na zawadzie,
+¯e nie sta³o siê zadoœæ Buchmanowej radzie.
+Bo na dziedziñcu zamku ju¿ stali parami
+Oficery z damami, wiara z wieœniaczkami:
+„Poloneza!” - krzyknêli wszyscy w jedno s³owo.
+Oficerowie wiod¹ muzykê wojskow¹;
+Ale pan Sêdzia w ucho rzek³ do Jenera³a:
+„Ka¿ Pan, ¿eby siê jeszcze kapela wstrzyma³a;
+Wiesz, ¿e dzisiaj synowca mego zarêczyny,
+A dawnym obyczajem jest naszej rodziny
+Zarêczaæ siê i ¿eniæ przy wiejskiej muzyce.
+Patrz, stoi cymbalista, skrzypak i kozice;
+Poczciwi muzykanci - ju¿ siê skrzypak z¿yma,
+A kobeŸnik k³ania siê i ¿ebrze oczyma;
+Je¿eli ich odprawiê, biedni bêd¹ p³akaæ;
+Lud przy innej muzyce nie potrafi skakaæ;
+Niechaj ci zaczn¹, niech siê i lud podweseli,
+Potem bêdziem wybornej twej s³uchaæ kapeli”.
+Da³ znak.
+379
+Skrzypak u sukni zakasa³ rêkawek,
+Œcisn¹³ gryf krzepko, opar³ brodê o podstawek
+I smyk jak konia w zawód puœci³ po skrzypicy.
+Na to has³o stoj¹cy obok kobeŸnicy,
+Jak gdyby w skrzyd³a bij¹c, czêstym ramion ruchem
+Dm¹ w miechy i oblicza wype³niaj¹ duchem;
+Myœli³byœ, ¿e ta para w powietrze uleci,
+Podobna do pyzatych Boreasza dzieci.
+Brak³o cymba³ów.
+By³o cymbalistów wielu,
+Ale ¿aden z nich nie œmia³ zagraæ przy Jankielu
+(Jankiel przez ca³¹ zimê nie wiedzieæ gdzie bawi³,
+Teraz siê nagle z g³ównym sztabem wojska zjawi³).
+Wiedz¹ wszyscy, ¿e mu nikt na tym instrumencie
+Nie wyrówna w bieg³oœci, w guœcie i w talencie.
+Prosz¹, a¿eby zagra³, podaj¹ cymba³y;
+¯yd wzbrania siê, powiada, ¿e rêce zgrubia³y,
+Odwyk³ od grania, nie œmie i panów siê wstydzi;
+K³aniaj¹c siê umyka; gdy to Zosia widzi,
+Podbiega i na bia³ej podaje mu d³oni
+Dr¹¿ki, któremi zwykle mistrz we stróny dzwoni;
+Drug¹ r¹czk¹ po siwej brodzie starca g³aska
+I dygaj¹c: „Jankielu - mówi - jeœli ³aska,
+Wszak to me zarêczyny, zagraj¿e, Jankielu!
+Wszak nieraz przyrzeka³eœ graæ na mym weselu!”
+Jankiel nieŸmiernie Zosiê lubi³; kiwn¹³ brod¹
+Na znak, ¿e nie odmawia; wiêc go w œrodek wiod¹,
+380
+Podaj¹ krzes³o, usiad³, cymba³y przynosz¹,
+K³ad¹ mu na kolanach. On patrzy z rozkosz¹
+I z dum¹; jak weteran w s³u¿bê powo³any,
+Gdy wnuki ciê¿ki jego miecz ci¹gn¹ ze œciany,
+Dziad œmieje siê, choæ miecza dawno nie mia³ w d³oni,
+Lecz uczu³, ¿e d³oñ jeszcze nie zawiedzie broni.
+Tymczasem dwaj uczniowie przy cymba³ach klêcz¹,
+Stroj¹ na nowo struny i probuj¹c brzêcz¹;
+Jankiel z przymru¿onemi na po³y oczyma
+Milczy i nieruchome dr¹¿ki w palcach trzyma.
+Spuœci³ je, zrazu bij¹c taktem tryumfalnym,
+Potem gêœciej siek³ stróny jak deszczem nawalnym;
+Dziwi¹ siê wszyscy - lecz to by³a tylko proba,
+Bo wnet przerwa³ i w górê podnios³ dr¹¿ki oba.
+Znowu gra: ju¿ dr¿¹ dr¹¿ki tak lekkiemi ruchy,
+Jak gdyby zadzwoni³o w stronê skrzyd³o muchy,
+Wydaj¹c ciche, ledwie s³yszalne brzêczenia.
+Mistrz zawsze patrzy³ w niebo, czekaj¹c natchnienia.
+Spójrza³ z góry, instrument dumnym okiem zmierzy³,
+Wznios³ rêce, spuœci³ razem, w dwa dr¹¿ki uderzy³:
+Zdumieli siê s³uchacze...
+Razem ze strón wiela
+Buchn¹³ dŸwiêk, jakby ca³a janczarska kapela
+Ozwa³a siê z dzwonkami, z zelami, z bêbenki.
+Brzmi Polonez Trzeciego Maja! - Skoczne dŸwiêki
+Radoœci¹ oddychaj¹, radoœci¹ s³uch poj¹,
+381
+Dziewki chc¹ tañczyæ, ch³opcy w miejscu nie dostoj¹ -
+Lecz starców myœli z dŸwiêkiem w przesz³oœæ siê unios³y,
+W owe lata szczêœliwe, gdy senat i pos³y
+Po dniu Trzeciego Maja w ratuszowej sali
+Zgodzonego z narodem króla fetowali;
+Gdy przy tañcu œpiewano: „Wiwat Król kochany!
+Wiwat Sejm, wiwat Naród, wiwat wszystkie Stany!”
+Mistrz coraz takty nagli i tony natê¿a;
+A wtem puœci³ fa³szywy akord jak syk wê¿a,
+Jak zgrzyt ¿elaza po szkle - przej¹³ wszystkich dreszczem
+I weso³oœæ pomiêsza³ przeczuciem z³owieszczem.
+Zasmuceni, strwo¿eni, s³uchacze zw¹tpili:
+Czy instrument niestrojny? czy siê muzyk myli?
+Nie zmyli³ siê mistrz taki! On umyœlnie tr¹ca
+Wci¹¿ tê zdradzieck¹ stronê, melodyjê zm¹ca,
+Coraz g³oœniej targaj¹c akord rozd¹sany,
+Przeciwko zgodzie tonów skonfederowany;
+A¿ Klucznik poj¹³ mistrza, zakry³ rêk¹ lica
+I krzykn¹³: „Znam! znam g³os ten!
+to jest T a r g o w i c a!”
+I wnet pêk³a ze œwistem strona z³owró¿¹ca.
+Muzyk bie¿y do prymów, urywa takt, zm¹ca,
+Porzuca prymy, bie¿y z dr¹¿kami do basów.
+S³ychaæ tysi¹ce coraz g³oœniejszych ha³asów,
+Takt marszu, wojna, atak, szturm, s³ychaæ wystrza³y,
+Jêk dzieci, p³acze matek. - Tak mistrz doskona³y
+Wyda³ okropnoœæ szturmu, ¿e wieœniaczki dr¿a³y,
+382
+Przypominaj¹c sobie ze ³zami boleœci
+R z e Ÿ P r a g i, któr¹ zna³y z pieœni i z powieœci,
+Rade, ¿e mistrz na koniec strónami wszystkiemi
+Zagrzmia³ i g³osy zdusi³, jakby wbi³ do ziemi.
+Ledwie s³uchacze mieli czas wyjœæ z zadziwienia,
+Znowu muzyka inna - znów zrazu brzêczenia
+Lekkie i ciche, kilka cienkich strónek jêczy,
+Jak kilka much, gdy z siatki wyrw¹ siê pajêczéj.
+Lecz strón coraz przybywa, ju¿ rozpierzch³e tony
+£¹cz¹ siê i akordów wi¹¿¹ legijony,
+I ju¿ w takt postêpuj¹ zgodzonemi dŸwiêki,
+Tworz¹c nutê ¿a³osn¹ tej s³awnej piosenki:
+O ¿o³nierzu tu³aczu, który borem, lasem
+Idzie, z biedy i z g³odu przymieraj¹c czasem,
+Na koniec pada u nóg konika wiernego,
+A konik nog¹ grzebie mogi³ê dla niego.
+Piosenka stara, wojsku polskiemu tak mi³a!
+Poznali j¹ ¿o³nierze, wiara siê skupi³a
+Wko³o mistrza; s³uchaj¹, wspominaj¹ sobie
+Ów czas okropny, kiedy na Ojczyzny grobie
+Zanucili tê piosnkê i poszli w kraj œwiata;
+Przywodz¹ na myœl d³ugie swej wêdrówki lata
+Po l¹dach, morzach, piaskach gor¹cych i mrozie,
+Poœrodku obcych ludów, gdzie czêsto w obozie
+Cieszy³ ich i rozrzewnia³ ten œpiew narodowy.
+Tak rozmyœlaj¹c, smutnie pochylili g³owy.
+383
+Ale je wnet podnieœli, bo mistrz tony wznosi,
+Natê¿a, takty zmienia, cóœ innego g³osi.
+I znowu spójrza³ z góry, okiem struny zmierzy³,
+Z³¹czy³ rêce, obur¹cz w dwa dr¹¿ki uderzy³:
+Uderzenie tak sztuczne, tak by³o potê¿ne,
+¯e stróny zadzwoni³y jak tr¹by mosiê¿ne
+I z tr¹b znana piosenka ku niebu wionê³a,
+Marsz tryumfalny: „Jeszcze Polska nie zginê³a!”
+„Marsz, D¹browski, do Polski!” - I wszyscy klasnêli,
+I wszyscy „Marsz D¹browski” chorem okrzyknêli!
+Muzyk, jakby sam swojej dziwi³ siê piosence,
+Upuœci³ dr¹¿ki z palców, podnios³ w górê rêce,
+Czapka lisia spad³a mu z g³owy na ramiona,
+Powiewa³a powa¿nie broda podniesiona,
+Na jagodach mia³ krêgi dziwnego rumieñca,
+We wzroku, ducha pe³nym, b³yszcza³ ¿ar m³odzieñca,
+A¿ gdy na D¹browskiego starzec oczy zwróci³,
+Zakry³ rêkami, spod r¹k ³ez potok siê rzuci³:
+„Jenerale! - rzek³ - ciebie d³ugo Litwa nasza
+Czeka³a... d³ugo, jak my ¯ydzi Mesyjasza.
+Ciebie prorokowali dawno miêdzy ludem
+Œpiewaki, ciebie niebo obwieœci³o cudem.
+¯yj i wojuj, o, ty nasz!...”
+Mówi¹c, ci¹gle szlocha³.
+¯yd poczciwy Ojczyznê jako Polak kocha³!
+D¹browski mu podawa³ rêkê i dziêkowa³,
+On, czapkê zdj¹wszy, wodza rêkê uca³owa³.
+384
+Poloneza czas zacz¹æ. - Podkomorzy rusza
+I z lekka zarzuciwszy wyloty kontusza,
+I w¹sa podkrêcaj¹c, poda³ rêkê Zosi,
+I sk³oniwszy siê grzecznie, w pierwsz¹ parê prosi.
+Za Podkomorzym szereg w pary siê gromadzi;
+Dano has³o, zaczêto taniec - on prowadzi.
+Nad muraw¹ czerwone po³yskaj¹ buty,
+Bije blask z karabeli, œwieci siê pas suty,
+A on st¹pa powoli, niby od niechcenia;
+Ale z ka¿dego kroku, z ka¿dego ruszenia
+Mo¿na tancerza czucia i myœli wyczytaæ:
+Oto stan¹³, jak gdyby chcia³ sw¹ damê pytaæ,
+Pochyla ku niej g³owê, chce szepn¹æ do ucha;
+Dama g³owê odwraca, wstydzi siê, nie s³ucha,
+On zdj¹³ konfederatkê, k³ania siê pokornie,
+Dama raczy³a spójrzeæ, lecz milczy upornie;
+On krok zwalnia, oczyma jej spójrzenie œledzi
+I zaœmia³ siê na koniec - rad z jej odpowiedzi,
+St¹pa prêdzej, pogl¹da na rywalów z góry
+I sw¹ konfederatkê z czaplinymi pióry
+To na czole zawiesza, to nad czo³em wstrz¹sa,
+A¿ w³o¿y³ j¹ na bakier i podkrêci³ w¹sa.
+Idzie; wszyscy zazdroszcz¹, bieg¹ w jego œlady,
+On by rad ze sw¹ dam¹ wymkn¹æ siê z gromady;
+Czasem staje na miejscu, rêkê grzecznie wznosi
+I ¿eby mimo przeszli, pokornie ich prosi;
+Czasem zamyœla zrêcznie na bok siê uchyliæ,
+Odmienia drogê, rad by towarzyszów zmyliæ,
+385
+Lecz go szybkimi kroki œcigaj¹ natrêty
+I zewsz¹d obwijaj¹ tanecznemi skrêty;
+Wiêc gniewa siê, prawicê na rêkojeœæ sk³ada,
+Jakby rzek³: „Nie dbam o was, zazdroœnikom biada!”
+Zwraca siê z dum¹ w czole i z wyzwaniem w oku
+Prosto w t³um; t³um tancerzy nie œmie dostaæ w kroku;
+Ustêpuj¹ mu z drogi i - zmieniwszy szyki,
+Puszczaj¹ siê znów za nim.
+Brzmi¹ zewsz¹d okrzyki:
+„Ach, to mo¿e ostatni! patrzcie, patrzcie, m³odzi,
+Mo¿e ostatni, co tak poloneza wodzi!”
+I sz³y pary po parach hucznie i weso³o,
+Rozkrêca³o siê, znowu skrêca³o siê ko³o,
+Jak w¹¿ olbrzymi, w tysi¹c ³ami¹cy siê zwojów;
+Mieni siê cêtkowata, ró¿na barwa strojów
+Damskich, pañskich, ¿o³nierskich, jak ³uska b³yszcz¹ca,
+Wyz³ocona promieñmi zachodniego s³oñca
+I odbita o ciemne murawy wêzg³owia.
+Wre taniec, brzmi muzyka, oklaski i zdrowia!
+Tylko kapral Dobrzyñski Sak ani kapeli
+Nie s³ucha, ani tañczy, ani siê weseli.
+Rêce w ty³ za³o¿ywszy stoi z³y, ponury,
+Wspomina swe dawniejsze do Zosi konkury:
+Jak lubi³ dla niej nosiæ kwiaty, pleœæ koszyczki,
+Wybieraæ gniazda ptasie, robiæ zauszniczki.
+Niewdziêczna! chocia¿ tyle piêknych darów strwoni³,
+Choæ przed nim ucieka³a, choæ mu ojciec broni³,
+386
+On jeszcze!... Ile razy na parkanie siada³,
+By j¹ dójrzeæ przez okna! w konopie siê wkrada³,
+¯eby patrzeæ, jak ona ple³a swe ogródki,
+Rwa³a ogórki albo karmi³a kogutki.
+Niewdziêczna! Spuœci³ g³owê, i na koniec œwisn¹³
+Mazurka, potem kaszkiet na uszy nacisn¹³
+I szed³ w obóz, gdzie sta³a przy armatach warta;
+Tam dla rozerwania siê zacz¹³ graæ w dru¿barta
+Z wiarusami, kielichem os³adzaj¹c ¿a³oœæ.
+Taka by³a dla Zosi Dobrzyñskiego sta³oœæ.
+Zosia tañczy weso³o; lecz choæ w pierwszej parze,
+Ledwie widna z daleka; na wielkim obszarze
+Zaros³ego dziedziñca, w zielonej sukience,
+Ustrojona w równianki i w kwieciste wieñce,
+Œród traw i kwiatów kr¹¿y niewidzialnym lotem,
+Rz¹dz¹c tañcem, jak anio³ nocnych gwiazd obrotem:
+Zgadniesz, gdzie jest, bo ku niej obrócone oczy,
+Wyci¹gniête ramiona, ku niej zgie³k siê t³oczy.
+Darmo siê Podkomorzy zostaæ przy niej sili;
+Zazdroœnicy ju¿ z pierwszej pary go odbili;
+I szczêœliwy D¹browski nied³ugo siê cieszy³,
+Ust¹pi³ j¹ drugiemu, a ju¿ trzeci œpieszy³;
+I ten, zaraz odbity, odszed³ bez nadziei.
+A¿ Zosia, ju¿ strudzona, spotka³a z kolei
+Tadeusza, i dalszej lêkaj¹c siê zmiany,
+I chc¹c przy nim pozostaæ, zakoñczy³a tany.
+Idzie do sto³u goœciom nalewaæ kielichy.
+387
+S³oñce ju¿ gas³o, wieczór by³ ciep³y i cichy;
+Okr¹g niebios gdzieniegdzie chmurkami zas³any,
+U góry b³êkitnawy, na zachód ró¿any;
+Chmurki wró¿¹ pogodê, lekkie i œwiec¹ce,
+Tam jako trzody owiec na murawie œpi¹ce,
+Ówdzie nieco drobniejsze, jak stada cyranek.
+Na zachód ob³ok na kszta³t r¹bkowych firanek,
+Przejrzysty, sfa³dowany, po wierzchu per³owy,
+Po brzegach poz³acany, w g³êbi purpurowy,
+Jeszcze blaskiem zachodu tli³ siê i roz¿arza³,
+A¿ powoli po¿ó³knia³, zbladn¹³ i poszarza³;
+S³oñce spuœci³o g³owê, ob³ok zasunê³o
+I raz ciep³ym powiewem westchn¹wszy - usnê³o.
+A szlachta ci¹gle pije i wiwaty wznosi:
+Napoleona, Wodzów, Tadeusza, Zosi,
+Wreszcie z kolei wszystkich trzech par zarêczonych,
+Wszystkich goœci obecnych, wszystkich zaproszonych,
+Wszystkich przyjació³, których kto ¿ywych spamiêta
+I których zmar³ych pamiêæ pozosta³a œwiêta!
+I ja tam z goœæmi by³em, miód i wino pi³em,
+A com widzia³ i s³ysza³, w ksiêgi umieœci³em.
+KONIEC
+
+[EPILOG]
+O tem ¿e dumaæ na paryskim bruku,
+Przynosz¹c z miasta uszy pe³ne stuku,
+Przeklêstw i k³amstwa, niewczesnych zamiarów,
+Za poznych ¿alów, potêpieñczych swarów!
+Biada nam, zbiegi, ¿eœmy w czas morowy
+Lêkliwe nieœli za granicê g³owy!
+Bo gdzie st¹pili, sz³a przed nimi trwoga,
+W ka¿dym s¹siedzi znajdowali wroga,
+A¿ nas objêto w ciasny kr¹g ³añcucha
+I ka¿¹ oddaæ co najprêdzej ducha.
+A gdy na ¿ale ten œwiat nie ma ucha,
+Gdy ich co chwila nowina przera¿a
+Bij¹ca z Polski jako dzwon smêtarza,
+Gdy im prêdkiego zgonu ¿ycz¹ stra¿e,
+Wrogi ich wabi¹ z dala jak grabarze,
+Gdy w niebie nawet nadziei nie widz¹ -
+Nie dziw, ¿e ludzi, œwiat, sobie ohydz¹,
+¯e utraciwszy rozum w mêkach d³ugich,
+Plwaj¹ na siebie i ¿r¹ jedni drugich!
+Chcia³em pomin¹æ, ptak ma³ego lotu,
+Pomin¹æ strefy ulewy i grzmotu
+I szukaæ tylko cienia i pogody,
+Wieki dzieciñstwa, domowe zagrody...
+401
+Jedyne szczêœcie, kto w szarej godzinie
+Z kilku przyjació³ usiad³ przy kominie,
+Drzwi od Europy zamyka³ ha³asów,
+Wyrwa³ siê z myœl¹ ku szczêœliwym czasom
+I duma³, myœli³ o swojej krainie...
+Ale o krwi tej, co siê œwie¿o la³a,
+O ³zach, któremi p³ynie Polska ca³a,
+O s³awie, która jeszcze nie przebrzmia³a -
+O nich pomyœliæ - nie mieliœmy duszy!...
+Bo naród bywa na takiej katuszy,
+¯e kiedy zwróci wzrok ku jego mêce,
+Nawet Odwaga za³amuje rêce.
+Te pokolenia ¿a³obami czarne,
+Powietrze tyl¹ kl¹twami ciê¿arne,
+Tam myœl nie œmia³a zwróciæ lotów,
+W sferê okropn¹ nawet ptakom grzmotów.
+O Matko Polsko! Ty tak œwie¿o w grobie
+Z³o¿ona - nie ma si³ mówiæ o tobie!
+Ach! czyje¿ usta œmi¹ pochlebiaæ sobie,
+¯e dzisiaj znajd¹ to serdeczne s³owo,
+Które rozczula rozpacz marmorow¹,
+Które z serc wieko podejmie kamienne,
+Rozwi¹¿e oczy tyl¹ ³ez brzemienne
+I sprawia, ¿e ³za przystyg³a wyp³ynie?
+Nim siê te usta znajd¹, wiek przeminie.
+402
+Kiedyœ - gdy zemsty lwie przehucz¹ ryki,
+Przebrzmi g³os tr¹by, prze³ami¹ siê szyki,
+Gdy wróg ostatni wyda krzyk boleœci,
+Umilknie, œwiatu swobodê obwieœci,
+Gdy or³y nasze lotem b³yskawicy
+Spadn¹ u dawnej Chrobrego granicy,
+Gdy cia³ podjedz¹ i krwi¹ ca³e sp³yn¹,
+I skrzyd³a wreszcie na spoczynek zwin¹ -
+Wtenczas, dêbowem liœciem uwieñczeni,
+Rzuciwszy miecze, si¹d¹ rozbrojeni
+Rycerze nasi! Zechc¹ s³uchaæ pieni!
+Gdy œwiat obecnej doli pozazdroœci,
+Bêd¹ czas mieli s³uchaæ o przesz³oœci!
+Wtenczas zap³acz¹ nad ojców losami
+I wtenczas ³za ta ich lica nie splami.
+Dziœ dla nas, w œwiecie nieproszonych goœci,
+W ca³ej przesz³oœci i w ca³ej przysz³oœci
+Jedna ju¿ tylko jest kraina taka,
+W której jest trochê szczêœcia dla Polaka:
+Kraj lat dziecinnych! On zawsze zostanie
+Œwiêty i czysty jak pierwsze kochanie,
+Nie zaburzony b³êdów przypomnieniem,
+Nie podkopany nadziei z³udzeniem
+Ani zmieniony wypadków strumieniem.
+Gdziem rzadko p³aka³, a nigdy nie zgrzyta³,
+Te kraje rad bym myœlami powita³:
+Kraje dzieciñstwa, gdzie cz³owiek po œwiecie
+Bieg³ jak po ³¹ce, a zna³ tylko kwiecie
+403
+Mi³e i piêkne, jadowite rzuci³,
+Ku po¿ytecznym oka nie odwróci³.
+Ten kraj szczêœliwy, ubogi i ciasny,
+Jak œwiat jest bo¿y, tak on by³ nasz w³asny!
+Jak¿e tam wszystko do nas nale¿a³o!
+Jak pomnim wszystko, co nas otacza³o:
+Od lipy, która koron¹ wspania³¹
+Ca³ej wsi dzieciom u¿ycza³a cienia,
+A¿ do ka¿dego strumienia, kamienia,
+Jak ka¿dy k¹tek ziemi by³ znajomy
+A¿ po granicê, po s¹siadów domy!
+I tylko krajów tych obywatele
+Jedni zostali wierni przyjaciele,
+Jedni dotychczas sprzymierzeñcy pewni!
+Bo któ¿ tam mieszka³? - Matka, bracia, krewni,
+S¹siedzi dobrzy. Kogo z nich uby³o,
+Jak¿e tam o nim czêsto siê mówi³o,
+Ile pami¹tek, jaka ¿a³oœæ d³uga
+Tam, gdzie do pana przywi¹zañszy s³uga
+Ni¿ w innych krajach ma³¿onka do mê¿a;
+Gdzie ¿o³nierz d³u¿ej ¿a³uje orê¿a
+Ni¿ tu syn ojca; po psie p³acz¹ szczerze
+I d³u¿ej ni¿ tu lud po bohaterze.
+I przyjaciele wtenczas pomogli rozmowie,
+I do piosnki rzucali mnie s³owo za s³owem -
+Jak bajeczne ¿urawie nad dzikim ostrowem,
+404
+Nad zaklêtym pa³acem przelatuj¹c wiosn¹
+I s³ysz¹c zaklêtego ch³opca skargê g³oœn¹,
+Ka¿dy ptak ch³opcu jedno pióro zruci³,
+On zrobi³ skrzyd³a i do swoich wróci³...
+O, gdybym kiedy do¿y³ tej pociechy,
+¯eby te ksiêgi zb³¹dzi³y pod strzechy,
+¯eby wieœniaczki, krêc¹c ko³owrotki,
+Gdy odœpiewaj¹ ulubione zwrotki
+O tej dziewczynie, co tak graæ lubi³a,
+¯e przy skrzypeczkach g¹ski pogubi³a,
+O tej sierocie, co piêkna jak zorze
+Zaganiaæ g¹ski sz³a w wieczornej porze,
+Gdyby te¿ wziê³y na koniec do rêki
+Te ksiêgi, proste jako ich piosenki!
+Tak za dni moich, przy wiejskiej zabawie,
+Czytano nieraz pod lip¹ na trawie
+Pieœñ o Justynie, powieœæ o Wies³awie.
+A przy stoliku drzemi¹cy pan w³odarz
+Albo ekonom, lub nawet gospodarz,
+Nie broni³ czytaæ i sam s³uchaæ raczy³,
+I m³odszym rzeczy trudniejsze t³umaczy³,
+Chwali³ piêknoœci, a b³êdom wybaczy³.
+I zazdroœci³a m³odzie¿ wieszczów s³awie,
+Która tam dot¹d brzmi w lasach i w polu,
+I którym dro¿szy ni¿ laur Kapitolu
+Wianek rêkami wieœniaczki osnuty
+Z modrych b³awatków i zielonej ruty
