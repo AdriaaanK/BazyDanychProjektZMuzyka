@@ -1,1 +1,2 @@
-redis-12520.c328.europe-west3-1.gce.cloud.redislabs.com:12520
+redis-cli -u redis://default:dOmZWqrcJO9E7Yd0bi30owFve60WOQZu@redis-12520.c328.europe-west3-1.gce.cloud.redislabs.com:12520
+
