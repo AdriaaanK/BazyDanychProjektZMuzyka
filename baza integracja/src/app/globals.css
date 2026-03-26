@@ -1,0 +1,66 @@
+* {
+    cursor: url("../../public/img/cursor.png"), auto;
+}
+
+h1 {
+    margin: 0;
+}
+
+#logo {
+    height: 40px;
+    width: auto;
+}
+
+header {
+    padding: 15px;
+    display: flex;
+    height: 30px;
+    align-items: center;
+    background-color: rgb(236, 255, 236);
+    justify-content: center;
+}
+
+.a-menu {
+    border-left: 2px solid green;
+    padding: 10px 10px;
+    height: 20px;
+    display: flex;
+    justify-content: center;
+    align-items: center;
+    text-decoration: none;
+    color: inherit;
+}
+
+nav {
+    position: absolute;
+    right: 0;
+    display: flex;
+    align-items: center;
+    gap: 20px;
+}
+
+.a-menu:last-of-type {
+    display: flex;
+    gap: 8px;
+}
+
+#profilowe-domyslne {
+    height: 40px;
+    width: 40px;
+}
+
+
+body {
+    margin: 0px;
+    background-color: lightgreen;
+    color: green;
+}
+
+
+footer {
+    width: 100%;
+    text-align: center;
+    position: absolute;
+    bottom: 0;
+    background-color: rgb(236, 255, 236);
+}
