@@ -5,10 +5,6 @@ import { getSongData } from '@/app/actions/song_modify'
 
 
 export default async function Home() {
-  let data
-  async function handleSearch(e) {
-    data = await getSongData(e)
-  }
   return (
   <>
       <style>
@@ -27,8 +23,7 @@ export default async function Home() {
 
       </header>
     <main>
-      <input type="number" placeholder="view song data" onchange={handleSearch}></input>
-      { data.title }
+
     </main>
     <footer>
         <p>Projekt wykonany przez: <strong>Lidia Boruch, Adrian Krzoski, Mateusz Stolarski, Kacper Szuliński</strong>
