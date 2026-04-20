@@ -6,7 +6,6 @@ import { useState } from "react"
 
 export default function Create() {
   const [error, setError] = useState('')
-<<<<<<< HEAD
   const [songData, setData] = useState('')
 
   async function handleData(id){
@@ -14,8 +13,6 @@ export default function Create() {
     console.log(data)
     setData(data)
   }
-=======
->>>>>>> parent of cb9b4239 (zryj gowno adrian)
 
   async function handleSubmit(formData) {
     /* for (const value of formData.values()) {
