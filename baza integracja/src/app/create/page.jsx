@@ -6,6 +6,16 @@ import { useState } from "react"
 
 export default function Create() {
   const [error, setError] = useState('')
+<<<<<<< HEAD
+  const [songData, setData] = useState('')
+
+  async function handleData(id){
+    let data = await getSongData(id)
+    console.log(data)
+    setData(data)
+  }
+=======
+>>>>>>> parent of cb9b4239 (zryj gowno adrian)
 
   async function handleSubmit(formData) {
     /* for (const value of formData.values()) {
@@ -40,6 +50,15 @@ export default function Create() {
         <input type="number" name="likes_count" min={1} placeholder="likes_count" />
         <input type="file" name="image" placeholder="image" />
         <button type="submit" className="btn">Add Song</button>
+<<<<<<< HEAD
+        {
+          songData && <p>{songData.title}<br/>{songData.artist}<br/>
+          {songData.album}<br/>{songData.genre}<br/>
+          {songData.duration}<br/>{songData.release_date}
+          {songData.likes_count}<br/>{songData.image}</p>
+        }
+=======
+>>>>>>> parent of cb9b4239 (zryj gowno adrian)
         {error && <div className="error">{error}</div>}
       </form>
     </main>
