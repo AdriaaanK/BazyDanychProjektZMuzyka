@@ -1,0 +1,17 @@
+{
+  "node": {
+    "606e40886e614af5576e29f053cdb6cb2bc80f397f": {
+      "workers": {
+        "app/create/page": {
+          "moduleId": "[project]/.next-internal/server/app/create/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "createSong",
+          "filename": "src/app/actions/song_modify.js"
+        }
+      },
+      "exportedName": "createSong",
+      "filename": "src/app/actions/song_modify.js"
+    }
+  },
+  "edge": {}
+}

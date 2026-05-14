@@ -1,0 +1,6 @@
+{
+  "version": 3,
+  "sources": [],
+  "sections": [
+    {"offset": {"line": 4, "column": 0}, "map": {"version":3,"sources":["file:///D:/koncertdanych/baza%20integracja/src/app/display/page.jsx"],"sourcesContent":["'use client'\r\n\r\nimport Link from 'next/link'\r\nimport { getSongData } from '@/app/actions/song_modify'\r\n\r\nimport { useSearchParams } from 'next/navigation'\r\n\r\n\r\nexport default function Display() {\r\n  const searchParams = useSearchParams()\r\n  const id = searchParams.get('id')\r\n  \r\n  return (\r\n    <>\r\n    <main>\r\n    </main>\r\n    </>\r\n  )\r\n}"],"names":["Display","searchParams","id","get"],"mappings":";;;;;AAEA;AAGA;AALA;;;;;AAQe,SAASA;IACtB,MAAMC,eAAe,IAAA,qJAAe;IACpC,MAAMC,KAAKD,aAAaE,GAAG,CAAC;IAE5B,qBACE;kBACA,cAAA,8OAAC;;;;;;AAIL"}}]
+}

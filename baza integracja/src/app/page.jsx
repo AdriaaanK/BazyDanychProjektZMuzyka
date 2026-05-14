@@ -1,34 +1,61 @@
+'use client'
+
 import Link from 'next/link'
-import { client } from "@/lib/db"
 
-import { getSongData } from '@/app/actions/song_modify'
+import { getTrackArray, setupSongGallery } from '@/app/actions/song_modify'
+import { useEffect, useState } from 'react'
 
+export default function Home() {
+  const [songArray, setSongs] = useState(null)
+  const [curPage, setPage] = useState(0)
+  const [maxPage, setMax] = useState(1)
+  const [loading, setLoading] = useState(true)
 
-export default async function Home() {
+  const perPage = 5; let dataArray
+  useEffect(() => {
+    async function fetchArray() {
+      try {
+        dataArray = await getTrackArray()
+        setMax(Math.floor(dataArray.length / perPage))
+        
+      } catch (err) {
+        console.error(err)
+      } finally {
+        return dataArray
+      }
+    }
+    async function fetchSongs() {
+      try {
+        if(!dataArray) await fetchArray()
+        let songs = await setupSongGallery(dataArray.slice(curPage * perPage, curPage * perPage + perPage))
+
+        setSongs(songs)
+        console.log(curPage, maxPage)
+      } catch (err) {
+        console.error(err)
+      } finally {
+        setLoading(false)
+      }
+    }
+    fetchSongs()
+  }, [curPage])  
   return (
   <>
-      <style>
-
-      </style>
-      <header>
-
-      <img width="200px" height="200px" src={"/img/logo.png"} id="logo"/>
-      <h1>KoncertDanych</h1>
-      <nav>
-          <Link href="./create" className="a-menu">Polubione utwory</Link>
-          <a className="a-menu">Playlisty</a>
-          <a className="a-menu">Katalog</a>
-          <a className="a-menu">Twoje konto<img src={"/img/profilowe-domyslne.png"} id="profilowe-domyslne"/></a>
-      </nav>
-
-      </header>
     <main>
+      <p>
+        <button onClick={() => {if(!loading && curPage != 0) {setPage((curPage) => curPage - 1); setLoading(true)}}}>poprzednia strona</button>
+        {String(curPage + 1)}
+        <button onClick={() => {if(!loading && curPage != maxPage) {setPage((curPage) => curPage + 1); setLoading(true)}}}>nastepna strona</button>
+      </p>
 
+      {loading && <div>wczytywanie piosenek</div>}
+      {!loading && songArray.map(song => (
+          <Link key={song.id} href={"./display?id=" + song.id}>
+            <h2>{song.title}</h2>
+            <p>{song.artist}</p>
+          </Link>
+      ))}
     </main>
-    <footer>
-        <p>Projekt wykonany przez: <strong>Lidia Boruch, Adrian Krzoski, Mateusz Stolarski, Kacper Szuliński</strong>
-        </p>
-    </footer>
   </>
   )
 }

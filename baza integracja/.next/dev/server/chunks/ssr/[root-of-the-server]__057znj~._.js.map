@@ -1,0 +1,8 @@
+{
+  "version": 3,
+  "sources": [],
+  "sections": [
+    {"offset": {"line": 13, "column": 0}, "map": {"version":3,"sources":["file:///D:/koncertdanych/baza%20integracja/src/app/icon.ico.mjs%20%28structured%20image%20object%29"],"sourcesContent":["import src from \"IMAGE\";\nexport default { src, width: 32, height: 32 }\n"],"names":["src","width","height"],"mappings":";;;;AAAA;;uCACe;IAAEA,KAAAA,uIAAG;IAAEC,OAAO;IAAIC,QAAQ;AAAG"}},
+    {"offset": {"line": 108, "column": 0}, "map": {"version":3,"sources":["file:///D:/koncertdanych/baza%20integracja/src/lib/db.js"],"sourcesContent":["import { createClient } from 'redis';\r\n\r\nconst client = createClient({\r\n    username: 'default',\r\n    password: 'NLvmh337cJCPoGFbGS29F9mdcaqdOBu1',\r\n    socket: {\r\n        host: 'redis-14861.c98.us-east-1-4.ec2.cloud.redislabs.com',\r\n        port: 14861\r\n    }\r\n});\r\n\r\nclient.on('error', err => console.log('Redis Client Error', err));\r\n\r\nawait client.connect();\r\n\r\nexport { client }"],"names":["client","username","password","socket","host","port","on","err","console","log","connect"],"mappings":";;;;AAAA;;AAEA,MAAMA,SAAS,IAAA,sJAAY,EAAC;IACxBC,UAAU;IACVC,UAAU;IACVC,QAAQ;QACJC,MAAM;QACNC,MAAM;IACV;AACJ;AAEAL,OAAOM,EAAE,CAAC,SAASC,CAAAA,MAAOC,QAAQC,GAAG,CAAC,sBAAsBF;AAE5D,MAAMP,OAAOU,OAAO"}},
+    {"offset": {"line": 132, "column": 0}, "map": {"version":3,"sources":["file:///D:/koncertdanych/baza%20integracja/src/app/page.jsx"],"sourcesContent":["import Link from 'next/link'\r\nimport { client } from \"@/lib/db\"\r\n\r\nexport default async function Home() {\r\n  return (\r\n  <>\r\n    <main>\r\n\r\n    </main>\r\n  </>\r\n  )\r\n}\r\n"],"names":["Home"],"mappings":";;;;;AAAA;AACA;;;;;;;;AAEe,eAAeA;IAC5B,qBACA;kBACE,cAAA,8OAAC;;;;;;AAKL"}}]
+}

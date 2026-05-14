@@ -21,6 +21,7 @@ export async function createSong(formData, imageData) {
 }
 
 export async function getSongData(songId) {
+  songId = Number(songId)
   let songData = {
     'title': await client.hGet(`track:${songId}`, 'title'),
     'artist': await client.hGet(`track:${songId}`, 'artist'),
@@ -32,4 +33,22 @@ export async function getSongData(songId) {
     'image': await client.hGet(`track:${songId}`, 'image')
   }
   return songData
+}
+
+export async function getTrackArray() {
+  return await client.keys('track:*')
+}
+
+export async function setupSongGallery(songkeys) {
+  let songArray = []
+  for (const key in songkeys) {
+    const songData = await getSongData(songkeys[key].split(":")[1])
+    songArray.push({
+      "id": songkeys[key].split(":")[1],
+      "title": songData.title,
+      "artist": songData.artist,
+      "image": songData.image
+    })
+  }
+  return songArray
 }
