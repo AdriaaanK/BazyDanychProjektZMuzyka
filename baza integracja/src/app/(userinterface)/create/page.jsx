@@ -1,0 +1,40 @@
+'use client'
+
+import Link from 'next/link'
+import { createSong } from '@/app/actions/song_modify'
+import { useState } from "react"
+
+export default function Create() {
+  const [error, setError] = useState('')
+
+  async function handleSubmit(formData) {
+    /* for (const value of formData.values()) {
+      console.log(value);
+    } */
+    const result = await createSong(formData, formData.get("image"))
+
+    if (result?.error) {
+      setError(result.error)
+    }
+  }
+  return (
+    <>
+    <main>
+      <h2>songie song</h2>
+      <form action={handleSubmit}>
+        <input type="text" name="title" placeholder="title" />
+        <input type="text" name="artist" placeholder="artist" />
+        <input type="text" name="album" placeholder="album" />
+        <input type="text" name="genre" placeholder="genre" />
+        <input type="number" name="duration" min={1} placeholder="duration" />
+        <input type="text" name="release_date" placeholder="release_date" />
+        <input type="number" name="likes_count" min={1} placeholder="likes_count" />
+        <input type="file" name="image" placeholder="image" />
+        <button type="submit" className="btn">Add Song</button>
+
+        {error && <div className="error">{error}</div>}
+      </form>
+    </main>
+    </>
+  )
+}

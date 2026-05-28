@@ -1,0 +1,3 @@
+{
+  "/(adminpanel)/admin/del/page": "app/(adminpanel)/admin/del/page.js"
+}

@@ -1,0 +1,17 @@
+{
+  "node": {
+    "400572e63db4db562fdb461137cf4e6e0a68e5cdaf": {
+      "workers": {
+        "app/(userinterface)/display/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/display/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getSongData",
+          "filename": "src/app/actions/song_modify.js"
+        }
+      },
+      "exportedName": "getSongData",
+      "filename": "src/app/actions/song_modify.js"
+    }
+  },
+  "edge": {}
+}

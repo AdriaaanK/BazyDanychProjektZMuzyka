@@ -2,6 +2,18 @@
   "node": {
     "00632986a1c29fdc82b965363765c21d296807fca5": {
       "workers": {
+        "app/(adminpanel)/admin/del/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/del/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getTrackArray",
+          "filename": "src/app/actions/song_modify.js"
+        },
+        "app/(userinterface)/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getTrackArray",
+          "filename": "src/app/actions/song_modify.js"
+        },
         "app/page": {
           "moduleId": "[project]/.next-internal/server/app/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -14,6 +26,18 @@
     },
     "40ea27441e879a3db4b55967ed96ca5bab53692b78": {
       "workers": {
+        "app/(adminpanel)/admin/del/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/del/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "setupSongGallery",
+          "filename": "src/app/actions/song_modify.js"
+        },
+        "app/(userinterface)/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "setupSongGallery",
+          "filename": "src/app/actions/song_modify.js"
+        },
         "app/page": {
           "moduleId": "[project]/.next-internal/server/app/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -26,6 +50,18 @@
     },
     "606e40886e614af5576e29f053cdb6cb2bc80f397f": {
       "workers": {
+        "app/(adminpanel)/admin/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "createSong",
+          "filename": "src/app/actions/song_modify.js"
+        },
+        "app/(userinterface)/create/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/create/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "createSong",
+          "filename": "src/app/actions/song_modify.js"
+        },
         "app/create/page": {
           "moduleId": "[project]/.next-internal/server/app/create/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -38,6 +74,12 @@
     },
     "400572e63db4db562fdb461137cf4e6e0a68e5cdaf": {
       "workers": {
+        "app/(userinterface)/display/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/display/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getSongData",
+          "filename": "src/app/actions/song_modify.js"
+        },
         "app/display/page": {
           "moduleId": "[project]/.next-internal/server/app/display/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,

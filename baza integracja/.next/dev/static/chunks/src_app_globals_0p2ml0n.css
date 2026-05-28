@@ -1,0 +1,112 @@
+/* [project]/src/app/globals.css [app-client] (css) */
+* {
+  cursor: url("../media/cursor.0hhpd_mtd470..png"), auto;
+}
+
+h1 {
+  margin: 0;
+}
+
+#logo {
+  width: auto;
+  height: 40px;
+}
+
+header {
+  background-color: #ecffec;
+  justify-content: center;
+  align-items: center;
+  height: 30px;
+  padding: 15px;
+  display: flex;
+}
+
+.a-menu {
+  height: 20px;
+  color: inherit;
+  border-left: 2px solid green;
+  justify-content: center;
+  align-items: center;
+  padding: 10px;
+  text-decoration: none;
+  display: flex;
+}
+
+nav {
+  align-items: center;
+  gap: 20px;
+  display: flex;
+  position: absolute;
+  right: 0;
+}
+
+.a-menu:last-of-type {
+  gap: 8px;
+  display: flex;
+}
+
+#profilowe-domyslne {
+  width: 40px;
+  height: 40px;
+}
+
+body {
+  color: green;
+  background-color: #90ee90;
+  margin: 0;
+}
+
+footer {
+  text-align: center;
+  background-color: #ecffec;
+  width: 100%;
+  position: absolute;
+  bottom: 0;
+}
+
+form {
+  flex-wrap: wrap;
+  justify-content: center;
+  align-items: center;
+  margin: auto;
+  display: flex;
+}
+
+input {
+  box-sizing: border-box;
+  background-color: #e9ffe9;
+  border: 2px solid #006400;
+  border-radius: 30px;
+  width: 250px;
+  height: 35px;
+  margin: 15px;
+  padding-left: 10px;
+}
+
+input[type="file"] {
+  padding: 5px;
+}
+
+input[type="file"]::file-selector-button {
+  color: #006400;
+  border: 2px solid #006400;
+  border-radius: 30px;
+}
+
+button {
+  color: #006400;
+  background-color: #baffba;
+  border: 2px solid #006400;
+  border-radius: 30px;
+  margin: 15px;
+}
+
+h2 {
+  margin-left: 45%;
+}
+
+#import-button {
+  margin-left: 46.5%;
+}
+
+/*# sourceMappingURL=src_app_globals_0p2ml0n.css.map*/

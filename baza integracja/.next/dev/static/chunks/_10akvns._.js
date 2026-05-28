@@ -101,7 +101,7 @@ function Home() {
                             children: "poprzednia strona"
                         }, void 0, false, {
                             fileName: "[project]/src/app/page.jsx",
-                            lineNumber: 46,
+                            lineNumber: 45,
                             columnNumber: 9
                         }, this),
                         String(curPage + 1),
@@ -115,20 +115,20 @@ function Home() {
                             children: "nastepna strona"
                         }, void 0, false, {
                             fileName: "[project]/src/app/page.jsx",
-                            lineNumber: 48,
+                            lineNumber: 47,
                             columnNumber: 9
                         }, this)
                     ]
                 }, void 0, true, {
                     fileName: "[project]/src/app/page.jsx",
-                    lineNumber: 45,
+                    lineNumber: 44,
                     columnNumber: 7
                 }, this),
                 loading && /*#__PURE__*/ (0, __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$next$2f$dist$2f$compiled$2f$react$2f$jsx$2d$dev$2d$runtime$2e$js__$5b$app$2d$client$5d$__$28$ecmascript$29$__["jsxDEV"])("div", {
                     children: "wczytywanie piosenek"
                 }, void 0, false, {
                     fileName: "[project]/src/app/page.jsx",
-                    lineNumber: 51,
+                    lineNumber: 50,
                     columnNumber: 19
                 }, this),
                 !loading && songArray.map((song)=>/*#__PURE__*/ (0, __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$next$2f$dist$2f$compiled$2f$react$2f$jsx$2d$dev$2d$runtime$2e$js__$5b$app$2d$client$5d$__$28$ecmascript$29$__["jsxDEV"])(__TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$next$2f$dist$2f$client$2f$app$2d$dir$2f$link$2e$js__$5b$app$2d$client$5d$__$28$ecmascript$29$__["default"], {
@@ -138,26 +138,26 @@ function Home() {
                                 children: song.title
                             }, void 0, false, {
                                 fileName: "[project]/src/app/page.jsx",
-                                lineNumber: 54,
+                                lineNumber: 53,
                                 columnNumber: 13
                             }, this),
                             /*#__PURE__*/ (0, __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$next$2f$dist$2f$compiled$2f$react$2f$jsx$2d$dev$2d$runtime$2e$js__$5b$app$2d$client$5d$__$28$ecmascript$29$__["jsxDEV"])("p", {
                                 children: song.artist
                             }, void 0, false, {
                                 fileName: "[project]/src/app/page.jsx",
-                                lineNumber: 55,
+                                lineNumber: 54,
                                 columnNumber: 13
                             }, this)
                         ]
                     }, song.id, true, {
                         fileName: "[project]/src/app/page.jsx",
-                        lineNumber: 53,
+                        lineNumber: 52,
                         columnNumber: 11
                     }, this))
             ]
         }, void 0, true, {
             fileName: "[project]/src/app/page.jsx",
-            lineNumber: 44,
+            lineNumber: 43,
             columnNumber: 5
         }, this)
     }, void 0, false);

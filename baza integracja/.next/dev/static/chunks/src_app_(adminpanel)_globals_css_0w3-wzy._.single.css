@@ -1,0 +1,119 @@
+/* [project]/src/app/(adminpanel)/globals.css [app-client] (css) */
+* {
+  cursor: url("../media/cursor.0hhpd_mtd470..png"), auto;
+}
+
+h1 {
+  margin: 0;
+}
+
+#logo {
+  width: auto;
+  height: 40px;
+}
+
+header {
+  background-color: #fff;
+  justify-content: center;
+  align-items: center;
+  height: 30px;
+  padding: 15px;
+  display: flex;
+}
+
+.a-menu {
+  height: 20px;
+  color: inherit;
+  border-left: 2px solid #000;
+  justify-content: center;
+  align-items: center;
+  padding: 10px;
+  text-decoration: none;
+  display: flex;
+}
+
+nav {
+  align-items: center;
+  gap: 20px;
+  display: flex;
+  position: absolute;
+  right: 0;
+}
+
+.a-menu:last-of-type {
+  gap: 8px;
+  display: flex;
+}
+
+#profilowe-domyslne {
+  width: 40px;
+  height: 40px;
+}
+
+body {
+  color: #000;
+  background-color: #292929;
+  margin: 0;
+}
+
+footer {
+  text-align: center;
+  color: #333;
+  background-color: #000;
+  width: 100%;
+  position: absolute;
+  bottom: 0;
+}
+
+form {
+  flex-wrap: wrap;
+  justify-content: center;
+  align-items: center;
+  margin: auto;
+  display: flex;
+}
+
+input {
+  box-sizing: border-box;
+  background-color: #fff;
+  border: 2px solid #640000;
+  border-radius: 30px;
+  width: 250px;
+  height: 35px;
+  margin: 15px;
+  padding-left: 10px;
+}
+
+input[type="file"] {
+  padding: 5px;
+}
+
+input[type="file"]::file-selector-button {
+  color: #2e2e2e;
+  border: 2px solid #333;
+  border-radius: 30px;
+}
+
+button {
+  color: #000;
+  background-color: #fff;
+  border: 2px solid #8a0101;
+  border-radius: 30px;
+  margin: 15px;
+}
+
+h2 {
+  margin-left: 5%;
+  display: inline-block;
+}
+
+#import-button {
+  margin-left: 46.5%;
+}
+
+.dodajuttt {
+  margin-left: 39%;
+  padding: 1%;
+}
+
+/*# sourceMappingURL=src_app_%28adminpanel%29_globals_css_0w3-wzy._.single.css.map*/
