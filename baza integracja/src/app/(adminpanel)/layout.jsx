@@ -20,12 +20,14 @@ export default function RootLayout({ children }) {
 
       <body className={inter.className}>
         <header>
-
           <img width="200px" href="/" height="200px" src={"/img/logo.png"} id="logo" />
-           <h1>Panel Administratora</h1>
+          <Link href="/admin"><h1>Panel Administratora</h1></Link>
           <nav>
-            <Link href="admin/del" className="a-menu">Utwory</Link>
-            <Link href="./" className="a-menu">Dodaj</Link>
+            <Link href="/" className="a-menu left">Wróć</Link>
+          </nav>
+          <nav>
+            <Link href="/admin/songs" className="a-menu">Utwory</Link>
+            <Link href="/admin/add" className="a-menu">Dodaj</Link>
             <a className="a-menu">Użytkownicy</a>
             <a className="a-menu">Twoje konto<img src={"/img/profilowe-domyslne.png"} id="profilowe-domyslne" /></a>
           </nav>

@@ -64,6 +64,26 @@ footer {
   bottom: 0;
 }
 
+.songview {
+  text-align: left;
+  background: linear-gradient(90deg, #2a9b9b 0%, #57c785 50%, #eddd5300 100%);
+  border-radius: 20px;
+  align-content: center;
+  width: 20%;
+  margin: 6px 6px 6px 40%;
+  padding: 8px;
+  position: relative;
+  left: 0;
+}
+
+.songview h2 {
+  margin: 1% 0% 0% 14%;
+}
+
+main {
+  text-align: center;
+}
+
 form {
   flex-wrap: wrap;
   justify-content: center;

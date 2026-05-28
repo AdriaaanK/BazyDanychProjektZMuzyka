@@ -2,7 +2,7 @@
 
 import Link from 'next/link'
 
-import { getTrackArray, setupSongGallery } from '@/app/actions/song_modify'
+import { getTrackArray, setupSongGallery, deleteSong } from '@/app/actions/song_modify'
 import { useEffect, useState } from 'react'
 
 export default function del() {
@@ -10,6 +10,7 @@ export default function del() {
   const [curPage, setPage] = useState(0)
   const [maxPage, setMax] = useState(1)
   const [loading, setLoading] = useState(true)
+  const [updateTrigger, startUpdate] = useState(false)
 
   const perPage = 5; let dataArray
   useEffect(() => {
@@ -37,8 +38,9 @@ export default function del() {
         setLoading(false)
       }
     }
+    
     fetchSongs()
-  }, [curPage])  
+  }, [curPage, updateTrigger])  
   return (
   <>
     <main>
@@ -51,8 +53,8 @@ export default function del() {
       {loading && <div>wczytywanie piosenek</div>}
       {!loading && songArray.map(song => (
           
-            <div class="song-title-div">
-              <h2 class="song-title">{song.title}</h2> <button>Del</button>
+            <div key={song.id} className="song-title-div">
+              <h2 className="song-title">{song.title}</h2> <button onClick={() => {deleteSong(song.id); startUpdate(!updateTrigger); setLoading(true)}}>Del</button>
             </div>
           
       ))}

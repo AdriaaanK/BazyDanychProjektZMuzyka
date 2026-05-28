@@ -1,0 +1,41 @@
+{
+  "node": {
+    "00632986a1c29fdc82b965363765c21d296807fca5": {
+      "workers": {
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getTrackArray",
+          "filename": "src/app/actions/song_modify.js"
+        }
+      },
+      "exportedName": "getTrackArray",
+      "filename": "src/app/actions/song_modify.js"
+    },
+    "40ea27441e879a3db4b55967ed96ca5bab53692b78": {
+      "workers": {
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "setupSongGallery",
+          "filename": "src/app/actions/song_modify.js"
+        }
+      },
+      "exportedName": "setupSongGallery",
+      "filename": "src/app/actions/song_modify.js"
+    },
+    "404faf3be1b52e1ea22f1892f6801894c14a5ef528": {
+      "workers": {
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "deleteSong",
+          "filename": "src/app/actions/song_modify.js"
+        }
+      },
+      "exportedName": "deleteSong",
+      "filename": "src/app/actions/song_modify.js"
+    }
+  },
+  "edge": {}
+}

@@ -3,6 +3,8 @@
 }
 
 h1 {
+    color: black;
+    text-decoration: none;
     margin: 0;
 }
 
@@ -30,7 +32,14 @@ header {
     text-decoration: none;
     color: inherit;
 }
+.a-menu.left {
+    border-left: 0px;
+    border-right: 2px solid rgb(0, 0, 0);
+}
 
+nav:first-of-type{
+    left: 0;
+}
 nav {
     position: absolute;
     right: 0;

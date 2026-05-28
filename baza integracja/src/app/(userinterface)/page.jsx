@@ -50,8 +50,10 @@ export default function Home() {
       {loading && <div>wczytywanie piosenek</div>}
       {!loading && songArray.map(song => (
           <Link key={song.id} href={"./display?id=" + song.id}>
-            <h2>{song.title}</h2>
-            <p>{song.artist}</p>
+            <div className='songview'>
+              <h2>{song.title}</h2>
+              <p>{song.artist || '---'}</p>
+            </div>
           </Link>
       ))}
     </main>

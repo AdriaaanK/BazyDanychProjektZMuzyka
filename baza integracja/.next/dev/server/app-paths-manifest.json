@@ -1,11 +1,8 @@
 {
-  "/(adminpanel)/admin/del/page": "app/(adminpanel)/admin/del/page.js",
+  "/(adminpanel)/admin/add/page": "app/(adminpanel)/admin/add/page.js",
   "/(adminpanel)/admin/page": "app/(adminpanel)/admin/page.js",
+  "/(adminpanel)/admin/songs/page": "app/(adminpanel)/admin/songs/page.js",
   "/(userinterface)/create/page": "app/(userinterface)/create/page.js",
   "/(userinterface)/display/page": "app/(userinterface)/display/page.js",
-  "/(userinterface)/page": "app/(userinterface)/page.js",
-  "/_not-found/page": "app/_not-found/page.js",
-  "/create/page": "app/create/page.js",
-  "/display/page": "app/display/page.js",
-  "/page": "app/page.js"
+  "/(userinterface)/page": "app/(userinterface)/page.js"
 }

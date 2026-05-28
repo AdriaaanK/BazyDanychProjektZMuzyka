@@ -1,9 +1,12 @@
 {
   "app": {
-    "[project]/src/app/(adminpanel)/admin/del/page": [
+    "[project]/src/app/(adminpanel)/admin/add/page": [
       "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
     ],
     "[project]/src/app/(adminpanel)/admin/page": [
+      "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
+    ],
+    "[project]/src/app/(adminpanel)/admin/songs/page": [
       "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
     ],
     "[project]/src/app/(userinterface)/create/page": [
@@ -13,15 +16,6 @@
       "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
     ],
     "[project]/src/app/(userinterface)/page": [
-      "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
-    ],
-    "[project]/src/app/create/page": [
-      "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
-    ],
-    "[project]/src/app/display/page": [
-      "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
-    ],
-    "[project]/src/app/page": [
       "static/media/83afe278b6a6bb3c-s.p.0q-301v4kxxnr.woff2"
     ]
   },

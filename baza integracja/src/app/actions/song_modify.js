@@ -52,3 +52,7 @@ export async function setupSongGallery(songkeys) {
   }
   return songArray
 }
+
+export async function deleteSong(id){
+  await client.del('track:' + id)
+}

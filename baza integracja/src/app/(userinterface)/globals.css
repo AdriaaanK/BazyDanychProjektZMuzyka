@@ -65,6 +65,28 @@ footer {
     background-color: rgb(236, 255, 236);
 }
 
+.songview {
+    width: 20%;
+    left: 0px;
+    padding: 8px;
+
+    margin: 6px;
+    margin-left: 40%;
+    text-align: left;
+
+
+    align-content: center;
+    background: linear-gradient(90deg,rgba(42, 155, 155, 1) 0%, rgba(87, 199, 133, 1) 50%, rgba(237, 221, 83, 0) 100%);
+    border-radius: 20px;
+    position: relative;
+}
+.songview h2{
+    margin: 1% 0% 0% 14%;
+}
+main{
+    text-align: center;
+}
+
 form {
     margin: auto;
     align-items: center;
