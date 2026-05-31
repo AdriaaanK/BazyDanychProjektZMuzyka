@@ -1,38 +1,74 @@
 'use server'
-
+import { createArtist } from '@/app/actions/artist_modify'
 import { client } from "@/lib/db"
 import { redirect } from 'next/navigation'
+import { createAlbum } from '@/app/actions/album_modify'
 
 export async function createSong(formData, imageData) {
-  const {title, artist, album, genre, duration, release_date, likes_count, image} = Object.fromEntries(formData)
+  const {title,artist_id,new_artist_name,album_id,new_album_name,genre,duration,release_date,likes_count,image} = Object.fromEntries(formData)
+  let finalArtistId = artist_id
+  let finalAlbumId = album_id
+
+  if (artist_id === 'new') {
+    finalArtistId = await createArtist(new_artist_name)
+  }
+  if (album_id === 'new') {
+    const artistName = await client.hGet(`artist:${finalArtistId}`, 'name')
+    finalAlbumId = await createAlbum(new_album_name,artistName,release_date)
+  }
   console.log("poo")
   console.log(image)
-  const id = Math.floor(Math.random() * 100000)
+  const id = await client.incr('track:id')
   await client.hSet(`track:${id}`, {
     title,
-    artist,
-    album,
+    artist_id: finalArtistId,
+    album_id: finalAlbumId,
     genre,
     duration,
     release_date,
     likes_count
   })
+  if (finalAlbumId) {
+    await client.sAdd(`album:${finalAlbumId}:tracks`, String(id))
+  }
   redirect('/') 
 }
 
 export async function getSongData(songId) {
   songId = Number(songId)
-  let songData = {
-    'title': await client.hGet(`track:${songId}`, 'title'),
-    'artist': await client.hGet(`track:${songId}`, 'artist'),
-    'album': await client.hGet(`track:${songId}`, 'album'),
-    'genre': await client.hGet(`track:${songId}`, 'genre'),
-    'duration': await client.hGet(`track:${songId}`, 'duration'),
-    'release_date': await client.hGet(`track:${songId}`, 'release_date'),
-    'likes_count': await client.hGet(`track:${songId}`, 'likes_count'),
-    'image': await client.hGet(`track:${songId}`, 'image')
+
+  const track = await client.hGetAll(`track:${songId}`)
+
+  let artistName = 'Nieznany artysta'
+  let albumName = 'Nieznany album'
+
+  if (track.album_id) {
+    albumName =
+      await client.hGet(
+        `album:${track.album_id}`,
+        'name'
+      ) || 'Nieznany album'
   }
-  return songData
+
+  if (track.artist_id) {
+    artistName =
+      await client.hGet(
+        `artist:${track.artist_id}`,
+        'name'
+      ) || 'Nieznany artysta'
+  }
+
+  return {
+    title: track.title,
+    artist: artistName,
+    album: albumName,
+    album_id: track.album_id,
+    genre: track.genre,
+    duration: track.duration,
+    release_date: track.release_date,
+    likes_count: track.likes_count,
+    image: track.image
+  }
 }
 
 export async function getTrackArray() {

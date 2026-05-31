@@ -1,6 +1,7 @@
 import './globals.css'
 import { Inter } from 'next/font/google'
 import Link from 'next/link'
+import { getCurrentUser, logoutUser } from '@/app/actions/auth'
 
 const inter = Inter({ subsets: ['latin'] })
 
@@ -9,7 +10,9 @@ export const metadata = {
   description: '',
 }
 
-export default function RootLayout({ children }) {
+export default async function RootLayout({ children }) {
+  const user = await getCurrentUser()
+
   return (
     <html lang="en">
       <head>
@@ -20,22 +23,63 @@ export default function RootLayout({ children }) {
 
       <body className={inter.className}>
         <header>
+          <img width="200px" height="200px" src={"/img/logo.png"} id="logo" />
 
-          <img width="200px" href="/" height="200px" src={"/img/logo.png"} id="logo" />
-          <Link href="./"><h1>KoncertDanych</h1></Link>
+          <Link href="/">
+            <h1>KoncertDanych</h1>
+          </Link>
+
           <nav>
-            <Link href="./create" className="a-menu">Polubione utwory</Link>
-            <Link href="./display" className="a-menu">Playlisty</Link>
-            <a className="a-menu">Katalog</a>
-            <a className="a-menu">Twoje konto<img src={"/img/profilowe-domyslne.png"} id="profilowe-domyslne" /></a>
-          </nav>
+            <Link href="/" className="a-menu">Katalog</Link>
+            
+            {user?.role === 'admin' && (
+              <Link href="/admin" className="a-menu">
+                Panel Admina
+              </Link>
+            )}
+            {user ? (
+              <>
+                <Link href="/liked" className="a-menu">Polubione utwory</Link>
+                <Link href="/display" className="a-menu">Playlisty</Link>
+                <Link href="/profile" className="a-menu">
+                  {user.username}
+                  <img
+                    src={"/img/profilowe-domyslne.png"}
+                    id="profilowe-domyslne"
+                  />
+                </Link>
 
+                <form action={logoutUser}>
+                  <button
+                    type="submit"
+                    className="a-menu"
+                    style={{
+                      background: 'none',
+                      border: 'none',
+                      cursor: 'pointer'
+                    }}
+                  >
+                    Wyloguj
+                  </button>
+                </form>
+              </>
+            ) : (
+              <>
+                <Link href="/login" className="a-menu">Logowanie</Link>
+                <Link href="/register" className="a-menu">Rejestracja</Link>
+              </>
+            )}
+          </nav>
         </header>
 
         {children}
 
         <footer>
-          <p>Projekt wykonany przez: <strong>Lidia Boruch, Adrian Krzoski, Mateusz Stolarski, Kacper Szuliński</strong>
+          <p>
+            Projekt wykonany przez:{' '}
+            <strong>
+              Lidia Boruch, Adrian Krzoski, Mateusz Stolarski, Kacper Szuliński
+            </strong>
           </p>
         </footer>
       </body>

@@ -131,3 +131,92 @@ h2 {
 #import-button{
     margin-left: 46.5%;
 }
+.liked-page {
+    padding: 40px;
+    color: green;
+    text-align: center;
+}
+
+.liked-page h1 {
+    margin-bottom: 30px;
+}
+
+.liked-list {
+    width: 60%;
+    margin: 0 auto;
+    display: flex;
+    flex-direction: column;
+    gap: 15px;
+}
+
+.liked-track {
+    display: block;
+    padding: 20px;
+    border: 2px solid darkgreen;
+    border-radius: 20px;
+    background-color: rgb(233, 255, 233);
+    color: darkgreen;
+    text-decoration: none;
+    text-align: left;
+}
+
+.liked-track h2 {
+    margin: 0 0 10px 0;
+}
+
+.liked-track p {
+    margin: 0 0 5px 0;
+}
+
+.liked-track:hover {
+    background-color: rgb(200, 255, 200);
+}
+.album-page {
+    padding: 40px;
+    color: darkgreen;
+    text-align: center;
+}
+
+.album-header {
+    width: 60%;
+    margin: 0 auto 40px auto;
+    padding: 25px;
+    background-color: rgb(233, 255, 233);
+    border: 2px solid darkgreen;
+    border-radius: 20px;
+}
+
+.album-header h1 {
+    margin-bottom: 20px;
+}
+
+.album-tracks {
+    width: 70%;
+    margin: 0 auto;
+}
+
+.album-tracks h2 {
+    margin-bottom: 20px;
+}
+
+.album-track-list {
+    display: flex;
+    flex-direction: column;
+    gap: 12px;
+}
+
+.album-track {
+    display: grid;
+    grid-template-columns: 1fr 120px 120px;
+    padding: 15px 20px;
+    border: 2px solid darkgreen;
+    border-radius: 16px;
+    background-color: rgb(233, 255, 233);
+    color: darkgreen;
+    text-decoration: none;
+    text-align: left;
+}
+
+.album-track:hover {
+    background-color: rgb(200, 255, 200);
+}

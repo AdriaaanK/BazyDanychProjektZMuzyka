@@ -1,16 +1,26 @@
-import { createClient } from 'redis';
+import { createClient } from 'redis'
 
-const client = createClient({
-    username: 'default',
-    password: 'NLvmh337cJCPoGFbGS29F9mdcaqdOBu1',
-    socket: {
-        host: 'redis-14861.c98.us-east-1-4.ec2.cloud.redislabs.com',
-        port: 14861
-    }
-});
+const redisConfig = {
+  username: process.env.REDIS_USERNAME,
+  password: process.env.REDIS_PASSWORD,
+  socket: {
+    host: process.env.REDIS_HOST,
+    port: Number(process.env.REDIS_PORT)
+  }
+}
 
-client.on('error', err => console.log('Redis Client Error', err));
+let client
 
-await client.connect();
+if (!global.redisClient) {
+  global.redisClient = createClient(redisConfig)
+
+  global.redisClient.on('error', err => {
+    console.log('Redis Client Error', err)
+  })
+
+  await global.redisClient.connect()
+}
+
+client = global.redisClient
 
 export { client }

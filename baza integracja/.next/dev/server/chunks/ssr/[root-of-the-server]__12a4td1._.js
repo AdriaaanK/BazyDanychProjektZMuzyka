@@ -89,11 +89,11 @@ __turbopack_context__.s([
 var __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$redis$2f$dist$2f$index$2e$js__$5b$app$2d$rsc$5d$__$28$ecmascript$29$__ = __turbopack_context__.i("[project]/node_modules/redis/dist/index.js [app-rsc] (ecmascript)");
 ;
 const client = (0, __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$redis$2f$dist$2f$index$2e$js__$5b$app$2d$rsc$5d$__$28$ecmascript$29$__["createClient"])({
-    username: 'default',
-    password: 'NLvmh337cJCPoGFbGS29F9mdcaqdOBu1',
+    username: process.env.REDIS_USERNAME,
+    password: process.env.REDIS_PASSWORD,
     socket: {
-        host: 'redis-14861.c98.us-east-1-4.ec2.cloud.redislabs.com',
-        port: 14861
+        host: process.env.REDIS_HOST,
+        port: process.env.REDIS_PORT
     }
 });
 client.on('error', (err)=>console.log('Redis Client Error', err));
@@ -134,7 +134,7 @@ async function createSong(formData, imageData) {
     const { title, artist, album, genre, duration, release_date, likes_count, image } = Object.fromEntries(formData);
     console.log("poo");
     console.log(image);
-    const id = Math.floor(Math.random() * 100000);
+    const id = await __TURBOPACK__imported__module__$5b$project$5d2f$src$2f$lib$2f$db$2e$js__$5b$app$2d$rsc$5d$__$28$ecmascript$29$__["client"].incr('track:id');
     await __TURBOPACK__imported__module__$5b$project$5d2f$src$2f$lib$2f$db$2e$js__$5b$app$2d$rsc$5d$__$28$ecmascript$29$__["client"].hSet(`track:${id}`, {
         title,
         artist,

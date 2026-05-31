@@ -128,3 +128,109 @@ h2 {
     margin-left: 39%;
     padding: 1%;
 }
+.admin-users-page {
+    padding: 40px;
+    color: white;
+}
+
+.admin-users-page h1 {
+    color: white;
+    margin-bottom: 25px;
+}
+
+.users-table-wrapper {
+    width: 90%;
+    margin: 0 auto;
+    background-color: #111;
+    border: 2px solid #555;
+    border-radius: 16px;
+    overflow: hidden;
+}
+
+.users-table {
+    width: 100%;
+    border-collapse: collapse;
+    color: white;
+    font-size: 16px;
+}
+
+.users-table thead {
+    background-color: #000;
+}
+
+.users-table th,
+.users-table td {
+    padding: 14px 18px;
+    text-align: left;
+    border-bottom: 1px solid #444;
+    color: white;
+}
+
+.users-table tbody tr:nth-child(even) {
+    background-color: #1f1f1f;
+}
+
+.users-table tbody tr:nth-child(odd) {
+    background-color: #2b2b2b;
+}
+
+.users-table tbody tr:hover {
+    background-color: #3a3a3a;
+}
+
+.role-admin {
+    color: #ff5555;
+    font-weight: bold;
+}
+
+.role-user {
+    color: #6ee76e;
+    font-weight: bold;
+}
+
+.empty-users {
+    padding: 20px;
+    color: white;
+}
+.admin-dashboard {
+    padding: 40px;
+    color: white;
+}
+
+.admin-dashboard h1 {
+    color: white;
+    margin-bottom: 30px;
+}
+
+.stats-grid {
+    display: grid;
+    grid-template-columns: repeat(4, 1fr);
+    gap: 25px;
+    width: 90%;
+    margin: 0 auto;
+}
+
+.stat-card {
+    background-color: #111;
+    border: 2px solid #555;
+    border-radius: 16px;
+    padding: 30px;
+    text-align: center;
+}
+
+.stat-card h2 {
+    margin: 0;
+    color: white;
+    font-size: 20px;
+}
+
+.stat-card p {
+    margin: 20px 0 0;
+    color: white;
+    font-size: 42px;
+    font-weight: bold;
+}
+
+.stat-card:hover {
+    background-color: #1f1f1f;
+}

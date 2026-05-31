@@ -129,4 +129,95 @@ h2 {
   margin-left: 46.5%;
 }
 
+.liked-page {
+  color: green;
+  text-align: center;
+  padding: 40px;
+}
+
+.liked-page h1 {
+  margin-bottom: 30px;
+}
+
+.liked-list {
+  flex-direction: column;
+  gap: 15px;
+  width: 60%;
+  margin: 0 auto;
+  display: flex;
+}
+
+.liked-track {
+  color: #006400;
+  text-align: left;
+  background-color: #e9ffe9;
+  border: 2px solid #006400;
+  border-radius: 20px;
+  padding: 20px;
+  text-decoration: none;
+  display: block;
+}
+
+.liked-track h2 {
+  margin: 0 0 10px;
+}
+
+.liked-track p {
+  margin: 0 0 5px;
+}
+
+.liked-track:hover {
+  background-color: #c8ffc8;
+}
+
+.album-page {
+  color: #006400;
+  text-align: center;
+  padding: 40px;
+}
+
+.album-header {
+  background-color: #e9ffe9;
+  border: 2px solid #006400;
+  border-radius: 20px;
+  width: 60%;
+  margin: 0 auto 40px;
+  padding: 25px;
+}
+
+.album-header h1 {
+  margin-bottom: 20px;
+}
+
+.album-tracks {
+  width: 70%;
+  margin: 0 auto;
+}
+
+.album-tracks h2 {
+  margin-bottom: 20px;
+}
+
+.album-track-list {
+  flex-direction: column;
+  gap: 12px;
+  display: flex;
+}
+
+.album-track {
+  color: #006400;
+  text-align: left;
+  background-color: #e9ffe9;
+  border: 2px solid #006400;
+  border-radius: 16px;
+  grid-template-columns: 1fr 120px 120px;
+  padding: 15px 20px;
+  text-decoration: none;
+  display: grid;
+}
+
+.album-track:hover {
+  background-color: #c8ffc8;
+}
+
 /*# sourceMappingURL=src_app_%28userinterface%29_globals_css_0w3-wzy._.single.css.map*/
