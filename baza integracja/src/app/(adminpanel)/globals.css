@@ -12,7 +12,12 @@ h1 {
     height: 40px;
     width: auto;
 }
-
+a {
+    text-decoration: none;
+}
+main {
+    color:white;
+}
 header {
     padding: 15px;
     display: flex;
@@ -32,9 +37,15 @@ header {
     text-decoration: none;
     color: inherit;
 }
-.a-menu.left {
-    border-left: 0px;
+.a-menu-left {
     border-right: 2px solid rgb(0, 0, 0);
+    padding: 10px 10px;
+    height: 20px;
+    display: flex;
+    justify-content: center;
+    align-items: center;
+    text-decoration: none;
+    color: inherit;
 }
 
 nav:first-of-type{
@@ -88,7 +99,7 @@ form {
 input{
     box-sizing: border-box;
     border-radius: 30;
-    border: 2px solid rgb(100, 0, 0);
+    border: 2px solid rgb(142, 142, 142);
     background-color: rgb(255, 255, 255);
     margin: 15px;
     width: 250px;
@@ -107,7 +118,7 @@ input[type=file]::file-selector-button {
 
 button {
     border-radius: 30;
-    border: 2px solid rgb(138, 1, 1);
+    border: 2px solid rgb(142, 142, 142);
     margin: 15px;
     background-color: rgb(255, 255, 255);
     color: rgb(0, 0, 0);
@@ -124,9 +135,12 @@ h2 {
 }
 
 .dodajuttt{
-    
-    margin-left: 39%;
-    padding: 1%;
+    & > h1 {
+        color:white;
+        margin:auto;
+        width:15%;
+    }
+    margin:15px;
 }
 .admin-users-page {
     padding: 40px;
@@ -233,4 +247,38 @@ h2 {
 
 .stat-card:hover {
     background-color: #1f1f1f;
+}
+
+.song-title-div {
+    border: 2px solid grey;
+    border-radius: 30px;
+    margin: auto;
+    width: 50%;
+    background-color: #3a3a3a;
+    margin-top: 30px;
+}
+
+.song-add-div {
+    margin: auto;
+    border: 2px solid grey;
+    border-radius: 30px;
+    margin: auto;
+    width: 50%;
+    background-color: #3a3a3a;
+
+}
+
+.button-add {
+    border: 2px solid grey;
+    border-radius: 20px;
+    margin: auto;
+    width: 150px;
+    height: 60px;
+    background-color:#1f1f1f ;
+    color: white;
+}
+
+main p {
+    width:20%;
+    margin: auto;
 }

@@ -29,7 +29,7 @@ export default function AddSongForm({ artists, albums  }) {
           <h1 className="text-4xl font-bold">Dodaj Utwór</h1>
         </div>
 
-        <div className="max-w-3xl bg-zinc-900 border border-zinc-800 rounded-3xl p-8 shadow-2xl">
+        <div className="song-add-div">
           <form action={handleSubmit} className="space-y-6">
             <div className="grid grid-cols-1 md:grid-cols-2 gap-6">
               <div>
@@ -179,7 +179,7 @@ export default function AddSongForm({ artists, albums  }) {
               <button
                 type="submit"
                 disabled={loading}
-                className="bg-purple-600 hover:bg-purple-500 transition px-6 py-3 rounded-xl font-semibold disabled:opacity-50"
+                className="button-add"
               >
                 {loading ? 'Adding...' : 'Add Song'}
               </button>

@@ -66,7 +66,7 @@ function AddSongForm({ artists, albums }) {
                     columnNumber: 9
                 }, this),
                 /*#__PURE__*/ (0, __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$next$2f$dist$2f$compiled$2f$react$2f$jsx$2d$dev$2d$runtime$2e$js__$5b$app$2d$client$5d$__$28$ecmascript$29$__["jsxDEV"])("div", {
-                    className: "max-w-3xl bg-zinc-900 border border-zinc-800 rounded-3xl p-8 shadow-2xl",
+                    className: "song-add-div",
                     children: /*#__PURE__*/ (0, __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$next$2f$dist$2f$compiled$2f$react$2f$jsx$2d$dev$2d$runtime$2e$js__$5b$app$2d$client$5d$__$28$ecmascript$29$__["jsxDEV"])("form", {
                         action: handleSubmit,
                         className: "space-y-6",
@@ -377,7 +377,7 @@ function AddSongForm({ artists, albums }) {
                                 children: /*#__PURE__*/ (0, __TURBOPACK__imported__module__$5b$project$5d2f$node_modules$2f$next$2f$dist$2f$compiled$2f$react$2f$jsx$2d$dev$2d$runtime$2e$js__$5b$app$2d$client$5d$__$28$ecmascript$29$__["jsxDEV"])("button", {
                                     type: "submit",
                                     disabled: loading,
-                                    className: "bg-purple-600 hover:bg-purple-500 transition px-6 py-3 rounded-xl font-semibold disabled:opacity-50",
+                                    className: "button-add",
                                     children: loading ? 'Adding...' : 'Add Song'
                                 }, void 0, false, {
                                     fileName: "[project]/src/app/(adminpanel)/admin/add/AddSongForm.jsx",

@@ -35,7 +35,7 @@ export default async function RootLayout({ children }) {
           <img width="200px" href="/" height="200px" src={"/img/logo.png"} id="logo" />
           <Link href="/admin"><h1>Panel Administratora</h1></Link>
           <nav>
-            <Link href="/" className="a-menu left">Wróć</Link>
+            <Link href="/" className="a-menu-left">Wróć</Link>
           </nav>
           <nav>
             <Link href="/admin/songs" className="a-menu">Utwory</Link>

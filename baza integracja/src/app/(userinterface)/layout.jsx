@@ -30,15 +30,15 @@ export default async function RootLayout({ children }) {
           </Link>
 
           <nav>
-            <Link href="/" className="a-menu">Katalog</Link>
             
             {user?.role === 'admin' && (
-              <Link href="/admin" className="a-menu">
+              <Link href="/admin" className="a-menu-left">
                 Panel Admina
               </Link>
             )}
             {user ? (
               <>
+                <Link href="/" className="a-menu">Katalog</Link>
                 <Link href="/liked" className="a-menu">Polubione utwory</Link>
                 <Link href="/display" className="a-menu">Playlisty</Link>
                 <Link href="/profile" className="a-menu">
@@ -52,7 +52,7 @@ export default async function RootLayout({ children }) {
                 <form action={logoutUser}>
                   <button
                     type="submit"
-                    className="a-menu"
+                    className="a-menu-button"
                     style={{
                       background: 'none',
                       border: 'none',

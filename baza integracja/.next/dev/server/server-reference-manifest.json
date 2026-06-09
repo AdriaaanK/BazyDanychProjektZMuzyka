@@ -14,6 +14,18 @@
           "exportedName": "getCurrentUserData",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUserData",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(adminpanel)/admin/users/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/users/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUserData",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/album/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -32,6 +44,12 @@
           "exportedName": "getCurrentUserData",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(userinterface)/login/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/login/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUserData",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -40,6 +58,12 @@
         },
         "app/(userinterface)/profile/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/profile/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUserData",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
           "exportedName": "getCurrentUserData",
           "filename": "src/app/actions/auth.js"
@@ -62,6 +86,18 @@
           "exportedName": "getAllUsers",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAllUsers",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(adminpanel)/admin/users/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/users/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAllUsers",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/album/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -80,6 +116,12 @@
           "exportedName": "getAllUsers",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(userinterface)/login/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/login/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAllUsers",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -88,6 +130,12 @@
         },
         "app/(userinterface)/profile/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/profile/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAllUsers",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
           "exportedName": "getAllUsers",
           "filename": "src/app/actions/auth.js"
@@ -110,6 +158,18 @@
           "exportedName": "getCurrentUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUser",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(adminpanel)/admin/users/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/users/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/album/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -128,6 +188,12 @@
           "exportedName": "getCurrentUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(userinterface)/login/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/login/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -136,6 +202,12 @@
         },
         "app/(userinterface)/profile/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/profile/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getCurrentUser",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
           "exportedName": "getCurrentUser",
           "filename": "src/app/actions/auth.js"
@@ -158,6 +230,18 @@
           "exportedName": "logoutUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "logoutUser",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(adminpanel)/admin/users/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/users/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "logoutUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/album/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -176,6 +260,12 @@
           "exportedName": "logoutUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(userinterface)/login/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/login/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "logoutUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -184,6 +274,12 @@
         },
         "app/(userinterface)/profile/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/profile/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "logoutUser",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
           "exportedName": "logoutUser",
           "filename": "src/app/actions/auth.js"
@@ -206,6 +302,18 @@
           "exportedName": "getAdminStats",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAdminStats",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(adminpanel)/admin/users/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/users/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAdminStats",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/album/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -224,6 +332,12 @@
           "exportedName": "getAdminStats",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(userinterface)/login/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/login/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAdminStats",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -232,6 +346,12 @@
         },
         "app/(userinterface)/profile/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/profile/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAdminStats",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
           "exportedName": "getAdminStats",
           "filename": "src/app/actions/auth.js"
@@ -254,6 +374,18 @@
           "exportedName": "loginUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "loginUser",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(adminpanel)/admin/users/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/users/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "loginUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/album/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -272,6 +404,12 @@
           "exportedName": "loginUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(userinterface)/login/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/login/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "loginUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -280,6 +418,12 @@
         },
         "app/(userinterface)/profile/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/profile/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "loginUser",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
           "exportedName": "loginUser",
           "filename": "src/app/actions/auth.js"
@@ -302,6 +446,18 @@
           "exportedName": "registerUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "registerUser",
+          "filename": "src/app/actions/auth.js"
+        },
+        "app/(adminpanel)/admin/users/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/users/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "registerUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/album/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -320,6 +476,12 @@
           "exportedName": "registerUser",
           "filename": "src/app/actions/auth.js"
         },
+        "app/(userinterface)/login/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/login/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "registerUser",
+          "filename": "src/app/actions/auth.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -331,6 +493,12 @@
           "async": true,
           "exportedName": "registerUser",
           "filename": "src/app/actions/auth.js"
+        },
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "registerUser",
+          "filename": "src/app/actions/auth.js"
         }
       },
       "filename": "src/app/actions/auth.js",
@@ -338,6 +506,12 @@
     },
     "00632986a1c29fdc82b965363765c21d296807fca5": {
       "workers": {
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getTrackArray",
+          "filename": "src/app/actions/song_modify.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -350,6 +524,12 @@
     },
     "40ea27441e879a3db4b55967ed96ca5bab53692b78": {
       "workers": {
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "setupSongGallery",
+          "filename": "src/app/actions/song_modify.js"
+        },
         "app/(userinterface)/page": {
           "moduleId": "[project]/.next-internal/server/app/(userinterface)/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
           "async": true,
@@ -408,6 +588,48 @@
       "filename": "src/app/actions/likes.js",
       "exportedName": "isTrackLiked"
     },
+    "000940f296384f0eec6d4b55bea5206883f8c89052": {
+      "workers": {
+        "app/(userinterface)/liked/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/liked/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/likes.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getLikedTracks",
+          "filename": "src/app/actions/likes.js"
+        }
+      },
+      "filename": "src/app/actions/likes.js",
+      "exportedName": "getLikedTracks"
+    },
+    "40927bc690794368ea5f57267fec53ef767b611736": {
+      "workers": {
+        "app/(adminpanel)/admin/add/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/add/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/artist_modify.js [app-rsc] (ecmascript)\", ACTIONS_MODULE2 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\", ACTIONS_MODULE3 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAlbumData",
+          "filename": "src/app/actions/album_modify.js"
+        },
+        "app/(userinterface)/album/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "getAlbumData",
+          "filename": "src/app/actions/album_modify.js"
+        }
+      },
+      "filename": "src/app/actions/album_modify.js",
+      "exportedName": "getAlbumData"
+    },
+    "404faf3be1b52e1ea22f1892f6801894c14a5ef528": {
+      "workers": {
+        "app/(adminpanel)/admin/songs/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/songs/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "deleteSong",
+          "filename": "src/app/actions/song_modify.js"
+        }
+      },
+      "filename": "src/app/actions/song_modify.js",
+      "exportedName": "deleteSong"
+    },
     "0060a89e7827e7f8508450a71c0c1517dadd32d6d9": {
       "workers": {
         "app/(adminpanel)/admin/add/page": {
@@ -444,24 +666,6 @@
       "filename": "src/app/actions/album_modify.js",
       "exportedName": "getAlbums"
     },
-    "40927bc690794368ea5f57267fec53ef767b611736": {
-      "workers": {
-        "app/(adminpanel)/admin/add/page": {
-          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/add/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/artist_modify.js [app-rsc] (ecmascript)\", ACTIONS_MODULE2 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\", ACTIONS_MODULE3 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
-          "async": true,
-          "exportedName": "getAlbumData",
-          "filename": "src/app/actions/album_modify.js"
-        },
-        "app/(userinterface)/album/page": {
-          "moduleId": "[project]/.next-internal/server/app/(userinterface)/album/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
-          "async": true,
-          "exportedName": "getAlbumData",
-          "filename": "src/app/actions/album_modify.js"
-        }
-      },
-      "filename": "src/app/actions/album_modify.js",
-      "exportedName": "getAlbumData"
-    },
     "70d10f832d7eb730dafcb8c27c3c6f428696602763": {
       "workers": {
         "app/(adminpanel)/admin/add/page": {
@@ -485,18 +689,6 @@
       },
       "filename": "src/app/actions/song_modify.js",
       "exportedName": "createSong"
-    },
-    "000940f296384f0eec6d4b55bea5206883f8c89052": {
-      "workers": {
-        "app/(userinterface)/liked/page": {
-          "moduleId": "[project]/.next-internal/server/app/(userinterface)/liked/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/likes.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
-          "async": true,
-          "exportedName": "getLikedTracks",
-          "filename": "src/app/actions/likes.js"
-        }
-      },
-      "filename": "src/app/actions/likes.js",
-      "exportedName": "getLikedTracks"
     }
   },
   "edge": {},

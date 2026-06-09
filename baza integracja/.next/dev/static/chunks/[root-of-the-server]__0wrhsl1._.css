@@ -14,6 +14,14 @@ h1 {
   height: 40px;
 }
 
+a {
+  text-decoration: none;
+}
+
+main {
+  color: #fff;
+}
+
 header {
   background-color: #fff;
   justify-content: center;
@@ -34,9 +42,15 @@ header {
   display: flex;
 }
 
-.a-menu.left {
-  border-left: 0;
+.a-menu-left {
+  height: 20px;
+  color: inherit;
   border-right: 2px solid #000;
+  justify-content: center;
+  align-items: center;
+  padding: 10px;
+  text-decoration: none;
+  display: flex;
 }
 
 nav:first-of-type {
@@ -87,7 +101,7 @@ form {
 input {
   box-sizing: border-box;
   background-color: #fff;
-  border: 2px solid #640000;
+  border: 2px solid #8e8e8e;
   border-radius: 30px;
   width: 250px;
   height: 35px;
@@ -108,7 +122,7 @@ input[type="file"]::file-selector-button {
 button {
   color: #000;
   background-color: #fff;
-  border: 2px solid #8a0101;
+  border: 2px solid #8e8e8e;
   border-radius: 30px;
   margin: 15px;
 }
@@ -122,9 +136,14 @@ h2 {
   margin-left: 46.5%;
 }
 
+.dodajuttt > h1 {
+  color: #fff;
+  width: 15%;
+  margin: auto;
+}
+
 .dodajuttt {
-  margin-left: 39%;
-  padding: 1%;
+  margin: 15px;
 }
 
 .admin-users-page {
@@ -232,6 +251,37 @@ h2 {
 
 .stat-card:hover {
   background-color: #1f1f1f;
+}
+
+.song-title-div {
+  background-color: #3a3a3a;
+  border: 2px solid gray;
+  border-radius: 30px;
+  width: 50%;
+  margin: 30px auto auto;
+}
+
+.song-add-div {
+  background-color: #3a3a3a;
+  border: 2px solid gray;
+  border-radius: 30px;
+  width: 50%;
+  margin: auto;
+}
+
+.button-add {
+  color: #fff;
+  background-color: #1f1f1f;
+  border: 2px solid gray;
+  border-radius: 20px;
+  width: 150px;
+  height: 60px;
+  margin: auto;
+}
+
+main p {
+  width: 20%;
+  margin: auto;
 }
 
 /* [next]/internal/font/google/inter_b006827b.module.css [app-client] (css) */
