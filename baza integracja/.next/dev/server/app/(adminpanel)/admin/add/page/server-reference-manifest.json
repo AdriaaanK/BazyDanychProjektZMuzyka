@@ -60,6 +60,18 @@
       "exportedName": "getAdminStats",
       "filename": "src/app/actions/auth.js"
     },
+    "400c5858bf27b2afe8e1fd70cd43ed27071d209b7f": {
+      "workers": {
+        "app/(adminpanel)/admin/add/page": {
+          "moduleId": "[project]/.next-internal/server/app/(adminpanel)/admin/add/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\", ACTIONS_MODULE1 => \"[project]/src/app/actions/artist_modify.js [app-rsc] (ecmascript)\", ACTIONS_MODULE2 => \"[project]/src/app/actions/album_modify.js [app-rsc] (ecmascript)\", ACTIONS_MODULE3 => \"[project]/src/app/actions/song_modify.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "deleteUser",
+          "filename": "src/app/actions/auth.js"
+        }
+      },
+      "exportedName": "deleteUser",
+      "filename": "src/app/actions/auth.js"
+    },
     "40657f493718b37db3d63a78c47290faf16566cfba": {
       "workers": {
         "app/(adminpanel)/admin/add/page": {

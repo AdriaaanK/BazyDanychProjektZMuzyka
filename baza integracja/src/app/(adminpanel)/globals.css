@@ -282,3 +282,12 @@ main p {
     width:20%;
     margin: auto;
 }
+
+.plain-button {
+  all: unset;
+  cursor: pointer;
+  border-radius: 40;
+    border: 2px solid rgb(142, 142, 142);
+    background-color: rgb(255, 255, 255);
+    color: rgb(0, 0, 0);
+}

@@ -1,4 +1,4 @@
-import { getAllUsers } from '@/app/actions/auth'
+import { getAllUsers, deleteUser } from '@/app/actions/auth'
 
 export default async function AdminUsersPage() {
   const users = await getAllUsers()
@@ -17,6 +17,7 @@ export default async function AdminUsersPage() {
               <th>Rola</th>
               <th>Playlisty</th>
               <th>Data rejestracji</th>
+              <th>Akcje</th>
             </tr>
           </thead>
 
@@ -33,6 +34,12 @@ export default async function AdminUsersPage() {
                 </td>
                 <td>{user.playlists_count}</td>
                 <td>{new Date(user.registered_at).toLocaleString('pl-PL')}</td>
+                <td>
+                  <form action={deleteUser}>
+                    <input type="hidden" name="userId" value={user.id} />
+                    <button type="submit">Usuń</button>
+                  </form>
+                </td>
               </tr>
             ))}
           </tbody>

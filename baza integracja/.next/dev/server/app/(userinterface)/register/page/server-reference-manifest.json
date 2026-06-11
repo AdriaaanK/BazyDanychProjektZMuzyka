@@ -60,6 +60,18 @@
       "exportedName": "getAdminStats",
       "filename": "src/app/actions/auth.js"
     },
+    "400c5858bf27b2afe8e1fd70cd43ed27071d209b7f": {
+      "workers": {
+        "app/(userinterface)/register/page": {
+          "moduleId": "[project]/.next-internal/server/app/(userinterface)/register/page/actions.js { ACTIONS_MODULE0 => \"[project]/src/app/actions/auth.js [app-rsc] (ecmascript)\" } [app-rsc] (server actions loader, ecmascript)",
+          "async": true,
+          "exportedName": "deleteUser",
+          "filename": "src/app/actions/auth.js"
+        }
+      },
+      "exportedName": "deleteUser",
+      "filename": "src/app/actions/auth.js"
+    },
     "40657f493718b37db3d63a78c47290faf16566cfba": {
       "workers": {
         "app/(userinterface)/register/page": {

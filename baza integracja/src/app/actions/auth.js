@@ -1,5 +1,6 @@
 'use server'
 
+import { revalidatePath } from 'next/cache'
 import { client } from '@/lib/db'
 import bcrypt from 'bcryptjs'
 import { cookies } from 'next/headers'
@@ -226,3 +227,30 @@ export async function getAdminStats() {
     playlistsCount: playlistKeys.length
   }
 }
+
+export async function deleteUser(formData) {
+  const id = formData.get('userId')
+
+  if (!id) {
+    return { error: 'Brak ID użytkownika' }
+  }
+
+  const userKeys = await client.keys(`user:${id}*`)
+
+  for (const key of userKeys) {
+    await client.del(key)
+  }
+
+  const sessionKeys = await client.keys('session:*')
+
+  for (const key of sessionKeys) {
+    const session = await client.hGetAll(key)
+
+    if (session.userId === id) {
+      await client.del(key)
+    }
+  }
+
+  revalidatePath('/admin/users')
+}
+
