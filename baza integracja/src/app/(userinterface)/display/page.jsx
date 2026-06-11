@@ -5,11 +5,14 @@ import { getSongData } from '@/app/actions/song_modify'
 import { useEffect, useState } from 'react'
 import { toggleLikeTrack, isTrackLiked } from '@/app/actions/likes'
 import { useSearchParams } from 'next/navigation'
+import { addTrackToPlaylist, getUserPlaylists } from '@/app/actions/playlists'
 
 export default function Display() {
   const [song, setSong] = useState(null)
   const [loading, setLoading] = useState(true)
   const [liked, setLiked] = useState(false)
+  const [playlists, setPlaylists] = useState([])
+  const [message, setMessage] = useState('')
   const searchParams = useSearchParams()
   const id = searchParams.get('id')
   useEffect(() => {
@@ -19,6 +22,8 @@ export default function Display() {
         setSong(data)
         const likedStatus = await isTrackLiked(id)
         setLiked(likedStatus)
+        const userPlaylists = await getUserPlaylists()
+        setPlaylists(userPlaylists)
       } catch (err) {
         console.error(err)
       } finally {
@@ -37,6 +42,17 @@ export default function Display() {
       }
 
       setLiked(result.liked)
+    }
+
+    async function handleAddToPlaylist(playlistId) {
+      const result = await addTrackToPlaylist(playlistId, id)
+
+      if (result?.error) {
+        setMessage(result.error)
+        return
+      }
+
+      setMessage('Utwór dodany do playlisty.')
     }
   if (loading) {
     return <p>Loading song...</p>
@@ -91,7 +107,24 @@ export default function Display() {
       <button onClick={handleLike}>
         {liked ? '💔 Usuń z polubionych' : '❤️ Polub utwór'}
       </button>
-      
+
+      <section className="mt-6">
+        <h2>Dodaj do playlisty</h2>
+        {playlists.length === 0 ? (
+          <p>Nie masz jeszcze playlist.</p>
+        ) : (
+          <ul className="flex flex-col gap-2 mt-2">
+            {playlists.map(playlist => (
+              <li key={playlist.id}>
+                <button onClick={() => handleAddToPlaylist(playlist.id)}>
+                  {playlist.name}
+                </button>
+              </li>
+            ))}
+          </ul>
+        )}
+        {message && <p className="mt-2 text-sm">{message}</p>}
+      </section>
     </div>
     </>
   )

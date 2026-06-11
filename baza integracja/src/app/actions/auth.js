@@ -220,11 +220,16 @@ export async function getAdminStats() {
     return parts.length === 2 && key !== 'track:id'
   })
 
+  const playlists = playlistKeys.filter(key => {
+    const parts = key.split(':')
+    return parts.length === 2 && key !== 'playlist:id'
+  })
+
   return {
     usersCount: users.length,
     tracksCount: tracks.length,
     sessionsCount: sessionKeys.length,
-    playlistsCount: playlistKeys.length
+    playlistsCount: playlists.length
   }
 }
 

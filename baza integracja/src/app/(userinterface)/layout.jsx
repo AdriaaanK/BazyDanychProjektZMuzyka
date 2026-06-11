@@ -40,7 +40,7 @@ export default async function RootLayout({ children }) {
               <>
                 <Link href="/" className="a-menu">Katalog</Link>
                 <Link href="/liked" className="a-menu">Polubione utwory</Link>
-                <Link href="/display" className="a-menu">Playlisty</Link>
+                <Link href="/playlists" className="a-menu">Playlisty</Link>
                 <Link href="/profile" className="a-menu">
                   {user.username}
                   <img
